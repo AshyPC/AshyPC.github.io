@@ -51,8 +51,8 @@ padding: 5px 0;
 #menu {
 height: 60px;
 line-height: 60px;
-/* background: #0000FF; was deep blue from PWMU site */
-background: #431a54;  /* purple as shadow of cross
+background: #0000FF; /*  deep blue from PWMU site 
+/* background: #431a54;  purple as shadow of cross */
 font-size: 20px;
 
 }
@@ -81,7 +81,6 @@ text-decoration: underline;
 
 #content {
 padding: 10px 10px;
-/* background: #fff url(images/content.gif) repeat-y; */
 border-style: solid;
 border-width: 1px;
 border-color: #0000FD;
@@ -210,7 +209,7 @@ color: #0000FF;
 float: left;
 width: 220px;
 padding: 10px;
-border-right: 1px solid #aaa;
+/* border-right: 1px solid #aaa;  */
 }
 .left h2 {
 font-size: 13px;
@@ -241,7 +240,7 @@ padding: 10px 0;
 
 #footer {
 text-align: center;
-width: 680px;
+width: 1080px;
 color: #666;
 font-size: 11px;
 }
