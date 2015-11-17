@@ -51,10 +51,10 @@ padding: 5px 0;
 #menu {
 height: 60px;
 line-height: 60px;
-background: #0000FF url(images/menu_dark6.gif) no-repeat;
-
+/* background: #0000FF; was deep blue from PWMU site */
+background: #431a54;  /* purple as shadow of cross
 font-size: 20px;
-/* #background: #2B448C; */
+
 }
 #menu ul {
 padding-left: 24px;
@@ -150,7 +150,7 @@ a:active {
 
 .right {
 float: right;
-width: 220px;
+width: 240px;
 text-align: justify;
 padding: 0 20px 10px 10px;
 }
@@ -179,7 +179,7 @@ color: #0000FF;
 
 
 .middle {
-width: 600px;
+width: 640px;
 text-align: justify;
 padding: 5px 20px 10px 10px;
 }
@@ -241,7 +241,7 @@ padding: 10px 0;
 
 #footer {
 text-align: center;
-	width: 100%;
+width: 680px;
 color: #666;
 font-size: 11px;
 }
