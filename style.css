@@ -19,8 +19,8 @@ a:hover { text-decoration: underline; color: #006FFF; }
 a { display:block; max-width:95%;}
 
 #wrap {
-width: 960px;
-margin: 40px auto;
+width: 1080px;
+margin: 20px auto;
 }
 
 #header h1 {
@@ -37,10 +37,10 @@ text-decoration: none;
 color: #000;
 }
 #header h2 {
-padding-left: 21px;
-font-size: 16px;
+padding-left: 10px;
+font-size: 14px;
 color: #666;
-font-weight: 600;
+font-weight: 500;
 }
 
 #top {
@@ -156,8 +156,8 @@ padding: 0 20px 10px 10px;
 }
 .right h2 {
 color: #0000EF;
-font-size: 20px;
-font-weight: 600;
+font-size: 16px;
+font-weight: 500;
 padding : 10px 0 15px 0;
 }
 .right h2 a {
@@ -179,14 +179,14 @@ color: #0000FF;
 
 
 .middle {
-width: 640px;
+width: 600px;
 text-align: justify;
 padding: 0 20px 10px 10px;
 }
 .middle h2 {
 color: #0000EF;
-font-size: 20px;
-font-weight: 600;
+font-size: 16px;
+font-weight: 500;
 padding : 10px 0 15px 0;
 }
 .middle h2 a {
