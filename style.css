@@ -16,7 +16,7 @@ color: #333333;
 img { border: none; }
 a { color: #0F0FFF; text-decoration: none; }
 a:hover { text-decoration: underline; color: #006FFF; }
-a { display:block; max-width:99%;}
+a { display:block; max-width:95%;}
 
 #wrap {
 width: 960px;
