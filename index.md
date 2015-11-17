@@ -1,3 +1,8 @@
+---
+layout: main
+title: AshyPC Home
+---
+
 # Welcome to Ashburton Presbyterian Church!
 
 We are a group of ordinary people who know, love and follow Jesus. We believe He is at work in our world through the ordinary and we desire to be part of that work.
