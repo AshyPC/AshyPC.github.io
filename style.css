@@ -213,11 +213,12 @@ color: #0000FF;
 
 .left {
 float: left;
-width: 220px;  /* instead of float none and auto */
+width: 220px;
 padding: 10px;
 
 /* border-right: 1px solid #aaa;  */
 }
+
 .left h2 {
 font-size: 13px;
 color: #333;
