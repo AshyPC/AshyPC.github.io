@@ -53,7 +53,7 @@ height: 60px;
 line-height: 60px;
 /* background: #0000FF;  deep blue from PWMU site */
 /* background: #431a54;  purple as shadow of cross */
-background: #18596B;  /* grey/green of welcome banner */
+background: #18596B;  /* grey-green of welcome banner */
 font-size: 20px;
 
 }
@@ -180,7 +180,7 @@ color: #0000FF;
 
 
 .middle {
-width: 680px;
+width: 640px;
 text-align: justify;
 padding: 5px 20px 10px 10px;
 }
@@ -209,7 +209,7 @@ color: #0000FF;
 
 .left {
 float: left;
-width: 200px;
+width: 220px;
 padding: 10px;
 /* border-right: 1px solid #aaa;  */
 }
