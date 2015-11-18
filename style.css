@@ -212,8 +212,8 @@ color: #0000FF;
 }
 
 .left {
-float: none;
-width: auto;  /* instead of float left and 220px */
+float: left;
+width: 220px;  /* instead of float none and auto */
 padding: 10px;
 
 /* border-right: 1px solid #aaa;  */
