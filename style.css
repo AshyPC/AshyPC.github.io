@@ -83,8 +83,12 @@ text-decoration: underline;
     border-style: solid;
     border-width: 1px;
     border-color: #18596B;
-    height: auto;
-    overflow: hidden;
+
+/*
+   height: auto;
+   overflow: hidden;
+*/
+   
 }
 
 
