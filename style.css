@@ -79,10 +79,12 @@ text-decoration: underline;
 }
 
 #content {
-padding: 10px 10px;
-border-style: solid;
-border-width: 1px;
-border-color: #18596B;
+    padding: 10px 10px;
+    border-style: solid;
+    border-width: 1px;
+    border-color: #18596B;
+    height: auto;
+    overflow: hidden;
 }
 
 
@@ -206,6 +208,7 @@ color: #0000FF;
 }
 
 .left {
+float: left;
 width: 220px;
 padding: 10px;
 /* border-right: 1px solid #aaa;  */
