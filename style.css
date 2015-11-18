@@ -51,8 +51,9 @@ padding: 5px 0;
 #menu {
 height: 60px;
 line-height: 60px;
-background: #0000FF; /*  deep blue from PWMU site 
+/* background: #0000FF;  deep blue from PWMU site */
 /* background: #431a54;  purple as shadow of cross */
+background: #18596B;  /* grey/green of welcome banner
 font-size: 20px;
 
 }
@@ -149,7 +150,7 @@ a:active {
 
 .right {
 float: right;
-width: 240px;
+width: 280px;
 text-align: justify;
 padding: 0 20px 10px 10px;
 }
@@ -178,7 +179,7 @@ color: #0000FF;
 
 
 .middle {
-width: 640px;
+width: 740px;
 text-align: justify;
 padding: 5px 20px 10px 10px;
 }
