@@ -100,19 +100,19 @@ text-decoration: underline;
 	border: none;
 }	
 
-#missions {
-    width: 580px; 
+#sermons {
+    width: 960px; 
 	border: none; 
 
 }
 
-#missions td, #missions th {
+#sermons td, #sermons th {
     font-size: 12px;
     border: none;
     padding: 3px 7px 2px 7px;
 }
 
-#missions th {
+#sermons th {
     font-size: 12px;
     text-align: center;
     padding-top: 5px;
@@ -121,14 +121,14 @@ text-decoration: underline;
     color: #ffffff;
 }
 
-#missions tr.alt td {
+#sermons tr.alt td {
     color: #000000;
     background-color: #2B448C;
 }
-#missions tr
+#sermons tr
 	
 
-#missions td.alt td {
+#sermons td.alt td {
 	width: 306px;
 	width: 274px;	
 }
