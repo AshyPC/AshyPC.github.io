@@ -29,17 +29,53 @@ Click on the icons below to select a series, or scroll down to the table to sear
 <th>
 <td>Date</td><td>Title</td><td>Speaker</td>
 </th>
+
 <tr>
     <td></td>
-    <td>28 Jun 2015</td>
-    <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1">Who Is The Holy Spirit</a></td>
+    <td>17 May 2015</td>
+    <td><a href="https://www.dropbox.com/s/c5sr1mrdz75op6u/2015.05.17%20-%20Matt%205%4017-48.mp3?dl=0">Not How High, But How Deep</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
 
 <tr>
     <td></td>
+    <td>24 May 2015</td>
+    <td><a href="https://www.dropbox.com/s/rd5ito2wykdjjty/2015.05.24%20-%20Matt%206%401-18.mp3?dl=0">Who's In The Spotlight?</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
     <td></td>
-    <td><a href=""> </a></td>
+    <td>31 May 2015</td>
+    <td><a href="https://www.dropbox.com/s/r2ul2lc72emkt63/2015.05.31%20-%20Matt%206%4019-34.mp3?dl=0">In ... Do We trust?</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>7 Jun 2015</td>
+    <td><a href="https://www.dropbox.com/s/iecktefqrcvc7ij/2015.06.07%20-%20Matt%207%401-12.mp3?dl=0">Seeing More Clearly</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>14 Jun 2015</td>
+    <td><a href="https://www.dropbox.com/s/rf4hp3ujbzed0fg/2015.06.14%20-%20Matt%207%4013-29.mp3?dl=0">Only Two Choices</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>21 Jun 2015</td>
+    <td><a href="https://www.dropbox.com/s/r132ixbui1z26df/2015.06.21%20-%20Gal%202%4011-21.mp3?dl=0">The Truth of The Gospel</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>28 Jun 2015</td>
+    <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1">Who Is The Holy Spirit</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
 
@@ -60,14 +96,14 @@ Click on the icons below to select a series, or scroll down to the table to sear
 <tr>
     <td></td>
     <td>19 July 2015</td>
-    <td><a href="">The Holy Spirit, Adoption &amp; Sanctification</a></td>
+    <td>The Holy Spirit, Adoption &amp; Sanctification</td>
     <td>Rev Barry Oakes</td>
 </tr>
 
 <tr>
     <td></td>
     <td>26 July 2015</td>
-    <td><a href="">Moses Returns To Egypt</a></td>
+    <td>Moses Returns To Egypt</td>
     <td>Damian Meeuwissen - College Sunday</td>
 </tr>
 
@@ -157,22 +193,29 @@ Click on the icons below to select a series, or scroll down to the table to sear
 
 <tr>
     <td></td>
+    <td>25 Oct 2015</td>
+    <td><a href="https://www.dropbox.com/s/ypmhtcg0fpdqd7d/2015-10-25%20-%201%20Sam%2010%4017-11%4015.mp3?dl=0">The Battle, The Spirit &amp; The Kingdom</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>1 Nov 2015</td>
+    <td>Grace Not Deserved</td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>8 Nov 2015</td>
+    <td>Is Your Heart In It?</td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
     <td>15 Nov 2015</td>
     <td><a href="https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?dl=0">Heart, Not Hands</a></td>
-    <td>Rev Barry Oakes</td>
-</tr>
-
-<tr>
-    <td></td>
-    <td></td>
-    <td><a href=""> </a></td>
-    <td>Rev Barry Oakes</td>
-</tr>
-
-<tr>
-    <td></td>
-    <td></td>
-    <td><a href=""> </a></td>
     <td>Rev Barry Oakes</td>
 </tr>
 
