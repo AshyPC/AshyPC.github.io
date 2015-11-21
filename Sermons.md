@@ -23,16 +23,17 @@ Click on the icons below to select a series, or scroll down to the table to sear
 <td><img src="/images/stone_cross_suffering.png" width="200" alt="Suffering &amp; the People of God"></a></td>
 </tr>
 </table>
-
+<center>
 <table>
 <th>
-<td>Date</td><td>Title</td><td>Speaker</td>
+<td></td><td>Date</td><td>Title</td><td>Speaker</td>
 </th>
 <tr>
+    <td></td>
     <td>28 Jun 2015</td>
-    <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=0">Who Is The Holy Spirit</a></td>
+    <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1">Who Is The Holy Spirit</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
-
 </table>
+</center>
 
