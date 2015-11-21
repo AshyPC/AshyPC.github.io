@@ -35,46 +35,52 @@ Click on the icons below to select a series, or scroll down to the table to sear
     <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1">Who Is The Holy Spirit</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
+
+<tr>
+    <td></td>
+    <td>27 Sep 2015</td>
+    <td><a href="https://www.dropbox.com/s/9ogp7plo6vpizkh/2015.09.27%20-%201%20Sam%202%4012-4%401.mp3?dl=0">God's Leaders Lead With God's Word</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
+<tr>
+    <td></td>
+    <td>4 Oct 2015</td>
+    <td><a href="https://www.dropbox.com/s/erq22jjdzog9nsd/2015.10.04%20-%201%20Sam%204%401-7%4017.mp3?dl=0">The Weight of God's Glory</a></td>
+    <td>Rev Barry Oakes</td>
+</tr>
+
 <tr>
     <td></td>
     <td>11 Oct 2015</td>
     <td><a href="https://www.dropbox.com/s/e9k3722p9v4ua0n/2015.10.11%20-%201%20Sam%208%401-22.mp3?dl=0">God Is Enough</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
+
 <tr>
     <td></td>
     <td>18 Oct 2015</td>
     <td><a href="https://www.dropbox.com/s/5eislubnfwayhp6/2015.10.18%20-%201%20Sam%209%401-10%4016.mp3?dl=0">God is in the Circumstances</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
-</tr>
+
+<tr>
     <td></td>
     <td>15 Nov 2015</td>
     <td><a href="https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?dl=0">Heart, Not Hands</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
+
 <tr>
     <td></td>
-    <td></td>
-    <td></td>
-    <td></td>
+    <td>20 Sep 2015</td>
+    <td><a href="https://www.dropbox.com/s/alyd74q64jn505n/2015.09.20%20-%201%20Sam%201%401-2%4011.mp3?dl=0">Heart, Not Hands</a></td>
+    <td>Rev Barry Oakes</td>
 </tr>
 <tr>
     <td></td>
     <td></td>
-    <td></td>
-    <td></td>
-</tr>
-<tr>
-    <td></td>
-    <td></td>
-    <td></td>
-    <td></td>
-</tr>
-<tr>
-    <td></td>
-    <td></td>
-    <td></td>
+    <td><a href=""> </a></td>
     <td></td>
 </tr>
 <tr>
