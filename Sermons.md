@@ -11,6 +11,7 @@ They are collected into series and arranged in date order from the most recent.
 
 Click on the icons below to select a series, or scroll down to the table to search by date.
 
+<div id='sermons'> 
 <table>
 <tr>
 <td><img src="/images/psalms_300x225.png" width="200" alt="Sampling The Psalms"></a></td>
@@ -34,6 +35,12 @@ Click on the icons below to select a series, or scroll down to the table to sear
     <td><a href="https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1">Who Is The Holy Spirit</a></td>
     <td>Rev Barry Oakes</td>
 </tr>
+<td></td>
+    <td>15 Nov 2015</td>
+    <td><a href="https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?dl=0">Heart, Not Hands</a></td>
+    <td>Rev Barry Oakes</td>
+<tr>
+</tr>
 </table>
 </center>
-
+</div>
