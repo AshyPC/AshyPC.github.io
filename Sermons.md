@@ -26,13 +26,12 @@ Click on the icons below to select a series, or scroll down to the table to sear
 
 <table>
 <th>
-<td>Date</td><td>Title</td><td>Size</td><td>Speaker</td>
+<td>Date</td><td>Title</td><td>Speaker</td>
 </th>
 <tr>
     <td></td>
-    <td></td>
-    <td></td>
-    <td></td>
+    <td>https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=0</td>
+    <td>Rev Barry Oakes</td>
 </tr>
 
 </table>
