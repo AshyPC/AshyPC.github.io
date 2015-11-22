@@ -14,14 +14,14 @@ Click on the icons below to select a series, or scroll down to the table to sear
 <div id='sermons'> 
 <table>
 <tr>
-<td><img src="/images/psalms_300x225.png" width="200" alt="Sampling The Psalms"></a></td>
-<td><img src="/images/matthew_300x225.png" width="200" alt="The Saviour King"></a></td>
-<td><img src="/images/The_Holy_Spirit_300.png" width="200" alt="What's This About The Holy Spirit"></a></td>
+<td><img src="/images/psalms_300x225.png" width="150" alt="Sampling The Psalms"></a></td>
+<td><img src="/images/matthew_300x225.png" width="150" alt="The Saviour King"></a></td>
+<td><img src="/images/The_Holy_Spirit_300.png" width="150" alt="What's This About The Holy Spirit"></a></td>
 </tr>
 <tr>
-<td><img src="/images/Leadership_Word_300.png" width="200" alt="Leadership &amp; the Word of God"></a></td>
-<td><img src="/images/beatitudes_200.png" width="200" alt="The Beatitudes"></a></td>
-<td><img src="/images/stone_cross_suffering_300.png" width="200" alt="Suffering &amp; the People of God"></a></td>
+<td><img src="/images/Leadership_Word_300.png" width="150" alt="Leadership &amp; the Word of God"></a></td>
+<td><img src="/images/beatitudes_200.png" width="150" alt="The Beatitudes"></a></td>
+<td><img src="/images/stone_cross_suffering_300.png" width="150" alt="Suffering &amp; the People of God"></a></td>
 </tr>
 </table>
 <center>
@@ -155,7 +155,7 @@ Click on the icons below to select a series, or scroll down to the table to sear
     <td><a href="https://www.dropbox.com/s/wxm3wa62c5t2jfh/2015.09.13%20-%20Rt%20Rev%20David%20Brown.mp3?dl=0">The Gate To God</a></td>
     <td>Rt Rev David Brown, Moderator - PCV</td>
 </tr>
-
+height="200"
 
 </table>
 </center>

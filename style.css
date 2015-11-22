@@ -103,7 +103,9 @@ text-decoration: underline;
 #sermons {
     width: 960px; 
 	border: none; 
-
+    padding: 20px 20px 10px 10px;
+    margin-left: 230px;
+    overflow: hidden;
 }
 
 #sermons td {
