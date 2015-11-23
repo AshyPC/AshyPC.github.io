@@ -11,7 +11,7 @@ They are collected into series and arranged in date order from the most recent d
 
 This page shows the current series.
 
-To find earlier series, please click this link to [Older Sermons] (/Sermons_Older.md)
+To find earlier series, please click this link to [Older Sermons](/Sermons_Older.md)
 
 <div id='sermons'> 
 <table>
