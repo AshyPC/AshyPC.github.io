@@ -96,7 +96,10 @@ To find earlier series, please click this link to [Older Sermons] (/Sermons_Olde
 
 </table>
 </center>
-</div>
- Date|Another Sermon Series| Another Title
+
+Date|Another Sermon Series| Another Title
  -----|---------------------|--------------
  20 Sep 2015|<https://www.dropbox.com/s/alyd74q64jn505n/2015.09.20%20-%201%20Sam%201%401-2%4011.mp3?dl=1>|The God Who Cares & Provides
+ 
+</div>
+ 
