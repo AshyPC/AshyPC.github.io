@@ -7,9 +7,9 @@ title: AshyPC Earlier Sermons
 
 Here you will find the sermons from Sunday gatherings which form a central part of the teaching programme of our church.
 
-They are collected into series and arranged in date order from the most recent.
+They are collected into series and arranged in date order from the oldest to the most recent.
 
-Click on the icons below to select a series, or scroll down to the table to search by date.
+Scroll down the table to search by date.
 
 <div id='sermons'> 
 <table>
