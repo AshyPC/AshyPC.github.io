@@ -11,7 +11,14 @@ They are collected into series and arranged in date order from the most recent d
 
 This page shows the current series.
 
-To find earlier series, please click this link to [Older Sermons](/Sermons_Older.md)
+To find earlier series, please click this link to [Older Sermons](/Sermons_Older.html)
+
+See separate pages for series here:
+The Saviour King [Matthew](Sermons_Matthew.html)
+First Peter [Suffering &amp; the People of God](Sermons_Sumarno.html)
+The Beatitudes [Matthew 5](Sermons_Beatitudes.html)
+What's this about the Holy Spirit [The Holy Spirit](Sermons_Holy_Spirit.html)
+Psalms and Visiting Speakers [Samples](Sermons_Samples.html)
 
 <div id='sermons'> 
 <table>
