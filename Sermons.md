@@ -11,7 +11,7 @@ They are collected into series and arranged in date order from the most recent d
 
 This page shows the current series.
 
-To find earlier series, please click this link to [Older Sermons] (/Sermons_Older.html)
+To find earlier series, please click this link to [Older Sermons] (/Sermons_Older.md)
 
 <div id='sermons'> 
 <table>
@@ -98,8 +98,8 @@ To find earlier series, please click this link to [Older Sermons] (/Sermons_Olde
 </center>
 
 Date|Another Sermon Series| Another Title
- -----|---------------------|--------------
- 20 Sep 2015|<https://www.dropbox.com/s/alyd74q64jn505n/2015.09.20%20-%201%20Sam%201%401-2%4011.mp3?dl=1>|The God Who Cares & Provides
+----|---------------------|--------------
+20 Sep 2015|<https://www.dropbox.com/s/alyd74q64jn505n/2015.09.20%20-%201%20Sam%201%401-2%4011.mp3?dl=1>|The God Who Cares & Provides
  
 </div>
  
