@@ -27,7 +27,7 @@ They are collected into series and arranged in date order from the most recent.
 <center>
 <table>
 <th>
-<td>Date</td><td>Title</td><td>Speaker</td>
+<td><img src="/images/Leadership_Word_300.png" width="150" alt="Leadership &amp; the Word of God"></a></td><td>Date</td><td>Title</td><td>Speaker</td>
 </th>
 
 <tr>
