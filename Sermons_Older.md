@@ -1,5 +1,5 @@
 ---
-layout: wide_sermons
+layout: wide_sermons_new
 title: AshyPC Earlier Sermons
 ---
 
