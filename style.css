@@ -6,11 +6,11 @@
 body {
 background: #fff;
 font-family: sans-serif;
-font-size: 11px;
+font-size: 12px;
 line-height: 18px;
 color: #333333;
 }
-/* #color: #2B448C; */
+
 
 
 img { border: none; }
@@ -84,10 +84,6 @@ text-decoration: underline;
     border-width: 1px;
     border-color: #18596B;
 
-/*
-   height: auto;
-   overflow: auto;
-*/
    
 }
 
@@ -104,7 +100,6 @@ text-decoration: underline;
     width: 530px; 
 	border: none; 
     padding: 20px 20px 10px 10px;
-/*    margin-left: 230px; */
     overflow: hidden;
 }
 
