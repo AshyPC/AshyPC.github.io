@@ -4,8 +4,8 @@ title: AshyPC Sermons - The Holy Spirit
 ---
 
 
- Date|[Leadership & The Word of God Series](/images/The_Holy_Spirit_300.png)| Speaker
- -----|---------------------|--------------
+ Date|[Holy Spirit Series](/images/The_Holy_Spirit_300.png)|Speaker
+ ----|---------------------|--------------
  23 Aug 2015|[Mission, the Holy Spirit and Us](https://www.dropbox.com/s/wgrrl2qsknmhofy/2015.08.23%20-%20HS%20%237%20-%20Mission%2C%20the%20Holy%20Spirit%20and%20Us.mp3?dl=1)|Barry Oakes
  16 Aug 2015|[Opposing the Holy Spirit](https://www.dropbox.com/s/w9gkm3c7to4xv35/2015.08.16%20-%20HS%20%236%20-%20Opposing%20the%20Holy%20Spirit.mp3?dl=1)|Barry Oakes
   9 Aug 2015|[The Spirit, Gifts and Character](https://www.dropbox.com/s/k63awyct20ijsvz/2015.08.09%20-%20HS%20%235%20-%20The%20Spirit%2C%20Gifts%20and%20Character.mp3?dl=1)|Barry Oakes
