@@ -25,9 +25,12 @@ margin: 20px auto;
 padding: 0 0 0 20px;
 font-size: 20px;
 letter-spacing: -2px;
+color: #700000;
+
 }
 #header h1 a {
-color: #2B448C;
+/* color: #2B448C; */
+color: #700000;
 text-decoration: none;
 }
 #header h1 a:hover {
