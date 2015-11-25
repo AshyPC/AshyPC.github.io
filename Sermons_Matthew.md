@@ -13,6 +13,8 @@ title: AshyPC Sermons - The Saviour King
  17 May 2015|[Not How High, But How Deep](https://www.dropbox.com/s/c5sr1mrdz75op6u/2015.05.17%20-%20Matt%205%4017-48.mp3?dl=1)|Barry Oakes
   3 May 2015|[The Salt of the Earth and the Light of the World](https://www.dropbox.com/s/e4vtxynpavie3lb/2015.05.03%20Matt%205%4013-16.mp3?dl=1)|Stephen McDonald
  22 Feb 2015|[The Light Has Dawned](https://www.dropbox.com/s/x45chp13ftlo4yi/2015.02.22%20-%20Matt%204%4012-25.mp3?dl=1)|Barry Oakes
+ 15 Feb 2015|Tested and True!  |Barry Oakes (Matthew)
+  8 Feb 2015|Breaking the Silence|Barry Oakes (Matthew)
  25 Dec 2014|[Responding To Jesus' Birth Christmas Day](https://www.dropbox.com/s/50bqejs1ihl4hjj/2014.12.25%20Matt%202%401-12.mp3?dl=1)|Barry Oakes
  21 Dec 2014|[Born of a Virgin](https://www.dropbox.com/s/h941h4miu6v9ni7/2014.12.21%20Matt%201%4018-25.mp3?dl=1)|Barry Oakes
  14 Dec 2014|[God's Surprising Family Tree](https://www.dropbox.com/s/wmgf7qnzcaz9wpc/2014.12.14%20Mt%201%401-17.mp3?dl=1)|Barry Oakes

@@ -25,6 +25,8 @@ Here you will find all the sermons from Sunday gatherings in descending date ord
 16 Aug 2015|[Opposing the Holy Spirit](https://www.dropbox.com/s/w9gkm3c7to4xv35/2015.08.16%20-%20HS%20%236%20-%20Opposing%20the%20Holy%20Spirit.mp3?dl=1)|Barry Oakes
  9 Aug 2015|[The Spirit, Gifts and Character](https://www.dropbox.com/s/k63awyct20ijsvz/2015.08.09%20-%20HS%20%235%20-%20The%20Spirit%2C%20Gifts%20and%20Character.mp3?dl=1)|Barry Oakes
  2 Aug 2015|[Filled with the Spirit](https://www.dropbox.com/s/fss1zwonmzul34k/2015.08.02%20-%20HS%20%234%20-%20Filled%20with%20the%20Spirit.mp3?dl=1)|Barry Oakes
+26 Jul 2015| Moses Returns To Egypt| College Sunday Damian Meeuwissen 
+19 Jul 2015| Holy Spirit, Adoption and Sanctification|Barry Oakes (occasional)
 12 Jul 2015|[The Work of the Holy Spirit in Us](https://www.dropbox.com/s/m1xw15y4gz8nywz/2015.07.12%20-%20HS%20%233%20-%20The%20Work%20of%20the%20Holy%20Spirit%20in%20Us.mp3?dl=1)|Barry Oakes
  5 Jul 2015|[The Work of the Holy Spirit in the World](https://www.dropbox.com/s/pdnxhablbftg4is/2015.07.05%20-%20HS%20%232%20-%20THE%20WORK%20OF%20THE%20HOLY%20SPIRIT%20IN%20THE%20WORLD.mp3?dl=1)|Barry Oakes
 28 Jun 2015|[Who Is the Holy Spirit?](https://www.dropbox.com/s/ufrbxgn6ey0x19c/2015.06.28%20-%20HS%20%231%20-%20Who%20Is%20the%20Holy%20Spirit.mp3?dl=1)|Barry Oakes
@@ -47,6 +49,8 @@ Here you will find all the sermons from Sunday gatherings in descending date ord
  8 Mar 2015|[Buskers Don't Go To Heaven](https://www.dropbox.com/s/nj1ijkufc1hmg4b/2015.03.08%20-%20Matt%205%403.mp3?dl=1)|Barry Oakes
  1 Mar 2015|[Happiness Is...](https://www.dropbox.com/s/munrfiuwz0wqpye/2015.03.01%20-%20Matt%205%401-3a.mp3?dl=1)|Barry Oakes
 22 Feb 2015|[The Light Has Dawned](https://www.dropbox.com/s/x45chp13ftlo4yi/2015.02.22%20-%20Matt%204%4012-25.mp3?dl=1)|Barry Oakes
+15 Feb 2015|Tested and True!  |Barry Oakes (Matthew)
+ 8 Feb 2015|Breaking the Silence|Barry Oakes (Matthew)
  1 Feb 2015|[Suffering and Humble Service of Christ's People](https://www.dropbox.com/s/l27ixk3of8nl468/2015.02.01_1Peter5%401-11.mp3?dl=1)|Rudy Sumarno
 25 Jan 2015|[Suffering and The Call to a Life of Blessing](https://www.dropbox.com/s/3th3l2ftiy2l45b/2015.01.25_1Peter3%408-17.mp3?dl=1)|Rudy Sumarno
 18 Jan 2015|[Suffering And the Call to Live Holy](https://www.dropbox.com/s/weuj5lsee0jl5a5/2015.01.18_1Peter1%4013-2_1.mp3?dl=1)|Rudy Sumarno
