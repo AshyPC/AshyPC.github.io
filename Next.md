@@ -30,4 +30,4 @@ We try to keep formalities to a minimum (avoiding jargon), and most people simpl
 
 At present we do not have a regular Sunday evening meeting, but we periodically gather for a special time to talk to God in prayer on Sundays afternoons at 5pm.
 
-If you would like to know more about who we are and what we do, you can follow this link to read more <a href="http://ashburtonpc.org.au/about/about_us/">About Us</a>.
+If you would like to know more about who we are and what we do, you can follow this link to read more [About Us](/Who_we_are.html).
