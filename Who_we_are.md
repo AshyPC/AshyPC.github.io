@@ -24,6 +24,7 @@ Scripture alone|the Bible alone is the word of God, to be believed and obeyed.
 Faith alone|we are made right with God by faith alone.
 Christ alone|it is only through what Jesus Christ has done in his life, death and resurrection, that we may be saved.
 Grace alone|our salvation depends entirely on God’s grace.
-To the glory of God alone|so that all the glory belongs to God alone.
+To the glory of ||
+God alone|so that all the glory belongs to God alone.
  
  
