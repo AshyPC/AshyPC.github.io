@@ -5,7 +5,7 @@ title: AshyPC ermons - Sampling The Psalms & Visitors
 
 
 Date|[Sampling The Psalms Series](/images/psalms_300x225.png)| Speaker
- -----|---------------------|--------------
+ -----:|---------------------|:--------------
  13 Sep 2015|[The Gate to God](https://www.dropbox.com/s/wxm3wa62c5t2jfh/2015.09.13%20-%20Rt%20Rev%20David%20Brown.mp3?dl=1)|Rt Rev David Brown, Moderator
   6 Sep 2015|[Remembering Jesus](https://www.dropbox.com/s/btatvoafgxwfam2/2015.09.06%20-%20Remembering%20Jesus%20-%20Lk%2022%4014-23.mp3?dl=1)|Barry Oakes
  30 Aug 2015|[What is The Good Life?](https://www.dropbox.com/s/2suiefzcs0yqtsx/2015.08.30%20-%20What%20Is%20the%20Good%20Life%20-%20SMcD.mp3?dl=1)|Stephen McDonald
