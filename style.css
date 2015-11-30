@@ -19,27 +19,6 @@ a { color: #0F0FFF; }
 #wrap {
 width: 1080px;
 margin: 20px auto;
-
-/* unvisited link */
-a:link {
-    color: #0005F7;
-}
-
-/* visited link */
-a:visited {
-    color: #FF00FF;
-}
-
-/* mouse over link */
-a:hover {
-    color: #00FF00;
-}
-
-/* selected link */
-a:active {
-   
-}
-
 }
 
 #header h1 {
@@ -94,9 +73,14 @@ text-decoration: none;
 font-weight: 600;
 }
 #menu ul li a:hover {
-color: #fff;
+color: #00FF00;
 text-decoration: underline;
 }
+#menu ul li a:visited {
+color: #FF00FF;
+text-decoration: underline;
+}
+
 #menu .current {
     font-size: 16px;
 	background: #2B448C;
@@ -152,6 +136,25 @@ text-decoration: underline;
 #sermons td.alt td {
 	width: 306px;
 	width: 274px;	
+}
+/* unvisited link */
+a:link {
+    color: #0005F7;
+}
+
+/* visited link */
+a:visited {
+    color: #FF00FF;
+}
+
+/* mouse over link */
+a:hover {
+    color: #00FF00;
+}
+
+/* selected link */
+a:active {
+   
 }
 
 
