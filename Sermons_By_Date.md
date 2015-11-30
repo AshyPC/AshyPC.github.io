@@ -3,11 +3,8 @@ layout: wide_sermons_new
 title: AshyPC Sermons Chronological
 ---
 
-# Sermons
 
-Here you will find all the sermons from Sunday gatherings in descending date order.
-
-The audio files will be automatically downloaded to your hard drive; once there, you can click on the downloaded file to listen, using your own computer's player.
+## All sermons in descending date order:
 
 
  Date|[Link]| Speaker
