@@ -4,7 +4,7 @@ title: AshyPC Sermons - Leadership
 ---
 
 
- Date|[Leadership & The Word of God Series](/images/Leadership_Word_300.png)| Speaker
+ Date|[Leadership & The Word of God Series](https://www.dropbox.com/s/webuzt2t95d6epu/Leadership_Word_300.png?raw=1)| Speaker
  -----:|---------------------|:--------------
 15 Nov 2015|[Heart, Not Hands](https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?dl=0)|Barry Oakes
  8 Nov 2015| |Is Your Heart In It?|Barry Oakes

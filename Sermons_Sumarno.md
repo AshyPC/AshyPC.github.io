@@ -4,7 +4,7 @@ title: AshyPC Sermons - 1 Peter
 ---
 
 
- Date|[Suffering & The People of God Series](/images/stone_cross_suffering_300.png)| Speaker
+ Date|[Suffering & The People of God Series](https://www.dropbox.com/s/8e3rxgiic3m9jdl/stone_cross_suffering_300.png?raw=1)| Speaker
  -----:|---------------------|:--------------
   1 Feb 2015|[Suffering and Humble Service of Christ's People](https://www.dropbox.com/s/l27ixk3of8nl468/2015.02.01_1Peter5%401-11.mp3?dl=1)|Rudy Sumarno
  25 Jan 2015|[Suffering and The Call to a Life of Blessing](https://www.dropbox.com/s/3th3l2ftiy2l45b/2015.01.25_1Peter3%408-17.mp3?dl=1)|Rudy Sumarno

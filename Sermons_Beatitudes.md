@@ -4,7 +4,7 @@ title: AshyPC Sermons - Beatitudes
 ---
 
 
- Date|[The Beatitudes Series](/images/beatitudes_200.png)| Speaker
+ Date|[The Beatitudes Series](https://www.dropbox.com/s/11ypn3h6jwf60ql/beatitudes_200.png?raw=1)| Speaker
  -----:|---------------------|:--------------
  10 May 2015|[All This, and Persecution](https://www.dropbox.com/s/1ai70c6bb0o8k0g/2015.05.10%20Matt%205%4010-12.mp3?dl=1)|Barry Oakes 
  26 Apr 2015|[Blessed are the Peacemakers](https://www.dropbox.com/s/275t3973cx2117m/2015.04.26%20Matt%205%409.mp3?dl=1)|Barry Oakes
