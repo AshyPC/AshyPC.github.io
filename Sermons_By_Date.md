@@ -7,6 +7,9 @@ title: AshyPC Sermons Chronological
 
 Here you will find all the sermons from Sunday gatherings in descending date order.
 
+The audio files will be automatically downloaded to your hard drive; once there, you can click on the downloaded file to listen, using your own computer's player.
+
+
  Date|[Link]| Speaker
  -----:|---------------------|:--------------
 15 Nov 2015|[Heart, Not Hands](https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?dl=0)|Barry Oakes
