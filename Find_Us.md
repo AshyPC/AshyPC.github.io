@@ -11,14 +11,10 @@ title: AshyPC Find_Us
 
 ## Public Transport
 
-<br>
-
 ### SmartBus 903 travels along Warrigal Road north and south.
 
 ### Ventura Route 734 buses travel east and west on High Street/High Street Road.
 
 ### Bus stops are located at the High Street Road/Warrigal Road intersection, a short walk from the church.
-
-<br>
 
 ### Ashburton Railway Station is about 10-15 minutes walk (exit to the east, away from the shops)
