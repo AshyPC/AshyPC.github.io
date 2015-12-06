@@ -96,9 +96,11 @@ text-decoration: underline;
 }
 
 
-#cookbooks {
+#scripture {
     background: #F9D298;
 	font-size: 12px;
+	text-align: right;
+	text-decoration: italic;
 	width: 580px;
 	padding: 0 0;
 	border: none;
