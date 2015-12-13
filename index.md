@@ -20,3 +20,4 @@ _He set my feet on a rock_
 _and gave me a firm place to stand._
 
 _Psalm 40:2_
+
