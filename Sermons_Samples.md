@@ -4,7 +4,7 @@ title: AshyPC ermons - Sampling The Psalms & Visitors
 ---
 
 
-Date|[Sampling The Psalms Series & Special Occasions](https://www.dropbox.com/s/aftsicxvbkqxaae/psalms_300x225.png?raw=1)| Speaker
+Date|Sampling The Psalms Series & Special Occasions| Speaker
  -----:|---------------------|:--------------
  13 Sep 2015|[The Gate to God](https://www.dropbox.com/s/wxm3wa62c5t2jfh/2015.09.13%20-%20Rt%20Rev%20David%20Brown.mp3?dl=1)|Rt Rev David Brown, Moderator
   6 Sep 2015|[Remembering Jesus](https://www.dropbox.com/s/btatvoafgxwfam2/2015.09.06%20-%20Remembering%20Jesus%20-%20Lk%2022%4014-23.mp3?dl=1)|Barry Oakes

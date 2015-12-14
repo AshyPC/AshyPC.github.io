@@ -4,7 +4,7 @@ title: AshyPC Sermons - The Saviour King
 ---
 
 
- Date|[The Gospel of Matthew: The Saviour King Series](https://www.dropbox.com/s/2pxh6j0skfgh2qr/matthew_300x225.png?raw=1)| Speaker
+ Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
  14 Jun 2015|[Only Two Choices](https://www.dropbox.com/s/rf4hp3ujbzed0fg/2015.06.14%20-%20Matt%207%4013-29.mp3?dl=1)|Barry Oakes
   7 Jun 2015|[Seeing More Clearly](https://www.dropbox.com/s/iecktefqrcvc7ij/2015.06.07%20-%20Matt%207%401-12.mp3?dl=1)|Barry Oakes
