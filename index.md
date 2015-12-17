@@ -5,6 +5,8 @@ title: AshyPC Home
 
 # Welcome to Ashburton Presbyterian Church!
 
+[Merry Christmas from Ashburton Presbyterian Church 2015](https://www.dropbox.com/s/by6ndgw7od6iqjx/2015_Christmas_flyer.png?raw=1)
+
 We are a group of ordinary people who know, love and follow Jesus. We believe He is at work in our world through the ordinary and we desire to be part of that work.
 
 Our focus is "Sharing Jesus' love with our community." We are passionate about people learning about Jesus and coming to know Him. We want to spread His fame. This begins with our own lives, and extends into our homes, workplaces, schools, TAFEs and universities, our businesses, shopping centres, and throughout our city.
