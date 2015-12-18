@@ -265,3 +265,62 @@ color: #666;
 font-size: 11px;
 }
 #footer  a { color: #666; }
+
+
+/* Responsive stuff
+
+#wrap {
+width: 100%;
+margin: 20px auto;
+}
+
+
+.right {
+float: right;
+width: 20%;
+text-align: justify;
+padding: 0 20px 10px 10px;
+}
+
+.left {
+float: left;
+width: 20%;
+padding: 10px;
+
+border-right: 1px solid #aaa;  Optional
+
+.middle {
+width: 60%;
+text-align: justify; Optional
+padding: 20px 20px 10px 10px;
+margin-left: 23%; OR auto
+overflow: hidden;
+
+
+Menus next
+
+Other tweaks for font size and padding
+
+
+Assumes font size already set for tiny space of mobiles, then increased for larger acreage:
+
+.c1 {
+  padding: 10px;
+  width: 100%;
+}
+
+@media (min-width: 500px) {
+  .c1 {
+    padding: 20px;
+    font-size: 1.5em;
+  }
+}
+
+@media (min-width: 800px) {
+  .c1 {
+    padding: 40px;
+    font-size: 2em;
+  }
+}
+
+*/
