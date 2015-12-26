@@ -11,9 +11,14 @@ line-height: 18px;
 color: #333333;
 }
 
+/* img { border: none; } */
+img { 
+    border: none; 
+    width: 100%;
+    height: auto;
+    width: auto\9; /* ie8 */
+}
 
-
-img { border: none; }
 a { color: #0F0FFF; }
 
 #wrap {
@@ -239,8 +244,8 @@ color: #0000FF;
 .left {
 float: left;
 width: 15%;
-/* width: 200px; reduced from 20% as 200px to 15% padding down from 10 to 0px */
-padding: 0px;
+/* width: 200px; reduced from 20% as 200px to 15% padding down from 10 to 5px */
+padding: 5px;
 
 /* border-right: 1px solid #aaa;  */
 }
@@ -311,6 +316,15 @@ padding: 20px 20px 10px 10px;
 margin-left: 23%; OR auto
 overflow: hidden;
 
+
+Images
+
+img { 
+border: none; 
+    width: 100%;
+    height: auto;
+    width: auto\9; /* ie8 
+}
 
 Menus next
 
