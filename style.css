@@ -149,12 +149,14 @@ text-decoration: underline;
 }
 /* unvisited link */
 a:link {
-    color: #0005F7;
+    /* color: #0005F7; */
+	color; #0000EE;
 }
 
 /* visited link */
 a:visited {
-    color: #FF00FF;
+    /* color: #FF00FF; */
+	color; #551A8B;
 }
 
 /* mouse over link */
