@@ -504,4 +504,42 @@ HTML for menu above (includes toggle button to show/hide menu on small screens)
 </html>
 
 
+Style commands for detecting media size and orientation
+
+Basic screen sizes 
+a) above 1024px screens and laptops
+b) 768-1023px iPad and Samsung larger tablets, phablets
+c) below 767px iPhone, Droid phones Blackberry
+d) below 320px phones in portrait mode
+
+@media only screen and (min-width : 1024px) {}
+  @media only screen and (min-width : 768px) and (max-width : 1023px) {}
+  @media only screen and (max-width : 767px) {}
+
+(orientation : portrait) {}
+(orientation : landscape) {}
+
+
+iPad horizontal specific styles
+  @media only screen and (width : 1024px) and (orientation : landscape) {}
+
+Droid horizontal specific styles
+  @media only screen and (width : 854px) and (orientation : landscape) {}
+
+iPad vertical specific styles
+  @media only screen and (width : 768px) and (orientation : portrait) {}
+
+iPhone horizontal, Droid vertical, Torch horizontal specific styles
+  @media only screen and (width : 480px) and (orientation : landscape) {}
+
+Torch vertical specific styles
+  @media only screen and (width : 360px) and (orientation : portrait) {}
+
+iPhone vertical, Blackberry Curve specific styles
+  @media only screen and (width : 320px) and (orientation : portrait) {}
+
+iPhone 4 specific styles (retina display)
+  @media only screen and (-webkit-min-device-pixel-ratio : 1.5), only screen and (min-device-pixel-ratio : 1.5) {}
+  
+
 */
