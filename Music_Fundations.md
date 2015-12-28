@@ -1,5 +1,5 @@
 ---
-layout: wider
+layout: wider_right
 title: AshyPC Music_Program
 ---
 
