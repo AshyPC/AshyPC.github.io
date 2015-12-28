@@ -5,9 +5,10 @@
 
 body {
 background: #fff;
-font-family: serif;
+font: 16px/125% "Garamond" "Georgia" "Times" serif
+/* font-family: serif;
 font-size: 16px;
-line-height: 20px;
+line-height: 20px; */
 color: #333333;
 }
 
