@@ -15,6 +15,7 @@ You don't have to be a Presbyterian to join with us, or even be certain about wh
 
 We would love to meet you, whether you are looking for a new church family, are on holiday, or simply wanting to find out more about the relevance of Jesus.
 
+
 ### What to expect...
 When you come to our <b>Sunday gathering</b> you will find that:
 
