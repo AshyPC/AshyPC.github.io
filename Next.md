@@ -18,12 +18,12 @@ We would love to meet you, whether you are looking for a new church family, are 
 ### What to expect...
 When you come to our <b>Sunday gathering</b> you will find that:
 
-- we sing songs of praise (a mix of contemporary songs and older hymns);
-- we talk to God in prayer;
-- we read God's word in the Bible and listen to a Bible talk (understanding that God speaks through His word, engaging our minds, hearts and wills).
-- on the first Sunday of each month (except January) we remember Jesus' death and resurrection as we celebrate the Lord's Supper (Communion) together.
+* we sing songs of praise (a mix of contemporary songs and older hymns);
+* we talk to God in prayer;
+* we read God's word in the Bible and listen to a Bible talk (understanding that God speaks through His word, engaging our minds, hearts and wills).
+* on the first Sunday of each month we remember Jesus' death and resurrection as we celebrate the Lord's Supper (Communion) together.
 
-We believe that church is for everyone, so we also seek to include children. Our church is wheelchair and pram friendly. You will find extra space for families with young kids and there is a cry-room facility (where you can still see and hear what is happening), should you need it.
+We believe that church is for everyone, so we also seek to include children. Our church is wheelchair and pram friendly. You will find extra space for families with young children and there is a cry-room facility (where you can still see and hear what is happening), should you need it.
 
 After our Sunday gathering has finished we spend some time together for a cuppa and chat.
 We try to keep formalities to a minimum (avoiding jargon), and most people simply dress "neat casual". We also seek to avoid emotional hype or acting like we're perfect or we've got everything together - we're simply ordinary people who love and follow Jesus.
