@@ -65,7 +65,7 @@ line-height: 60px;
 /* background: #431a54;  purple as shadow of cross */
 /* background: #18596B;  grey-green of welcome banner */
 /* background: #D2141E;  Red for Christmas 2015 */ 
-background: #700000;  /* Burgundy 
+/* background: #700000;  /* Burgundy 
 
 font-size: 1.25em;
 
@@ -130,7 +130,7 @@ li a {
 	line-height: 50px;
 	font-family: "Helvetica Neue", Helvetica, Arial, sans-serif;
 	color: #fff;
-	background: #2f3036;
+	background: #700000;
 	text-decoration: none;
 }
 
@@ -175,6 +175,12 @@ li ul li a {
 ul li a:hover + .hidden, .hidden:hover {
 	display: block;
 }
+
+#menu .current {
+    font-size: 1em;
+	background: #2B448C;
+}
+
 
 /*Style 'show menu' label button and hide it by default */
 .show-menu {
