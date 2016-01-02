@@ -5,9 +5,7 @@ title: AshyPC Home
 
 # Welcome to Ashburton Presbyterian Church!
 
-<img src="https://www.dropbox.com/s/o227h4m1bpysoif/2015_Christmas_flyer_360.png?raw=1" style="align:center" alt="Merry Christmas from Ashburton Presbyterian Church 2015" />
 
-<img src="https://www.dropbox.com/s/5jd7tpshgdbrxbg/2015_Christmas_flyer_reverse_360.jpg?raw=1" style="align:center" alt="Christmas Preaching Program" />
 
 
 We are a group of ordinary people who know, love and follow Jesus. We believe He is at work in our world through the ordinary and we desire to be part of that work.
