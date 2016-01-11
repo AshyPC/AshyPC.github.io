@@ -6,6 +6,7 @@ title: AshyPC Sermons - Christmas 2015
 
  Date|Advent & Christmas 2015| Speaker
  -----:|---------------------|:--------------
+10 Jan 2016|[Remember What God Has Done](https://www.dropbox.com/s/wg8gcpu7idj2ob8/2016.01.10_Mark14_1-26_AlanEvery.mp3?raw=1)|Alan Every 
  3 Jan 2016|[Planning For Growth](https://www.dropbox.com/s/vzcp74y9wcwi42c/2016.01.03%20-%20Philippians%202%401-18.mp3?raw=1)|Barry Oakes 
 27 Dec 2015| [Where Is Hope?]|Barry Oakes
 25 Dec 2015|[Angels, Shepherds and a King](https://www.dropbox.com/s/kwx2r76w2asqlvs/2015.12.25%20-%20Advent%20%233.mp3?raw=1)|Barry Oakes
