@@ -9,8 +9,9 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
  ----------:|---------------------|:--------------
+17 Jan 2016|[Love Him or Hate Him](https://www.dropbox.com/s/hep3vbb213fk8lm/2016.01.17%20-%201%20Sam%2018-19.mp3?raw=1)|Barry Oakes 
 10 Jan 2016|[Remember What God Has Done](https://www.dropbox.com/s/wg8gcpu7idj2ob8/2016.01.10_Mark14_1-26_AlanEvery.mp3?raw=1)|Alan Every 
-3 Jan 2016|[Planning For Growth](https://www.dropbox.com/s/vzcp74y9wcwi42c/2016.01.03%20-%20Philippians%202%401-18.mp3?raw=1)|Barry Oakes 
+ 3 Jan 2016|[Planning For Growth](https://www.dropbox.com/s/vzcp74y9wcwi42c/2016.01.03%20-%20Philippians%202%401-18.mp3?raw=1)|Barry Oakes 
 27 Dec 2015| [Where Is Hope?]|Barry Oakes
 25 Dec 2015|[Angels, Shepherds and a King](https://www.dropbox.com/s/kwx2r76w2asqlvs/2015.12.25%20-%20Advent%20%233.mp3?raw=1)|Barry Oakes
 20 Dec 2015|[Where Is Hope?](https://www.dropbox.com/s/lauk1vcctk362pb/2015.12.20%20-%20Advent%20%232.mp3?raw=1)|Barry Oakes
