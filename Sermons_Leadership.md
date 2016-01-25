@@ -6,6 +6,7 @@ title: AshyPC Sermons - Leadership
 
  Date|Leadership & The Word of God Series| Speaker
  -----:|---------------------|:--------------
+24 Jan 2016|[Covenant: You Can Depend On It](https://www.dropbox.com/s/6ha8j1pfutb732v/2016.01.24%20-%201%20Sam%2020.mp3?raw=1)|Barry Oakes  
 17 Jan 2016|[Love Him or Hate Him](https://www.dropbox.com/s/hep3vbb213fk8lm/2016.01.17%20-%201%20Sam%2018-19.mp3?raw=1)|Barry Oakes 
 29 Nov 2015|[The King We Need](https://www.dropbox.com/s/nrx8acqnavkob9i/2015.11.29%20-%201%20Sam%2017.mp3?raw=1)|Barry Oakes
 15 Nov 2015|[Heart, Not Hands](https://www.dropbox.com/s/lzxgvznchvksh5m/2015.11.15%20-%201%20Sam%2015.mp3?raw=1)|Barry Oakes
