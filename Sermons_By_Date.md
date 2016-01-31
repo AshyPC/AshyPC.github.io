@@ -8,7 +8,7 @@ title: AshyPC Sermons Chronological
 
 
  Date|Link| Speaker
- ----------:|---------------------|:--------------
+-----------:|---------------------|:--------------
 28 Feb 2016|[The LORD's King Doesn't Grasp at Greatness] 
 21 Feb 2016|[Folly Abounding & Folly Averted]
 14 Feb 2016|[Guest Preacher]|| Kester Hamilton AFES Deakin Uni
