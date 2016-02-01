@@ -13,7 +13,7 @@ title: AshyPC Sermons Chronological
 21 Feb 2016|[Folly Abounding & Folly Averted]
 14 Feb 2016|[Guest Preacher]|| Kester Hamilton AFES Deakin Uni
  7 Feb 2016|[The Merciful King]
-31 Jan 2016|[The Pattern of Life in a Broken World] 
+31 Jan 2016|[The Pattern of Life in a Broken World](https://www.dropbox.com/s/2lshs7tdawhv757/2016.01.31%20-%201%20Sam%2021-22.mp3?raw=1)|Barry Oakes 
 24 Jan 2016|[Covenant: You Can Depend On It](https://www.dropbox.com/s/6ha8j1pfutb732v/2016.01.24%20-%201%20Sam%2020.mp3?raw=1)|Barry Oakes  
 17 Jan 2016|[Love Him or Hate Him](https://www.dropbox.com/s/hep3vbb213fk8lm/2016.01.17%20-%201%20Sam%2018-19.mp3?raw=1)|Barry Oakes 
 10 Jan 2016|[Remember What God Has Done](https://www.dropbox.com/s/wg8gcpu7idj2ob8/2016.01.10_Mark14_1-26_AlanEvery.mp3?raw=1)|Alan Every 
