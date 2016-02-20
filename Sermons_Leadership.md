@@ -7,7 +7,7 @@ title: AshyPC Sermons - Leadership
  Date|Leadership & The Word of God Series| Speaker
  -----:|---------------------|:--------------
 28 Feb 2016|[The LORD's King Doesn't Grasp at Greatness] 
-21 Feb 2016|[Folly Abounding & Folly Averted]
+21 Feb 2016|[Learning to Trust]
  7 Feb 2016|[Resting on God's Word](https://www.dropbox.com/s/b19o76eqk4zvw6d/2016.02.07%20-%20Resting%20in%20God%27s%20Word.mp3?raw=1)|Barry Oakes 
 31 Jan 2016|[The Pattern of Life in a Broken World](https://www.dropbox.com/s/2lshs7tdawhv757/2016.01.31%20-%201%20Sam%2021-22.mp3?raw=1)|Barry Oakes
 24 Jan 2016|[Covenant: You Can Depend On It](https://www.dropbox.com/s/6ha8j1pfutb732v/2016.01.24%20-%201%20Sam%2020.mp3?raw=1)|Barry Oakes  
