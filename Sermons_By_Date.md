@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+13 Mar 2016|[Who is this Man, Jesus?](https://www.dropbox.com/s/auj4jy613jqznin/2016.03.13_Alan_Every_Luke7_36-50.mp3?raw=1)|Alan Every
  6 Mar 2016|[Hope in Hopelessness](https://www.dropbox.com/s/awaydt6ok0ye1ri/2016.03.06%20-%201%20Samuel%2027-28.mp3?raw=1)|Barry Oakes 
 28 Feb 2016|[Encouragement to Believe](https://www.dropbox.com/s/jz8pe7309d3tn61/2016.02.28%20-%201%20Samuel%2026.mp3?raw=1)|Barry Oakes 
 21 Feb 2016|[Learning To Trust](https://www.dropbox.com/s/tgd99sb3mopm3xi/2016.02.21%20-%201%20Samuel%2025.mp3?raw=1)|Barry Oakes
