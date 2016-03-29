@@ -9,6 +9,9 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+27 Mar 2016| [Life Wins Out! Easter Special] (https://www.dropbox.com/s/e9mwgfea2jf0r59/2016.03.27%20-%20Life%20Wins%20Out.mp3?raw=1)|Barry Oakes
+25 Mar 2016| [Why did Jesus have to die?] Good Friday Special (https://www.dropbox.com/s/f53bbuz1yqnn3z0/2016.03.25%20-%20Why%20Did%20Jesus%20Have%20to%20Die.mp3?raw=1)|Barry Oakes
+20 Mar 2016| [God's Quiet Presence]|Barry Oakes
 13 Mar 2016|[Who is this Man, Jesus?](https://www.dropbox.com/s/auj4jy613jqznin/2016.03.13_Alan_Every_Luke7_36-50.mp3?raw=1)|Alan Every
 14 Feb 2016|[The Sickness that Leads to Praise](https://www.dropbox.com/s/9as0ifua97fv25u/Psalm30.mp3?raw=1)| Kester Hamilton AFES Deakin Uni
 10 Jan 2016|[Remember What God Has Done](https://www.dropbox.com/s/wg8gcpu7idj2ob8/2016.01.10_Mark14_1-26_AlanEvery.mp3?raw=1)|Alan Every 
