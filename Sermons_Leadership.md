@@ -6,7 +6,7 @@ title: AshyPC Sermons - Leadership
 
  Date|Leadership & The Word of God Series| Speaker
  -----:|---------------------|:--------------
- 3 Apr 2016|[For the Rise and Fall of Many] (https://www.dropbox.com/s/u1ang1q42swghc7/2016.04.03%20-%201%20Samuel%2031.mp3?raw=1)|Barry Oakes
+ 3 Apr 2016|[For the Rise and Fall of Many](https://www.dropbox.com/s/u1ang1q42swghc7/2016.04.03%20-%201%20Samuel%2031.mp3?raw=1)|Barry Oakes
  6 Mar 2016|[Hope in Hopelessness](https://www.dropbox.com/s/awaydt6ok0ye1ri/2016.03.06%20-%201%20Samuel%2027-28.mp3?raw=1)|Barry Oakes 
 28 Feb 2016|[Encouragement to Believe](https://www.dropbox.com/s/jz8pe7309d3tn61/2016.02.28%20-%201%20Samuel%2026.mp3?raw=1)|Barry Oakes 
 21 Feb 2016|[Learning to Trust](https://www.dropbox.com/s/tgd99sb3mopm3xi/2016.02.21%20-%201%20Samuel%2025.mp3?raw=1)|Barry Oakes
