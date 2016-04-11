@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+ 10 Apr 2016|[Encountering Authority](https://www.dropbox.com/s/eg2d63t3f37mw9f/2016.04.10%20-%20Matthew%208%401-22.mp3?raw=1)|Barry Oakes 
  14 Jun 2015|[Only Two Choices](https://www.dropbox.com/s/rf4hp3ujbzed0fg/2015.06.14%20-%20Matt%207%4013-29.mp3?raw=1)|Barry Oakes
   7 Jun 2015|[Seeing More Clearly](https://www.dropbox.com/s/iecktefqrcvc7ij/2015.06.07%20-%20Matt%207%401-12.mp3?raw=1)|Barry Oakes
  31 May 2015|[In ... We Trust](https://www.dropbox.com/s/r2ul2lc72emkt63/2015.05.31%20-%20Matt%206%4019-34.mp3?raw=1)|Barry Oakes

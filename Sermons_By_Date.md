@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+10 Apr 2016|[Encountering Authority](https://www.dropbox.com/s/eg2d63t3f37mw9f/2016.04.10%20-%20Matthew%208%401-22.mp3?raw=1)|Barry Oakes 
  3 Apr 2016|[For the Rise and Fall of Many](https://www.dropbox.com/s/u1ang1q42swghc7/2016.04.03%20-%201%20Samuel%2031.mp3?raw=1)|Barry Oakes
 27 Mar 2016|[Life Wins Out! Easter Special](https://www.dropbox.com/s/e9mwgfea2jf0r59/2016.03.27%20-%20Life%20Wins%20Out.mp3?raw=1)|Barry Oakes
 25 Mar 2016|[Why did Jesus have to die? Good Friday Special](https://www.dropbox.com/s/f53bbuz1yqnn3z0/2016.03.25%20-%20Why%20Did%20Jesus%20Have%20to%20Die.mp3?raw=1)|Barry Oakes

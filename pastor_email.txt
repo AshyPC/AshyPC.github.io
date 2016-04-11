@@ -1,0 +1,17 @@
+Mail application "Postbox®" can automatically detect this email account's settings.
+
+Choose to set up a new email account in "Postbox®".
+When "Postbox®" prompts you for the email address, enter "pastor@ashburtonpc.org.au".
+Use your email account password as the password. [BarryOakes5000]
+If the auto-configuration fails, please set up the account using the manual settings.
+
+Manual Settings:
+Secure SSL/TLS Settings (Recommended)
+Username:	pastor@ashburtonpc.org.au
+Password:	Use the email account password. [BarryOakes5000]
+Incoming Server:	cbr1lcp27.webhosting.openconnect.com.au
+IMAP Port: 993
+POP3 Port: 995
+Outgoing Server:	cbr1lcp27.webhosting.openconnect.com.au
+SMTP Port: 465
+Authentication is required for IMAP, POP3, and SMTP.
