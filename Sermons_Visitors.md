@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+24 Apr 2016|[The Call of The King](https://www.dropbox.com/s/nzsv53413inzzi0/2016.04.24%20-%20Matthew%2011%4020-30.mp3?raw=1)|Peter Sorrenson AFES
 27 Mar 2016| [Life Wins Out! Easter Special] (https://www.dropbox.com/s/e9mwgfea2jf0r59/2016.03.27%20-%20Life%20Wins%20Out.mp3?raw=1)|Barry Oakes
 25 Mar 2016| [Why did Jesus have to die?] Good Friday Special (https://www.dropbox.com/s/f53bbuz1yqnn3z0/2016.03.25%20-%20Why%20Did%20Jesus%20Have%20to%20Die.mp3?raw=1)|Barry Oakes
 20 Mar 2016| [God's Quiet Presence]|Barry Oakes
