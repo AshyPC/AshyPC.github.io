@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+ 1 May 2016|[Jesus' Ministry Strategy](https://www.dropbox.com/s/5q6vmppw7nqil8f/2016.05.01%20-%20Matthew%208%4028-9%4013.mp3?raw=1)|Barry Oakes
 24 Apr 2016|[The Call of The King](https://www.dropbox.com/s/nzsv53413inzzi0/2016.04.24%20-%20Matthew%2011%4020-30.mp3?raw=1)|Peter Sorrenson AFES
 17 Apr 2016|[Who is in the Boat?](https://www.dropbox.com/s/8w1os58xdalytfg/2016.04.17%20-%20Matthew%208%4023-27.mp3?raw=1)|Barry Oakes
 10 Apr 2016|[Encountering Authority](https://www.dropbox.com/s/eg2d63t3f37mw9f/2016.04.10%20-%20Matthew%208%401-22.mp3?raw=1)|Barry Oakes 
