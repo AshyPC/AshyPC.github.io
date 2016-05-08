@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+ 8 May 2016|[Enlisted in God's army](https://www.dropbox.com/s/e5fgewwm3qi94ct/2016-05-08_Martin_Pakula_Numbers_1-2.mp3?raw=1)|Martin Pakula AFES Deakin
  1 May 2016|[Jesus' Ministry Strategy](https://www.dropbox.com/s/5q6vmppw7nqil8f/2016.05.01%20-%20Matthew%208%4028-9%4013.mp3?raw=1)|Barry Oakes
 24 Apr 2016|[The Call of The King](https://www.dropbox.com/s/nzsv53413inzzi0/2016.04.24%20-%20Matthew%2011%4020-30.mp3?raw=1)|Peter Sorrenson AFES
 17 Apr 2016|[Who is in the Boat?](https://www.dropbox.com/s/8w1os58xdalytfg/2016.04.17%20-%20Matthew%208%4023-27.mp3?raw=1)|Barry Oakes
