@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 -----------:|---------------------|:--------------
+15 May 2016|[The Burden of Violence](https://www.dropbox.com/s/4yxii5l0z13kg11/2016.05.15_Jared_Hood_Habakkuk_1.mp3?raw=1)|Rev Jared Hood PTC
  8 May 2016|[Enlisted in God's army](https://www.dropbox.com/s/e5fgewwm3qi94ct/2016-05-08_Martin_Pakula_Numbers_1-2.mp3?raw=1)|Martin Pakula AFES Deakin
 24 Apr 2016|[The Call of The King](https://www.dropbox.com/s/nzsv53413inzzi0/2016.04.24%20-%20Matthew%2011%4020-30.mp3?raw=1)|Peter Sorrenson AFES
 27 Mar 2016|[Life Wins Out! Easter Special](https://www.dropbox.com/s/e9mwgfea2jf0r59/2016.03.27%20-%20Life%20Wins%20Out.mp3?raw=1)|Barry Oakes
