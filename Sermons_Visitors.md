@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+ 5 Jun 2016|[Heart trouble - Cured!](https://www.dropbox.com/s/ll0cq1duwvos81m/2016.06.05_John14%401-14_DavidReid.mp3?raw=1)|David Reid
 29 May 2016|[Listening & Doing](https://www.dropbox.com/s/nenul8wsqj2g16h/2016.05.29_Luke10%4038-42_TonyBird.mp3?raw=1)|Rev Tony Bird
 22 May 2016|[Forgiveness](https://www.dropbox.com/s/6eixjm998epcc69/2016.05.22_TonyBird_Matt18_21_35.mp3?raw=1)|Rev Tony Bird
 15 May 2016|[The Burden of Violence](https://www.dropbox.com/s/4yxii5l0z13kg11/2016.05.15_Jared_Hood_Habakkuk_1.mp3?raw=1)|Rev Jared Hood PTC
