@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+19 Jun 2016|[A Problem Revisited](https://www.dropbox.com/s/hjonob73yck6rg0/2016.06.19_Habakkuk1%4012_JaredHood.mp3?raw=1)|Rev Jared Hood
 12 Jun 2016|[Firstborn Priests Serving God Fulltime](https://www.dropbox.com/s/42kyi0e4y81yyae/2016.06.12_Numbers3%401-16_MartinPakula.mp3?raw=1)|Martin Pakula
  5 Jun 2016|[Heart trouble - Cured!](https://www.dropbox.com/s/ll0cq1duwvos81m/2016.06.05_John14%401-14_DavidReid.mp3?raw=1)|David Reid
 29 May 2016|[Listening & Doing](https://www.dropbox.com/s/nenul8wsqj2g16h/2016.05.29_Luke10%4038-42_TonyBird.mp3?raw=1)|Rev Tony Bird
