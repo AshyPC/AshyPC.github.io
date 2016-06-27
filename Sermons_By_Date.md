@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+26 Jun 2016|[Working With God's Plans](https://www.dropbox.com/s/ec5omp1faaka8y0/2016.06.26_Matt%209%4014-17.mp3?raw=1)|Barry Oakes
 19 Jun 2016|[A Problem Revisited](https://www.dropbox.com/s/hjonob73yck6rg0/2016.06.19_Habakkuk1%4012_JaredHood.mp3?raw=1)|Rev Jared Hood
 12 Jun 2016|[Firstborn Priests Serving God Fulltime](https://www.dropbox.com/s/42kyi0e4y81yyae/2016.06.12_Numbers3%401-16_MartinPakula.mp3?raw=1)|Martin Pakula
  5 Jun 2016|[Heart trouble - Cured!](https://www.dropbox.com/s/ll0cq1duwvos81m/2016.06.05_John14%401-14_DavidReid.mp3?raw=1)|David Reid 

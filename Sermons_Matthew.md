@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+ 26 Jun 2016|[Working With God's Plans](https://www.dropbox.com/s/ec5omp1faaka8y0/2016.06.26_Matt%209%4014-17.mp3?raw=1)|Barry Oakes
   1 May 2016|[Jesus' Ministry Strategy](https://www.dropbox.com/s/5q6vmppw7nqil8f/2016.05.01%20-%20Matthew%208%4028-9%4013.mp3?raw=1)|Barry Oakes
  17 Apr 2016|[Who is in the Boat?](https://www.dropbox.com/s/8w1os58xdalytfg/2016.04.17%20-%20Matthew%208%4023-27.mp3?raw=1)|Barry Oakes
  10 Apr 2016|[Encountering Authority](https://www.dropbox.com/s/eg2d63t3f37mw9f/2016.04.10%20-%20Matthew%208%401-22.mp3?raw=1)|Barry Oakes 
