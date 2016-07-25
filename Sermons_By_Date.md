@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+24 Jul 2016|[Marriage?](https://www.dropbox.com/s/bci7c5nx8o3xpcf/2016.07.24_Marriage_1.mp3?raw=1)|Barry Oakes
 17 Jul 2016|[Counting the Cost of Mission](https://www.dropbox.com/s/w2vnvn5h5jk46fy/2016.07.17_Matthew_9%4035-11%401_%232.mp3?raw=1) |Barry Oakes
 10 Jul 2016|[Compassion's Ultimate Concern](https://www.dropbox.com/s/1p7mvyawljlv4bx/2016.07.10_Matthew_9%4035-11%401.mp3?raw=1)|Barry Oakes
  3 Jul 2016|[Authority, Faith & Compassion](https://www.dropbox.com/s/p3h6kehq73yqtgu/2016.07.03_Matthew_9%4018-34.mp3?raw=1)|Barry Oakes
