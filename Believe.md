@@ -13,15 +13,15 @@ There is only one God, who exists in three persons: Father, Son and Spirit, in p
 
 ## The Bible…
 
-The Bible, as originally given, is the God-breathed and infallible word of God. This precious, life-giving word is sufficient for our knowledge of God and the supreme authority in all matters of faith and conduct.
+The Bible, as originally given, is the God-breathed and infallible Word of God. This precious, life-giving Word is sufficient for our knowledge of God and the supreme authority in all matters of faith and conduct.
 
 ## Humanity…
 
-All people, men and women, are created in God’s image and are called to love God with all their beings. However, since the fall, all people are guilty of rebellion against God and human nature is thoroughly corrupted by sin. This makes everyone subject to God’s righteous anger and condemnation
+All people, men and women, are created in God’s image and are called to love God with all their beings. However, since the fall, all people are guilty of rebellion against God and human nature is thoroughly corrupted by sin. This makes everyone subject to God’s rightful anger and condemnation.
 
 ## Jesus Christ…
 
-God demonstrated his love towards us by sending his Son, the Lord Jesus Christ, who is both fully God and fully man. He was conceived by the Holy Spirit, born of a virgin, and lived a sinless life in obedience to the Father. He died on the cross, rose from the dead, and in his resurrected body ascended into heaven where he is exalted as ruler over all.
+God demonstrated his love towards us by sending his Son, the Lord Jesus Christ, who is both fully God and fully man. He was conceived by the Holy Spirit, born of a virgin, and lived a sinless life in obedience to the Father. He died on the cross, rose from the dead, and in His resurrected body ascended into heaven where He is exalted as ruler over all.
 
 ## Salvation…
 
@@ -33,8 +33,8 @@ The Holy Spirit has been sent from heaven by the Father and the Son. He enables 
 
 ## The People of God…
 
-The Lord Jesus Christ builds the church, his people, through the proclamation and teaching of his word. All who have been saved through the work of Christ are members of his church and united with one another. God has equipped his people with gifts to be used for mutual edification in the church and for the proclamation of the gospel to the world.
+The Lord Jesus Christ builds the church, His people, through the proclamation and teaching of His word. All who have been saved through the work of Christ are members of His church and united with one another. God has equipped His people with gifts to be used for mutual edification in the church and for the proclamation of the gospel to the world.
 
 ## The Future…
 
-The Lord Jesus Christ will return from heaven. He will execute God’s condemnation on all who have not turned to God through Jesus Christ, and he will welcome his people in to a life of eternal joy in fellowship with God. On that day all sin, suffering and death will be completely destroyed and God will be glorified forever.
+The Lord Jesus Christ will return from heaven. He will execute God’s condemnation on all who have not turned to God through Him, and He will welcome His people in to a life of eternal joy in fellowship with God. On that day all sin, suffering and death will be completely destroyed and God will be glorified forever.

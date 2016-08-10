@@ -19,11 +19,11 @@ Our denomination has its foundation historically in the Protestant Reformation, 
 
 From the teaching of the Reformers five slogans emerged:
 
-:------------------------------------------|:--------------------------------------:
-Scripture alone|the Bible alone is the word of God, to be believed and obeyed.
-Faith alone|we are made right with God by faith alone.
-Christ alone|it is only through what Jesus Christ has done in his life, death and resurrection, that we may be saved.
-Grace alone|our salvation depends entirely on God’s grace.
-To the glory of God alone|so that all the glory belongs to God alone.
+:------------------------------------------------|:--------------------------------------:
+<b>Scripture alone</b>|the Bible alone is the word of God, to be believed and obeyed.
+<b>Faith alone</b>|we are made right with God by faith alone.
+<b>Christ alone</b>|it is only through what Jesus Christ has done in his life, death and resurrection, that we may be saved.
+<b>Grace alone</b>|our salvation depends entirely on God’s grace.
+<b>To the glory of God alone</b>|so that all the glory belongs to God alone.
  
  
