@@ -24,13 +24,13 @@ Hebrews 10:23–25 (ESV): Let us hold fast the confession of our hope without wa
 
 Community groups are more than Bible studies – they are sharing life together.
 
-- We learn from God’s word together and support each other in sharing and prayer.
+- We learn from God’s Word together and support each other in sharing and prayer.
 - We seek to deepen relationships in Christ with each other, and pastorally/practically care for one another, as need arises.
 - We enjoy each other’s company in meals or outings together.
 - We seek opportunities to do good to our neighbours /community through acts of service.
 - We intentionally support each other in reaching out to non-Christian friends and neighbours, particularly seeking opportunity to witness as ‘community’, by inviting them to join with us in ‘everyday’ social activities.
 
-### English as a Second Language (ESL) classes provide an opportunity to show Jesus’ love to ‘new Australians’ by helping them in their need to communicate, understand culture and adjust to a new life. Classes presently run throughout the day and evening on Thursdays and focus on conversational English at different levels of ability. Many participants are keen to understand more about the Christian faith.
+### English as a Second Language (ESL) classes provide an opportunity to show Jesus’ love to ‘new Australians’ by helping them in their need to communicate, understand culture and adjust to a new life. Classes presently run during the day and evening on Thursdays and focus on conversational English at different levels of ability. Many participants are keen to understand more about the Christian faith.
 
 
 ### An Easy English Bible Study
