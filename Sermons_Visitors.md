@@ -10,7 +10,7 @@ title: AshyPC Sermons occasional
  Date|Link| Speaker
 ------------:|---------------------|:--------------
 21 Aug 2016|[From Despair to Delight Psalm 77]|Rev David Reid
-14 Aug 2016|[The Beauty of Christianity - College Sunday]|Student Paul Jang
+14 Aug 2016|[The Beauty of Christianity - College Sunday](https://www.dropbox.com/s/ice0qu29rpknlml/2016.08.14_The_Beauty_of_Christianity_Paul_Jang.mp3?raw=1)|Student Paul Jang
 19 Jun 2016|[A Problem Revisited](https://www.dropbox.com/s/hjonob73yck6rg0/2016.06.19_Habakkuk1%4012_JaredHood.mp3?raw=1)|Rev Jared Hood
 12 Jun 2016|[Firstborn Priests Serving God Fulltime](https://www.dropbox.com/s/42kyi0e4y81yyae/2016.06.12_Numbers3%401-16_MartinPakula.mp3?raw=1)|Martin Pakula
  5 Jun 2016|[Heart trouble - Cured!](https://www.dropbox.com/s/ll0cq1duwvos81m/2016.06.05_John14%401-14_DavidReid.mp3?raw=1)|David Reid
