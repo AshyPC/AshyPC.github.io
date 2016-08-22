@@ -11,7 +11,7 @@ title: AshyPC Sermons Chronological
 ------------:|---------------------|:--------------
 21 Aug 2016|[From Despair to Delight Psalm 77](https://www.dropbox.com/s/5bnc72rvie6xuqf/2016.08.21_David_Reid_Psalm_77.mp3?raw=1)|Rev David Reid
 14 Aug 2016|[The Beauty of Christianity - College Sunday](https://www.dropbox.com/s/ice0qu29rpknlml/2016.08.14_The_Beauty_of_Christianity_Paul_Jang.mp3?raw=1)|Student Paul Jang
- 7 Aug 2016|[Understandig Same-sex Attraction]|Barry Oakes
+ 7 Aug 2016|[Understandig Same-sex Attraction](https://www.dropbox.com/s/ys3m2t1iac509mv/2016.08.07_Marriage_3.mp3?raw=1)|Barry Oakes
 31 Jul 2016|[Sexuality in a Broken World](https://www.dropbox.com/s/xint3cy3d93ynch/2016.07.31_SSM_2.mp3?raw=1)|Barry Oakes
 24 Jul 2016|[In the Beginning, Marriage](https://www.dropbox.com/s/bci7c5nx8o3xpcf/2016.07.24_Marriage_1.mp3?raw=1)|Barry Oakes
 17 Jul 2016|[Counting the Cost of Mission](https://www.dropbox.com/s/w2vnvn5h5jk46fy/2016.07.17_Matthew_9%4035-11%401_%232.mp3?raw=1) |Barry Oakes
