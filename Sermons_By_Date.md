@@ -9,6 +9,8 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+18 Sep 2016|[Singleness, Friendship & The Love of Christ](https://www.dropbox.com/s/1jdw3tix68vuji4/2016.09.18_SSM_Postscript.mp3?raw=1)|Barry Oakes
+11 Sep 2016|[And Above All These, Put on Love](https://www.dropbox.com/s/8jux3w6t75ek4ks/2016.09.11_SSM_6.mp3?raw=1)|Barry Oakes
  4 Sep 2016|[Shining in the Darkness](https://www.dropbox.com/s/ckqtol3j0mypj6i/2016.09.04_SSM_5.mp3?raw=1)|Barry Oakes  
 28 Aug 2016|[Identity & Struggle](https://www.dropbox.com/s/oelxmwjt2hh5ner/2016.08.28_SSM_4.mp3?raw=1)|Barry Oakes
 21 Aug 2016|[From Despair to Delight Psalm 77](https://www.dropbox.com/s/5bnc72rvie6xuqf/2016.08.21_David_Reid_Psalm_77.mp3?raw=1)|Rev David Reid
