@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+  2 Oct 2016|[Meeting Opposition](https://www.dropbox.com/s/aggdkvbrvr8r3vh/2016.10.02_Matthew_12%401-21.mp3?raw=1)|Barry Oakes
  25 Sep 2016|[Help For The Weak & Doubting](https://www.dropbox.com/s/lpf3wg1h7drj8nj/2016.09.25_Matthew_11%402-30.mp3?raw=1)|Barry Oakes
  17 Jul 2016|[Counting the Cost of Mission](https://www.dropbox.com/s/w2vnvn5h5jk46fy/2016.07.17_Matthew_9%4035-11%401_%232.mp3?raw=1) |Barry Oakes
  10 Jul 2016|[Compassion's Ultimate Concern](https://www.dropbox.com/s/1p7mvyawljlv4bx/2016.07.10_Matthew_9%4035-11%401.mp3?raw=1)|Barry Oakes

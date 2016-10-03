@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+ 2 Oct 2016|[Meeting Opposition](https://www.dropbox.com/s/aggdkvbrvr8r3vh/2016.10.02_Matthew_12%401-21.mp3?raw=1)|Barry Oakes
 25 Sep 2016|[Help For The Weak & Doubting](https://www.dropbox.com/s/lpf3wg1h7drj8nj/2016.09.25_Matthew_11%402-30.mp3?raw=1)|Barry Oakes
 18 Sep 2016|[Singleness, Friendship & The Love of Christ](https://www.dropbox.com/s/1jdw3tix68vuji4/2016.09.18_SSM_Postscript.mp3?raw=1)|Barry Oakes
 11 Sep 2016|[And Above All These, Put on Love](https://www.dropbox.com/s/8jux3w6t75ek4ks/2016.09.11_SSM_6.mp3?raw=1)|Barry Oakes
