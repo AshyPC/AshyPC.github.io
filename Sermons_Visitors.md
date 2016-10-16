@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+16 Oct 2016| [Faith Through Suffering](https://www.dropbox.com/s/ikw9niaaez9l5j4/2016.10.16_Job1%401-22_MookLee.mp3?raw=1)| Mook Lee
 21 Aug 2016|[From Despair to Delight Psalm 77](https://www.dropbox.com/s/5bnc72rvie6xuqf/2016.08.21_David_Reid_Psalm_77.mp3?raw=1)|Rev David Reid
 14 Aug 2016|[The Beauty of Christianity - College Sunday](https://www.dropbox.com/s/ice0qu29rpknlml/2016.08.14_The_Beauty_of_Christianity_Paul_Jang.mp3?raw=1)|Student Paul Jang
 19 Jun 2016|[A Problem Revisited](https://www.dropbox.com/s/hjonob73yck6rg0/2016.06.19_Habakkuk1%4012_JaredHood.mp3?raw=1)|Rev Jared Hood

@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+16 Oct 2016| [Faith Through Suffering](https://www.dropbox.com/s/ikw9niaaez9l5j4/2016.10.16_Job1%401-22_MookLee.mp3?raw=1)| Mook Lee
  9 Oct 2016|[When Saying 'No!' is Dangerous](https://www.dropbox.com/s/efgst72x2a9bgdg/2016.10.09_Matthew_12%4022-50.mp3?raw=1)|Barry Oakes
  2 Oct 2016|[Meeting Opposition](https://www.dropbox.com/s/aggdkvbrvr8r3vh/2016.10.02_Matthew_12%401-21.mp3?raw=1)|Barry Oakes
 25 Sep 2016|[Help For The Weak & Doubting](https://www.dropbox.com/s/lpf3wg1h7drj8nj/2016.09.25_Matthew_11%402-30.mp3?raw=1)|Barry Oakes
