@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+13 Nov 2016|[Beyond Tradition](https://www.dropbox.com/s/39dqaof95vqtpjr/2016.11.13_Matthew14%4034-15%4039.mp3?raw=1)| Barry Oakes
  6 Nov 2016|[What Does Your Worship Look Like?](https://www.dropbox.com/s/uk1uf1o5mjriom5/2016.11.06_Matthew13%4053_What_does_your_worship_look_like.mp3?raw=1)| Barry Oakes
 30 Oct 2016|[Overcoming Disappointment](https://www.dropbox.com/s/ypswmppbyeidypg/2016.10.30_Matthew13%4024-52_Overcoming_Disappointment.mp3?raw=1)| Barry Oakes
 23 Oct 2016|[Receiving God's Word - A Story](https://www.dropbox.com/s/l3higkasyqjvlzh/2016.10.23_Matthew13%401-22.mp3?raw=1)| Barry Oakes
