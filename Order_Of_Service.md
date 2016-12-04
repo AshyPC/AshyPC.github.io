@@ -1,4 +1,4 @@
-﻿---
+---
 layout: oos
 title: Order of Service
 ---
