@@ -3,7 +3,7 @@ layout: oos
 title: Order of Service
 ---
 
-4 Dec 2016
+# 4 Dec 2016
 
 ## Rev. Barry Oakes
 
