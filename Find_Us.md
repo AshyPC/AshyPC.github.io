@@ -24,7 +24,7 @@ title: AshyPC Find_Us
 <br>
 
 <ul>
-<li>{% include a href="http://ashypc.github.io//Service.html"%}Order of Service</a></li>
-<li>{% include a href="http://ashypc.github.io//Prayers.html"%}Prayers</a></li>
-<li>{% include a href="http://ashypc.github.io//Announcements.html"%}Announcements</a></li>
+<li>{% include a href="http://ashypc.github.io/Service.html"%}Order of Service</a></li>
+<li>{% include a href="http://ashypc.github.io/Prayers.html"%}Prayers</a></li>
+<li>{% include a href="http://ashypc.github.io/Announcements.html"%}Announcements</a></li>
 </ul>
