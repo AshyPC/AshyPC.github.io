@@ -1,6 +1,6 @@
 ﻿---
 layout: oos
-title: ORDER OF SERVICE
+title: Order of Service
 ---
 
 4 Dec 2016
