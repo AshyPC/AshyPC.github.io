@@ -18,3 +18,13 @@ title: AshyPC Find_Us
 ### Bus stops are located at the High Street Road/Warrigal Road intersection, a short walk from the church.
 
 ### Ashburton Railway Station is about 10-15 minutes walk (exit to the east, away from the shops)
+
+
+
+
+
+<ul>
+<li>{% include a href="/Service.html"%}Order of Service</a></li>
+<li>{% include a href="/Prayers.html"%}Prayers</a></li>
+<li>{% include a href="/Announcements.html"%}Announcements</a></li>
+</ul>
