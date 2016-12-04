@@ -20,8 +20,8 @@ title: AshyPC Find_Us
 ### Ashburton Railway Station is about 10-15 minutes walk (exit to the east, away from the shops)
 
 
-
-
+<br>
+<br>
 
 <ul>
 <li>{% include a href="http://ashypc.github.io//Service.html"%}Order of Service</a></li>
