@@ -1,8 +1,8 @@
 ---
 layout: oos
-title: Ashburton Presbyterian Church
+title: Announcements
 ---
-## Announcements
+ 
 ## 27 Nov 2016
 
 1. Monday - No Easy English Bible Study

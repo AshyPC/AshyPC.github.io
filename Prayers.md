@@ -1,9 +1,10 @@
 ---
 layout: oos
-title: Ashburton Presbyterian Church
+title: Prayers for our church and the world
 ---
-# Prayers for our church and the world
+
 ### 4 Dec 2016 (Communion)
+
 __Haggai 2:4__ _Be strong, all you people of the land," declares the Lord , "and work. For I am with you," declares the Lord Almighty._
 
 Let us pray:

@@ -1,9 +1,9 @@
 ﻿---
 layout: oos
-title: Ashburton Presbyterian Church
+title: ORDER OF SERVICE
 ---
-# ORDER OF SERVICE
 ### 4 Dec 2016
+
 ## Rev. Barry Oakes
 
 
