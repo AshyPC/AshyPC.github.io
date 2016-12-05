@@ -289,6 +289,16 @@ color: #444;
 color: #33BFEB;
 }
 
+.oos {
+float: left;
+width: 60%;	
+/* width: 560px;
+text-align: justify; */
+padding: 25px 5px 5px 5px;
+margin-left: auto;
+/* margin-left: 230px; */
+overflow: hidden;
+
 #bottom {
 background: #fff no-repeat;
 text-align: center;

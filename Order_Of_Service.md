@@ -3,9 +3,9 @@ layout: oos
 title: Order of Service
 ---
 
-# 4 Dec 2016
+## Order of Service 4 Dec 2016
 
-## Rev. Barry Oakes
+### Rev. Barry Oakes
 
 
 **Welcome / Call to worship** () (BO)
