@@ -3,7 +3,7 @@ layout: oos
 title: Order of Service
 ---
 
-## Order of Service 4 Dec 2016
+## Order of Service 11 Dec 2016
 
 ### Rev. Barry Oakes
 
@@ -11,40 +11,40 @@ title: Order of Service
 **Welcome / Call to worship** () (BO)
 <br>
 <br>
-**Hymn [PP]** From the Squalor
+**Hymn [MP345]**  It Came Upon the Midnight Clear
 <br>
 <br>
-**Opening Prayer** (BO)
+**Opening Prayer** (BO) - explain what prayer is
 <br>
 <br>
 **Announcements** (MS)
 <br>
 <br>
-**Bible reading 1:** Genesis 3:1-15 (page 2) (GMcK)
+**Bible reading 1:** Matthew 2:1-21 (ERV) (MA)
 <br>
 <br>
 **Offering []** (BO)
 <br>
 <br>
-**Prayer for our church and the world** (JA)
+**Hymn [R182]** Silent Night
 <br>
 <br>
-**Hymn [MP102]** Come, Thou Long Expected Jesus
+**Bible reading 2:** Isaiah 9:3-7 (ERV) (JL)
 <br>
 <br>
-**Bible reading 2:** 1 Peter 1:15-21 (page 857) ()
+**Prayer of thanks for Jesus** (JL)
 <br>
 <br>
-**Sermon:** "PROMISED FROM THE VERY BEGINNING"  (BO) 
+**Hymn [MP71]** Child in the Manger (Intro - BO)
+<br>
+<br>
+**Sermon:** "WHO IS THIS BABY?"  (BO) 
 <br>
 <br>
 **Hymn [R150]** We Greet You Sure Redeemer from All Strife
 <br>
 <br>
-**The Lord's Supper**
-<br>
-<br>
-**Hymn [R359]** According to Your Gracious Word
+**Hymn [MP63(ii)]** Tell Out My Soul
 <br>
 <br>
 **Benediction** (BO)
