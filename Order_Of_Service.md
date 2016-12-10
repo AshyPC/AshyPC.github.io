@@ -6,7 +6,7 @@ title: Order of Service
 ## Order of Service 11 Dec 2016
 
 
-##Special ESL Service
+## Special ESL Service
 
 
 ### Rev. Barry Oakes
