@@ -4,18 +4,12 @@ title: Order of Service
 ---
 
 ## Order of Service 11 Dec 2016
-<br>
-<br>
+
 
 ##Special ESL Service
-<br>
-<br>
+
 
 ### Rev. Barry Oakes
-<br>
-<br>
-<br>
-<br>
 
 **Welcome / Call to worship** () (BO)
 <br>
