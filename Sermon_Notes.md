@@ -11,10 +11,13 @@ title: Sermon Notes
 ### Matthew 2:1-12 & Micah 5:1-5a
 
 ### "READY FOR JESUS?"
+
 &nbsp; <br>
 
 #### Introduction
 
+&nbsp; <br>
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -49,6 +52,5 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-#### Conclusion
 
-&nbsp; <br>
+#### Conclusion
