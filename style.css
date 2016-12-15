@@ -309,7 +309,7 @@ color: #444;
 color: #33BFEB;
 }
 
-.oos {
+#oos {
 float: left;
 width: 100%;	
 /* width: 560px;
@@ -318,6 +318,7 @@ padding: 25px 5px 5px 5px;
 margin-left: auto;
 /* margin-left: 230px; */
 display: block;
+}
 
 #bottom {
 background: #fff no-repeat;
