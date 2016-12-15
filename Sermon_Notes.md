@@ -18,6 +18,8 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 
 #### 1. Ready or not!
 
