@@ -66,25 +66,6 @@ color: #666;
 font-weight: 500;
 }
 
-#header h3 {
-/* use for sermon notes heading block to be centred */
-padding: 0;
-font-size: 12px, "Times New Roman";
-color: #666;
-font-weight: normal;
-text-align: center;
-clear: both;
-}
-
-#header h4 {
-/* use for sermon notes body block to align left*/
-padding: 0;
-font-size: 12px, "Times New Roman";
-color: #666;
-font-weight: normal;
-text-align: left;
-clear: both;
-}
 
 #top {
 background: #fff no-repeat;
@@ -136,10 +117,37 @@ text-decoration: underline;
     border-style: solid;
     border-width: 1px;
     border-color: #18596B;
-
-   
 }
 
+#oos {
+	float: left;
+	width: 100%;	
+	/* width: 560px; text-align: justify; */
+	padding: 25px 5px 5px 5px;
+	margin-left: auto;
+	/* margin-left: 230px; */
+	display: block;
+}
+
+. h3 {
+/* use for sermon notes heading block to be centred */
+padding: 0;
+font-size: 12px, "Times New Roman";
+color: #666;
+font-weight: normal;
+text-align: center;
+clear: both;
+}
+
+. h4 {
+/* use for sermon notes body block to align left*/
+padding: 0;
+font-size: 12px, "Times New Roman";
+color: #666;
+font-weight: normal;
+text-align: left;
+clear: both;
+}
 
 #scripture {
     background: #F9D298;
@@ -307,17 +315,6 @@ color: #444;
 }
 .left ul li a:hover {
 color: #33BFEB;
-}
-
-#oos {
-float: left;
-width: 100%;	
-/* width: 560px;
-text-align: justify; */
-padding: 25px 5px 5px 5px;
-margin-left: auto;
-/* margin-left: 230px; */
-display: block;
 }
 
 #bottom {
