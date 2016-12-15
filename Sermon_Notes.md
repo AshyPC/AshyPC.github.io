@@ -13,10 +13,9 @@ title: Sermon Notes
 ### "READY FOR JESUS?"
 
 #### Introduction
-<&nbsp;> 
-<&nbsp;>
-<&nbsp;>
-
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 #### 1. Ready or not!
 
 #### 
