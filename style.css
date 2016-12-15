@@ -129,7 +129,7 @@ text-decoration: underline;
 	clear: both;
 }
 
-. h3 {
+#oos h3 {
 /* use for sermon notes heading block to be centred */
 padding: 0;
 font-size: 12px, "Times New Roman";
@@ -139,7 +139,7 @@ text-align: center;
 
 }
 
-. h4 {
+#oos h4 {
 /* use for sermon notes body block to align left*/
 padding: 0;
 font-size: 12px, "Times New Roman";
