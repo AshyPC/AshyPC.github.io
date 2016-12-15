@@ -4,9 +4,9 @@ title: Ashburton Presbyterian Church
 ---
 # Prayers for our church and the world
 
-### 11 Dec 2016 (ESL Service) done by Julie Loek
+## 18 Dec 2016 
 
-__Haggai 2:4__ _Be strong, all you people of the land," declares the Lord , "and work. For I am with you," declares the Lord Almighty._
+__Malachi 1:5__ _You will see it with your own eyes and say, "Great is the Lord - even beyond the borders of Israel!"_
 
 Let us pray:
 
