@@ -12,18 +12,24 @@ title: Sermon Notes
 
 ### "READY FOR JESUS?"
 &nbsp; <br>
+
 #### Introduction
+
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
 #### 1. Ready or not!
+
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
 #### 2. If Jesus came today...
+
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -31,7 +37,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
 #### 3. Meeting Jesus.
+
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -40,4 +48,5 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 #### Conclusion
+
 &nbsp; <br>
