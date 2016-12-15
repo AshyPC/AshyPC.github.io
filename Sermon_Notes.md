@@ -2,11 +2,15 @@
 layout: oos
 title: Sermon Notes
 ---
-# Ashburton Presbyterian Church
+### Ashburton Presbyterian Church
 
-## Rev Barry Oakes 18th Dec 2016
+### Rev Barry Oakes
 
-### Matthew 2:1-12 & Micah 5:1-5a "READY FOR JESUS?"
+### 18th Dec 2016
+
+### Matthew 2:1-12 & Micah 5:1-5a
+
+### "READY FOR JESUS?"
 
 &nbsp; <br>
 

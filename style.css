@@ -69,7 +69,7 @@ font-weight: 500;
 #header h3 {
 /* use for sermon notes heading block to be centred */
 padding: 0;
-font-size: 14px, "Times New Roman";
+font-size: 12px, "Times New Roman";
 color: #666;
 font-weight: normal;
 text-align: center;
@@ -79,7 +79,7 @@ clear: both;
 #header h4 {
 /* use for sermon notes body block to align left*/
 padding: 0;
-font-size: 14px, "Times New Roman";
+font-size: 12px, "Times New Roman";
 color: #666;
 font-weight: normal;
 text-align: left;
