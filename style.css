@@ -120,13 +120,13 @@ text-decoration: underline;
 }
 
 #oos {
+	/* class for order of service prayers and sermon notes */
 	float: left;
 	width: 100%;	
-	/* width: 560px; text-align: justify; */
 	padding: 25px 5px 5px 5px;
 	margin-left: auto;
-	/* margin-left: 230px; */
 	display: block;
+	clear: both;
 }
 
 . h3 {
@@ -136,7 +136,7 @@ font-size: 12px, "Times New Roman";
 color: #666;
 font-weight: normal;
 text-align: center;
-clear: both;
+
 }
 
 . h4 {
@@ -146,7 +146,7 @@ font-size: 12px, "Times New Roman";
 color: #666;
 font-weight: normal;
 text-align: left;
-clear: both;
+
 }
 
 #scripture {
