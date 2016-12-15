@@ -66,6 +66,24 @@ color: #666;
 font-weight: 500;
 }
 
+#header h3 {
+/* use for sermon notes heading block */
+padding: 0;
+font-size: 1em;
+color: #666;
+font-weight: normal;
+text-align: center
+}
+
+#header h4 {
+/* use for sermon notes body block */
+padding: 0;
+font-size: 1em;
+color: #666;
+font-weight: normal;
+text-align: left;
+}
+
 #top {
 background: #fff no-repeat;
 padding: 5px 0;

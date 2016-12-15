@@ -3,53 +3,51 @@ layout: oos
 title: Order of Service
 ---
 
-## Order of Service 11 Dec 2016
-
-
-
-## Special ESL Service
-
+## Order of Service 18 Dec 2016
 
 
 ### Rev. Barry Oakes
 
-**Welcome / Call to worship** () (BO)
+**Welcome / Call to worship** (Jn 7:37-43) (BO)
 <br>
 <br>
-**Hymn [MP345]**  It Came Upon the Midnight Clear
+**Hymn [MP539]** Once in Royal David's City
 <br>
 <br>
-**Opening Prayer** (BO) - explain what prayer is
+**Opening Prayer** (BO)
 <br>
 <br>
 **Announcements** (MS)
 <br>
 <br>
-**Bible reading 1:** Matthew 2:1-21 (ERV) (MA)
+**Mission Spot** (MS)
+<br>
+<br>
+**Bible reading 1:** Micah 5:1-5a (page 658)  (BO)
 <br>
 <br>
 **Offering []** (BO)
 <br>
 <br>
-**Hymn [R182]** Silent Night
+**Hymn [MP491]** O Come All Ye Faithful
 <br>
 <br>
 **Bible reading 2:** Isaiah 9:3-7 (ERV) (JL)
 <br>
 <br>
-**Prayer of thanks for Jesus** (JL)
+**Prayers for our church and the world** (JA)
 <br>
 <br>
-**Hymn [MP71]** Child in the Manger (Intro - BO)
+**Bible reading 2:** Matthew 2:1-12 (page 681)  (LO)
 <br>
 <br>
-**Sermon:** "WHO IS THIS BABY?"  (BO) 
+**Hymn [MP644]** The First Nowell  **(N.B. 6 verses)**
 <br>
 <br>
-**Hymn [R150]** We Greet You Sure Redeemer from All Strife
+**Sermon:** "READY FOR JESUS?"  (BO) 
 <br>
 <br>
-**Hymn [MP63(ii)]** Tell Out My Soul
+**Hymn [MP503ii]** O Little Town of Bethlehem
 <br>
 <br>
 **Benediction** (BO)
