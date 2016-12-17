@@ -11,17 +11,22 @@ __Malachi 1:5__ _You will see it with your own eyes and say, "Great is the Lord 
 Let us pray:
 
 ### Thanks to God
-O Lord, we have gathered today to remember what You have done for us in sending Jesus to take our place. As we celebrate the Supper, we encourage one another to look forward in hope for the return of the victorious King of Kings.
-We thank You that You have not forsaken Your people, and we take heart from the reassurance that You gave the returned exiles. We thank You that You call us to work with You.
+O Lord, we thank You that You are indeed great beyond the Borders of Israel. You are greater than any national gods and greater than anything we could put in Your place, for You made the heavens and the earth. You stretched out the starry host like a curtain, and the wonders we can see with our eyes or our telescopes are still but a small indication of Your great power.
+
+We thank You also that You made us in Your likeness, and called us into fellowship with Yourself. But we acknowledge that Adam sinned and we have inherited the consequences of that great Fall, and the responsibility and guilt of following in his steps. But we thank You that You foresaw all of this, and planned for Jesus to come to our rescue. 
 
 ### The World & The Church
-We look about us at a world still lost and largely ignoring the sacrifice of Jesus at Calvary, and we realise that there is always work to do. We realise that many scoff at the idea of God becoming man, but we pray that Your church would remain firm in holding to the truth, and firm in the face of laws restricting religious freedom, which are once again before our State parliament. We pray for wisdom when the vote is taken, so that the Bill is defeated and does not return.  
+We see a world still lost and in need of rescue, happy to enjoy Christmas but mostly ignoring Easter, and we pray for those who welcome the Light of the World now, but want to snuff it out because in His Light their darkness is made obvious.
 
-As we approach the Christmas season, we pray for the true message of the first coming of the Saviour to be heard and understood, despite the superficial holiday atmosphere that normally prevails. We pray that we would never forget that we too were once lost in sin, and we were drawn to the foot of the Cross by Your grace alone. Help us to see and grasp opportunities to speak to friends, family and neighbours. May the familiar words of the carols be a means of witnessing to the Truth of the Word Who became one of us, so that we could be redeemed and restored.
+We thank You that Jesus came, as foretold by Your prophets, and was fully obedient to Your Will - and we admit that we are not obedient. We thank You that despite our failings, You have graciously chosen us to receive His righteousness as easily as putting on a robe. 
+
+We thank You that there are many others also marked out for salvation, and You have built Your church to carry the joyful news to all the world, far beyond the borders of Israel. We pray for Your church to awaken once again to its task as the army of God, which You direct towards regaining captured territory, and releasing captives from the hands of a defeated enemy.
+
+May Your whole church see that it is led by a Commander Who is no longer a babe, but is the victorious King of Kings, the One Who has conquered death on behalf of all Your people.
 
 ### Ashburton
-We continue to pray for the plans to bring a cross-cultural worker to join us here. We thank You for new ESL students even this week, and pray for more workers to join us here in this harvest, as we aim to serve them. We thank You for Tat and Julie's return but pray for Tat recovering from pneumonia. Meanwhile, we continue to pray for Jim in rehab, we thank You also for Hazel's improvement, and we thank You for Jenny's improvement with chemotherapy.
+We continue to pray for the plans to bring a cross-cultural worker to join us here. We thank You for the Presbytery and Ministry Development Committee, for the wisdom they exercise in carefully evaluating these plans. 
 
-In all things we remember that You have provided for us in every way necessary through Jesus, and it is in His Great Name we pray, Amen.
+We thank You that You have called us to be a part of Your army. We commit ourselves to diligent obedience to Your Word, and faithful service in the Kingdom, as we humbly bring these our prayers in the Great Name of Jesus Christ, the Lord of Glory, Amen.
 
-And now we will stand to sing, before we hear the second of today's readings from Scripture.
+And now I will ask Les to bring the second reading, which will be from Matthew's gospel.

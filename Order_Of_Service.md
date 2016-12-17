@@ -32,9 +32,6 @@ title: Order of Service
 **Hymn [MP491]** O Come All Ye Faithful
 <br>
 <br>
-**Bible reading 2:** Isaiah 9:3-7 (ERV) (JL)
-<br>
-<br>
 **Prayers for our church and the world** (JA)
 <br>
 <br>
