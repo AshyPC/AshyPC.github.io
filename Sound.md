@@ -8,22 +8,24 @@ title: Ashburton Board of Management 20 Dec 2016
 A. Sound system/control desk
 
 1. Added 
-computer w. screen 500
-UPS 2Kva	   363 (later option separate cicuits & additional UPS)
-Desk		   200
+    computer w. screen 500
 
-1. Need foldback monitors? 
+    UPS 2Kva	   363 (later option separate cicuits & additional UPS)
+
+    Desk	   200
+
+1. Do we need foldback monitors? 
 If not included add 1000/pair
 
 1. Do figures include installation & training?
 
 1. Cabling 
 
-a) breakdown of components?
+    a) breakdown of components?
 
-a) can the organ be included?
+    a) can the organ be included?
 
-a) can the big speakers be used?
+    a) can the big speakers be used?
 
 B. Electrical factors
 
