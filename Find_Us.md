@@ -28,5 +28,5 @@ title: AshyPC Find_Us
 <li>{% include a href="/Prayers.html"%}Prayers</a></li>
 <li>{% include a href="/Announcements.html"%}Announcements</a></li>
 <li>{% include a href="/Sermon_Notes.html"%}Sermon Notes</a></li>
-<li>{% include a href="/Sound System.html"%}Sound</a></li>
+<li>{% include a href="/Sound.html"%}Sound System</a></li>
 </ul>
