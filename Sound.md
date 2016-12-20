@@ -23,9 +23,9 @@ If not included add 1000/pair
 
     a) breakdown of components?
 
-    a) can the organ be included?
+    b) can the organ be included?
 
-    a) can the big speakers be used?
+    c) can the big speakers be used?
 
 B. Electrical factors
 
