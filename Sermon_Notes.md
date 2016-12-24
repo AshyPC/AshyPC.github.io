@@ -6,11 +6,11 @@ title: Sermon Notes
 
 ### Rev Barry Oakes
 
-### 18th Dec 2016
+### 25th Dec 2016
 
-### Matthew 2:1-12 & Micah 5:1-5a
+### Matthew 1:18-25; John 1:1-5
 
-### "READY FOR JESUS?"
+### "A Light Has Dawned"
 
 &nbsp; <br>
 
@@ -21,17 +21,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. Ready or not!
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 
-#### 2. If Jesus came today...
+#### 1. The light that turns back darkness
 
 &nbsp; <br>
 &nbsp; <br>
@@ -40,15 +32,28 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 3. Meeting Jesus.
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### Conclusion
+#### 2. A warrior is born!
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### 3. The Light with us
+
+
+
+&nbsp; <br>
+&nbsp; <br>
+
+
+

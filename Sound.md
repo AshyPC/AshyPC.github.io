@@ -8,22 +8,22 @@ title: Ashburton Board of Management 20 Dec 2016
 A. Sound system/control desk
 
 1. Added 
-    computer w. screen 500
+    computer w. screen	500
 
-    UPS 2Kva	   363 (later option separate cicuits & additional UPS)
+    UPS 2Kva	   	363 (later option separate cicuits & additional UPS)
 
-    Desk	   200
+    Lockable Desk	200
 
 1. Do we need foldback monitors? 
 If not included add 1000/pair
 
-1. Do figures include installation & training?
+1. Do figures include installation & training? No - retail prices; deals cld save 2-3000
 
 1. Cabling 
 
     a) breakdown of components?
 
-    b) can the organ be included?
+    b) can the organ be included? Yes
 
     c) can the big speakers be used?
 
@@ -54,3 +54,9 @@ D. Projector screen & Projection
 1. Computer connections at control desk?
 
 1. Sermon audio saved to file then uploaded to Dropbox
+
+E. Need more blinds on windows
+
+F. Need a raised platform (one step) to preach from
+
+G. Need space for communion table to be moved in from side 

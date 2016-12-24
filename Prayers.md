@@ -4,29 +4,27 @@ title: Ashburton Presbyterian Church
 ---
 # Prayers for our church and the world
 
-## 18 Dec 2016 
+## 25 Dec 2016 
 
-__Malachi 1:5__ _You will see it with your own eyes and say, "Great is the Lord - even beyond the borders of Israel!"_
+__Isaiah 53:6__ _We all, like sheep, have gone astray, each of us has turned to our own way; and the Lord has laid on him the iniquity of us all._
 
 Let us pray:
 
 ### Thanks to God
-O Lord, we thank You that You are indeed great beyond the Borders of Israel. You are greater than any national gods and greater than anything we could put in Your place, for You made the heavens and the earth. You stretched out the starry host like a curtain, and the wonders we can see with our eyes or our telescopes are still but a small indication of Your great power.
+O Lord, we thank You that we are free to gather and celebrate the first arrival of Your Chosen One. Isaiah declared our impossible situation clearly, and at just the right time You intervened in history. 
 
-We thank You also that You made us in Your likeness, and called us into fellowship with Yourself. But we acknowledge that Adam sinned and we have inherited the consequences of that great Fall, and the responsibility and guilt of following in his steps. But we thank You that You foresaw all of this, and planned for Jesus to come to our rescue. 
+We thank You that Jesus' coming was for this one purpose - the greatest rescue mission ever, to save us from Adam's sin. We thank You that You made the first move, reaching out to us, when we were still rebellious in our hearts, and dead to spiritual things. 
 
 ### The World & The Church
-We see a world still lost and in need of rescue, happy to enjoy Christmas but mostly ignoring Easter, and we pray for those who welcome the Light of the World now, but want to snuff it out because in His Light their darkness is made obvious.
+As we close this year, we recognise that this world is still in great turmoil, and there are many enemies of Your people seeking to undermine Your church. We thank You that we have Your sure promise that the powers of hell will never overcome Your Church.
 
-We thank You that Jesus came, as foretold by Your prophets, and was fully obedient to Your Will - and we admit that we are not obedient. We thank You that despite our failings, You have graciously chosen us to receive His righteousness as easily as putting on a robe. 
+We pray for the peace of Jerusalem, the City of the Great King, the focus of the first covenant, and for Your Chosen people, greatly persecuted still. We pray for believers suffering persecution in many parts of the world, and thank You for the work of Barnabus Fund, Tear Australia and others working in refugee camps in relief and rescue missions.
 
-We thank You that there are many others also marked out for salvation, and You have built Your church to carry the joyful news to all the world, far beyond the borders of Israel. We pray for Your church to awaken once again to its task as the army of God, which You direct towards regaining captured territory, and releasing captives from the hands of a defeated enemy.
-
-May Your whole church see that it is led by a Commander Who is no longer a babe, but is the victorious King of Kings, the One Who has conquered death on behalf of all Your people.
+We thank You that alongside these practical works, You have entrusted to Your Church the message of reconciliation, to bring to the world the same Good News which the angels gave to the shepherds.
 
 ### Ashburton
-We continue to pray for the plans to bring a cross-cultural worker to join us here. We thank You for the Presbytery and Ministry Development Committee, for the wisdom they exercise in carefully evaluating these plans. 
+We thank You that our part in that task is advancing steadily, and we thank You for the decision of the MDC to support our plans for the coming year. We pray for the next stage as we prepare to convert plans into actions. We ask for Your wisdom for the Session and the Board as they finalise terms and we prepare to receive Mook & Ashleigh and others in this new step of faith. We pray for the courage and grace to make the necessary cultural adjustments, as we have done already with our ESL program.
 
-We thank You that You have called us to be a part of Your army. We commit ourselves to diligent obedience to Your Word, and faithful service in the Kingdom, as we humbly bring these our prayers in the Great Name of Jesus Christ, the Lord of Glory, Amen.
+In all these things we remember that You enable us to do Your will, and You provide for us in every way necessary through Jesus, so it is in His Great Name we pray, Amen.
 
-And now I will ask Les to bring the second reading, which will be from Matthew's gospel.
+And now I will ask Gaye McKenzie to bring the next reading, which will be from John's gospel.

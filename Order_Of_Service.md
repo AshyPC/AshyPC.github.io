@@ -3,15 +3,15 @@ layout: oos
 title: Order of Service
 ---
 
-## Order of Service 18 Dec 2016
+## Order of Service 25 Dec 2016
 
 
 ### Rev. Barry Oakes
 
-**Welcome / Call to worship** (Jn 7:37-43) (BO)
+**Welcome / Call to worship** (Luke 2:10-11) (BO)
 <br>
 <br>
-**Hymn [MP539]** Once in Royal David's City
+**Hymn [R188]** Angels from the Realms of Glory
 <br>
 <br>
 **Opening Prayer** (BO)
@@ -20,31 +20,32 @@ title: Order of Service
 **Announcements** (MS)
 <br>
 <br>
-**Mission Spot** (MS)
+**Bible reading 1:** Matthew 1:18-25 (page 681)  (SM)
+               Matthew 4:13-16 (page 683) (SM)
 <br>
 <br>
-**Bible reading 1:** Micah 5:1-5a (page 658)  (BO)
+**Hymn [R181]** See There in the Manger Low
 <br>
 <br>
 **Offering []** (BO)
 <br>
 <br>
-**Hymn [MP491]** O Come All Ye Faithful
-<br>
-<br>
 **Prayers for our church and the world** (JA)
 <br>
 <br>
-**Bible reading 2:** Matthew 2:1-12 (page 681)  (LO)
+**Bible reading 2:** John 1:1-14 (page 750)  (GMcK)
 <br>
 <br>
-**Hymn [MP644]** The First Nowell  **(N.B. 6 verses)**
+Offering for Tear Fund []  (BO)
 <br>
 <br>
-**Sermon:** "READY FOR JESUS?"  (BO) 
+**Hymn [PP6]** From the Squalor
 <br>
 <br>
-**Hymn [MP503ii]** O Little Town of Bethlehem
+**Sermon:** "A Light Has Dawned"  (BO) 
+<br>
+<br>
+**Hymn [R163]** Joy to the World
 <br>
 <br>
 **Benediction** (BO)
