@@ -3,15 +3,15 @@ layout: oos
 title: Order of Service
 ---
 
-## Order of Service 25 Dec 2016
+## Order of Service 1 Jan 2017
 
 
 ### Rev. Barry Oakes
 
-**Welcome / Call to worship** (Luke 2:10-11) (BO)
+**Welcome / Call to worship** (BO)
 <br>
 <br>
-**Hymn [R188]** Angels from the Realms of Glory
+**Hymn [PP4]** Come, People of the Risen King
 <br>
 <br>
 **Opening Prayer** (BO)
@@ -20,11 +20,7 @@ title: Order of Service
 **Announcements** (MS)
 <br>
 <br>
-**Bible reading 1:** Matthew 1:18-25 (page 681)  (SM)
-               Matthew 4:13-16 (page 683) (SM)
-<br>
-<br>
-**Hymn [R181]** See There in the Manger Low
+**Bible reading 1:** Matthew 18:1-14 (page 695)  (BO)
 <br>
 <br>
 **Offering []** (BO)
@@ -33,19 +29,16 @@ title: Order of Service
 **Prayers for our church and the world** (JA)
 <br>
 <br>
-**Bible reading 2:** John 1:1-14 (page 750)  (GMcK)
+**Bible reading 2:** Matthew 18:15-35 (page 695)  (SO)
 <br>
 <br>
-Offering for Tear Fund []  (BO)
+**Sermon:** "BEING A FAMILY"  (BO) 
 <br>
 <br>
-**Hymn [PP6]** From the Squalor
+The Lord's Supper
 <br>
 <br>
-**Sermon:** "A Light Has Dawned"  (BO) 
-<br>
-<br>
-**Hymn [R163]** Joy to the World
+**Hymn [PP2]** Behold the Lamb (Communion Song)
 <br>
 <br>
 **Benediction** (BO)

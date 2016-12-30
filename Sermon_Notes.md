@@ -6,11 +6,11 @@ title: Sermon Notes
 
 ### Rev Barry Oakes
 
-### 25th Dec 2016
+### 1st Jan 2017
 
-### Matthew 1:18-25; John 1:1-5
+### Matthew 18
 
-### "A Light Has Dawned"
+### "BEING A FAMILY"
 
 &nbsp; <br>
 
@@ -23,7 +23,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. The light that turns back darkness
+#### 1. Displacing 'self' (vv.3-4)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -35,7 +35,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. A warrior is born!
+#### 2. Valuing holiness (vv.5-14)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -48,12 +48,19 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. The Light with us
-
-
+#### 3. Dealing with offences (vv.15-35)
 
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### Conclusion
+
 
 
 
