@@ -30,8 +30,6 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 
 #### 2. Valuing holiness (vv.5-14)
 
@@ -42,12 +40,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 
 #### 3. Dealing with offences (vv.15-35)
 
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
