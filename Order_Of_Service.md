@@ -5,6 +5,7 @@ title: Order of Service
 
 ## Order of Service 1 Jan 2017
 
+## COMMUNION SERVICE - NEW YEAR'S DAY
 
 ### Rev. Barry Oakes
 

@@ -21,11 +21,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
 #### 1. Displacing 'self' (vv.3-4)
 
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -46,7 +44,6 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
 #### 3. Dealing with offences (vv.15-35)
 
@@ -57,10 +54,5 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
 #### Conclusion
-
-
-
-
