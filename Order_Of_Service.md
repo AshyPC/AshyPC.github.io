@@ -5,10 +5,12 @@ title: Order of Service
 
 ## Order of Service 1 Jan 2017
 
-## COMMUNION SERVICE - NEW YEAR'S DAY
+### COMMUNION SERVICE - NEW YEAR'S DAY
 
 ### Rev. Barry Oakes
-
+<br>
+<br>
+<br>
 **Welcome / Call to worship** (BO)
 <br>
 <br>

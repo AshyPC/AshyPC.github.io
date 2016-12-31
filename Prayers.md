@@ -4,27 +4,23 @@ title: Ashburton Presbyterian Church
 ---
 # Prayers for our church and the world
 
-## 25 Dec 2016 
+## 1 Jan 2017 
 
-__Isaiah 53:6__ _We all, like sheep, have gone astray, each of us has turned to our own way; and the Lord has laid on him the iniquity of us all._
+__2 Cor 5:17-18__ _...if anyone is in Christ, the new creation has come: the old has gone, the new is here! All this is from God, who reconciled us to himself through Christ and gave us the ministry of reconciliation._
 
 Let us pray:
 
 ### Thanks to God
-O Lord, we thank You that we are free to gather and celebrate the first arrival of Your Chosen One. Isaiah declared our impossible situation clearly, and at just the right time You intervened in history. 
+Father God, You are the Lord of Time and Eternity, and we are limited in this life to the passage of time. We thank You as we close a year and look forward to a new one that You know what it is to live within our world. Jesus came and waited patiently for thirty years to pass before He commenced His public ministry. We thank You that through His life, death and resurrection, You reconciled us to Yourself.
 
-We thank You that Jesus' coming was for this one purpose - the greatest rescue mission ever, to save us from Adam's sin. We thank You that You made the first move, reaching out to us, when we were still rebellious in our hearts, and dead to spiritual things. 
+We thank You that we remember in the Lord's Supper what He want through to bring us back into fellowship. We thank You that You have made us anew, that we are new creations, and we have a new task - instead of living for ourseleves, You call us to share the news of this reconciliation with others.
 
 ### The World & The Church
-As we close this year, we recognise that this world is still in great turmoil, and there are many enemies of Your people seeking to undermine Your church. We thank You that we have Your sure promise that the powers of hell will never overcome Your Church.
-
-We pray for the peace of Jerusalem, the City of the Great King, the focus of the first covenant, and for Your Chosen people, greatly persecuted still. We pray for believers suffering persecution in many parts of the world, and thank You for the work of Barnabus Fund, Tear Australia and others working in refugee camps in relief and rescue missions.
-
-We thank You that alongside these practical works, You have entrusted to Your Church the message of reconciliation, to bring to the world the same Good News which the angels gave to the shepherds.
+As we commence a new year, we pray for Your church which has suffered much in recent times. We pray for Your people still suffering persecution, and we pray for the church in comfortable freedom. Help us to see that this world is still opposed to what You are doing, and we pray that the comfortable church will arise in the strength of the Holy Spirit, guided by Your Word alone, to declare that Your great grace is still available until Jesus returns. 
 
 ### Ashburton
-We thank You that our part in that task is advancing steadily, and we thank You for the decision of the MDC to support our plans for the coming year. We pray for the next stage as we prepare to convert plans into actions. We ask for Your wisdom for the Session and the Board as they finalise terms and we prepare to receive Mook & Ashleigh and others in this new step of faith. We pray for the courage and grace to make the necessary cultural adjustments, as we have done already with our ESL program.
+We thank You that we also see new things happening within our midst. We give thanks for the "old things" which have served their purpose, and pray for the new things to come, as we extend ourselves into further service beyond what we have been accustomed to in the past. We thank You for our unity of purpose and pray that it may continue as we discuss ways and means of achieving Your purposes here. We pray that we can use our time wisely - neither rushing into things without careful thought, nor holding back too long and thus missing opportunities for service. Help us, we pray, to do the work according to Your timing.
 
-In all these things we remember that You enable us to do Your will, and You provide for us in every way necessary through Jesus, so it is in His Great Name we pray, Amen.
+We pray that in all these things we may keep in step with Your Holy Spirit, to Your honour and glory, in Jesus Name, Amen.
 
-And now I will ask Gaye McKenzie to bring the next reading, which will be from John's gospel.
+And now I will ask Suzanne to bring the second part of our reading from Matthew's gospel.
