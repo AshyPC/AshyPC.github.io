@@ -24,6 +24,9 @@ title: Order of Service
 **Bible reading 1:** Matthew 18:1-14 (page 695)  (BO)
 <br>
 <br>
+**Hymn [PP39]** This Life I Live
+<br>
+<br>
 **Offering []** (BO)
 <br>
 <br>
