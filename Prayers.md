@@ -2,7 +2,9 @@
 layout: oos
 title: Ashburton Presbyterian Church
 ---
-# Prayers for our church and the world
+## Ashburton Presbyterian Church
+
+## Prayers for our church and the world
 
 ## 1 Jan 2017 
 

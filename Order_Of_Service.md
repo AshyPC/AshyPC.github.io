@@ -2,6 +2,7 @@
 layout: oos
 title: Order of Service
 ---
+## Ashburton Presbyterian Church
 
 ## Order of Service 1 Jan 2017
 
@@ -51,7 +52,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-The Lord's Supper
+**The Lord's Supper**
 <br>
 <br>
 <br>
