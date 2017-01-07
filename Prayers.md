@@ -6,23 +6,23 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 1 Jan 2017 
+## 8 Jan 2017 
 
-__2 Cor 5:17-18__ _...if anyone is in Christ, the new creation has come: the old has gone, the new is here! All this is from God, who reconciled us to himself through Christ and gave us the ministry of reconciliation._
+__Psalm 7:9-10__ _Bring to an end the violence of the wicked and make the righteous secure - You, the righteous God who probes minds and hearts. My shield is God Most High, Who saves the upright in heart._
 
 Let us pray:
 
 ### Thanks to God
-Father God, You are the Lord of Time and Eternity, and we are limited in this life to the passage of time. We thank You as we close a year and look forward to a new one that You know what it is to live within our world. Jesus came and waited patiently for thirty years to pass before He commenced His public ministry. We thank You that through His life, death and resurrection, You reconciled us to Yourself.
+O Lord, we come into Your Presence today to offer our thanks and praise. We know that we come only because Jesus has paid the price for us to be redeemed and restored. For You are Perfect in Holiness and righteous in Your very character, while we are descendants of Adam and Eve. There are no secrets we can hide from You since You probe our minds and hearts, and You know us through and through. Yet, You sent Jesus, You brought us back from our past rebellious state to again become the righteous. We rely on Jesus' righteousness to remain secure, to be shielded, to be saved.
 
-We thank You that we remember in the Lord's Supper what He want through to bring us back into fellowship. We thank You that You have made us anew, that we are new creations, and we have a new task - instead of living for ourseleves, You call us to share the news of this reconciliation with others.
 
 ### The World & The Church
-As we commence a new year, we pray for Your church which has suffered much in recent times. We pray for Your people still suffering persecution, and we pray for the church in comfortable freedom. Help us to see that this world is still opposed to what You are doing, and we pray that the comfortable church will arise in the strength of the Holy Spirit, guided by Your Word alone, to declare that Your great grace is still available until Jesus returns. 
+We pray for Your church which in many parts of the world is in distress, whether through violence or through distress and natural disaster. We thank You for the means of sharing our material blessings via PresAID with the Church in Africa, and we pray for security for Your people in Malawi and Zambia in particular. As You were a shield to David, and You are a shield to us here, we pray You would be a shield to Your people there. 
 
 ### Ashburton
-We thank You that we also see new things happening within our midst. We give thanks for the "old things" which have served their purpose, and pray for the new things to come, as we extend ourselves into further service beyond what we have been accustomed to in the past. We thank You for our unity of purpose and pray that it may continue as we discuss ways and means of achieving Your purposes here. We pray that we can use our time wisely - neither rushing into things without careful thought, nor holding back too long and thus missing opportunities for service. Help us, we pray, to do the work according to Your timing.
+We thank You that we as Your Ashburton church are partners in the work of the gospel and we pray for each step of progress in extending the Good News of salvation to others around us here. We pray that we be always alert to find those who are upright in heart, whom You have marked for salvation and inclusion in the Kingdom.
 
-We pray that in all these things we may keep in step with Your Holy Spirit, to Your honour and glory, in Jesus Name, Amen.
+### Prayer for the Word
+And we thank you for the written Word and that you reveal to us the way to live through your Word. We pray that we will increase our reading, study and meditation during this new year, and we will store your Word in our hearts more fully, so that we understand more thoroughly what You have called us to do here, and therefore live daily in greater conformity to Your Will, in Jesus Name we ask, Amen.
 
-And now I will ask Suzanne to bring the second part of our reading from Matthew's gospel.
+And now I will hand over to MarJo who will bring our second reading for today, from Matthew's gospel.

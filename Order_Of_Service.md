@@ -4,9 +4,8 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-## Order of Service 1 Jan 2017
+## Order of Service 8 Jan 2017
 
-### COMMUNION SERVICE - NEW YEAR'S DAY
 
 ### Rev. Barry Oakes
 <br>
@@ -16,7 +15,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP4]** Come, People of the Risen King
+**Hymn [PP38]** You're the Word of God the Father
 <br>
 <br>
 <br>
@@ -24,15 +23,15 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (MS)
+**Announcements** (JA if any)
 <br>
 <br>
 <br>
-**Bible reading 1:** Matthew 18:1-14 (page 695)  (BO)
+**Bible reading 1:** Romans 6:12-23 (page 799)  (BO)
 <br>
 <br>
 <br>
-**Hymn [PP39]** This Life I Live
+**Hymn [R553]** How I Love to Trust in Jesus
 <br>
 <br>
 <br>
@@ -44,19 +43,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 18:15-35 (page 695)  (SO)
+**Bible reading 2:** Matthew 19:1-12 (page 696)  (MA)
 <br>
 <br>
 <br>
-**Sermon:** "BEING A FAMILY"  (BO) 
+**Hymn [PP43]** My Heart Is Filled
 <br>
 <br>
 <br>
-**The Lord's Supper**
+**Sermon:** "NOT EASILY BROKEN"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [PP2]** Behold the Lamb (Communion Song)
+**Hymn [R382]** Come, Thou Fount (3 verses)
 <br>
 <br>
 <br>

@@ -6,11 +6,11 @@ title: Sermon Notes
 
 ### Rev Barry Oakes
 
-### 1st Jan 2017
+### 8th Jan 2017
 
-### Matthew 18
+### Matthew 19:1-12
 
-### "BEING A FAMILY"
+### "NOT EASILY BROKEN"
 
 &nbsp; <br>
 
@@ -21,17 +21,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. Displacing 'self' (vv.3-4)
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 
-#### 2. Valuing holiness (vv.5-14)
+#### 1. Q&A (verses 1-9)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -40,14 +32,25 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 3. Dealing with offences (vv.15-35)
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 
-#### Conclusion
+#### 2. Too hard? (verses 10-12)
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### 3. Redemption for the broken.
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
