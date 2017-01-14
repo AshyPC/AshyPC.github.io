@@ -4,18 +4,23 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-## Order of Service 8 Jan 2017
+### Order of Service 15 Jan 2017
 
 
 ### Rev. Barry Oakes
+
 <br>
+<br>
+
+*Pre-service video* - Jesus Is Better (Austin Stone) (5 mins)
+
 <br>
 <br>
 **Welcome / Call to worship** (BO)
 <br>
 <br>
 <br>
-**Hymn [PP38]** You're the Word of God the Father
+**Hymn [PP10]** I Will Glory in My Redeemer
 <br>
 <br>
 <br>
@@ -23,15 +28,15 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (JA if any)
+**Announcements** (MS)
 <br>
 <br>
 <br>
-**Bible reading 1:** Romans 6:12-23 (page 799)  (BO)
+**Bible reading 1:** Philippians 3:1-11 (page 831)  (BO)
 <br>
 <br>
 <br>
-**Hymn [R553]** How I Love to Trust in Jesus
+**Hymn [PP24]** Lamb of God
 <br>
 <br>
 <br>
@@ -43,19 +48,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 19:1-12 (page 696)  (MA)
+**Bible reading 2:** Matthew 19:13-30 (page 696)  (LO)
 <br>
 <br>
 <br>
-**Hymn [PP43]** My Heart Is Filled
+**Hymn [R525]** My Jesus, I Love You
 <br>
 <br>
 <br>
-**Sermon:** "NOT EASILY BROKEN"  (BO) 
+**Sermon:** "IS JESUS BETTER?"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [R382]** Come, Thou Fount (3 verses)
+**Hymn [MP346]** It Is a Thing Most Wonderful
 <br>
 <br>
 <br>
