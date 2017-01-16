@@ -6,6 +6,8 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+ 15 Jan 2017|[Is Jesus Better?](https://www.dropbox.com/s/u4s2hdutafa6wcd/2017.01.15_Matthew_19%4013-30.mp3?raw=1)| Barry Oakes
+  8 Jan 2017|[Not Easily Broken](https://www.dropbox.com/s/a2da0kaehi4gmr9/2017.01.08_Matthew_19%401-12.mp3?raw=1)| Barry Oakes
   1 Jan 2017|[Being a Family](https://www.dropbox.com/s/xntrhaw7c0euhgp/2017.01.01_Matthew%2018.mp3?raw=1)| Barry Oakes
  27 Nov 2016|[Consider Christ](https://www.dropbox.com/s/2ar5p0e2fa4qg8v/2016.11.27_Matthew_17.mp3?raw=1)| Barry Oakes
  20 Nov 2016|[Making a Good Confession](https://www.dropbox.com/s/34n2vugq66dk5za/2016.11.20_Matthew_16.mp3?raw=1)| Barry Oakes
