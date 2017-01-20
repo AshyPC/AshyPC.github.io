@@ -11,11 +11,6 @@ title: Order of Service
 
 <br>
 <br>
-
-*Pre-service video* - Jesus Is Better (Austin Stone) (5 mins)
-
-<br>
-<br>
 **Welcome / Call to worship** (BO)
 <br>
 <br>
