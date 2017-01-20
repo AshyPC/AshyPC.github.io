@@ -4,7 +4,7 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 15 Jan 2017
+### Order of Service 22 Jan 2017
 
 
 ### Rev. Barry Oakes
@@ -20,7 +20,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP10]** I Will Glory in My Redeemer
+**Hymn [PP42]** O Fount of Love
 <br>
 <br>
 <br>
@@ -28,15 +28,15 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (MS)
+**Announcements** (JA)
 <br>
 <br>
 <br>
-**Bible reading 1:** Philippians 3:1-11 (page 831)  (BO)
+**Bible reading 1:** (page )  (BO)
 <br>
 <br>
 <br>
-**Hymn [PP24]** Lamb of God
+**Hymn [R380]** Marvellous Grace of Our Loving Lord
 <br>
 <br>
 <br>
@@ -48,19 +48,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 19:13-30 (page 696)  (LO)
+**Bible reading 2:** Matthew 19:30-20:19 (page 696)  (SM)
 <br>
 <br>
 <br>
-**Hymn [R525]** My Jesus, I Love You
+**Hymn [PP15]** Oh, the Mercy of God
 <br>
 <br>
 <br>
-**Sermon:** "IS JESUS BETTER?"  (BO) 
+**Sermon:** "GRACE - BETTER THAN FAIRNESS"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [MP346]** It Is a Thing Most Wonderful
+**Hymn [R409]** Rock of Ages
 <br>
 <br>
 <br>

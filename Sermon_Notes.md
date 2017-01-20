@@ -6,11 +6,10 @@ title: Sermon Notes
 
 ### Rev Barry Oakes
 
-### 15th Jan 2017
+### 22nd Jan 2017
 
-### Matthew 19:13-30 "NOT EASILY BROKEN"
+### Matthew 19:30-20:19 "GRACE - BETTER THAN FAIRNESS"
 
-&nbsp; <br>
 
 #### Introduction
 
@@ -18,19 +17,8 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
-#### 1. Is Jesus better?
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-
-#### 2. Is trust in Jesus a better trust?
+#### 1. An 'unfair' story
 
 &nbsp; <br>
 &nbsp; <br>
@@ -39,12 +27,28 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
+#### 2. Grace is bigger than justice
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 &nbsp; <br>
 
-#### 3. Is Jesus' treasure a better treasure?
+#### 3. Grace does away with comparisons
 
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### 4. Grace is free but costly!
+
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
