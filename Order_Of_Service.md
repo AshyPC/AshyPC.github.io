@@ -32,7 +32,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 1:** (page )  (BO)
+**Bible reading 1:** Ephesians 2:1-10 (page 827)  (BO)
 <br>
 <br>
 <br>
