@@ -6,29 +6,27 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 22 Jan 2017 
-
-__Psalm 20: 1-2__ _May the Lord answer you when you are in distress; may the name of the God of Jacob protect you. May He send you help from the sanctuary and grant you support from Zion._
+## 29 Jan 2017 
+(David  when the Lord delivered him from the hand of all his enemies and from the hand of Saul.)
+__Psalm 18:28__ _You, Lord, keep my lamp burning; my God turns my darkness into light._
 
 Let us pray:
 
 ### Thanks to God
-O Lord we thank You that Your throne is totally secure, and Zion, "the city ofthe Great King" is unassailable, so that we can trust in You completely. We praise You for the gracious choice You have made to bring us into Your kingdom. We have come together to be under Your rule and authority here, and to see that Kingdom extended as more people come under Your protection.
-
+O Lord we thank You that You are David's Rescuer, Protector and Ever-Present Guide. And because You are the Eternal God not limited by time as we are, You are also our Protector and Guide. David sang of Your great Power, but also of Your great Wisdom, Your concern for the humble rather than the proud, Your Perfection and Righteousness in all Your being.
 
 ### The World & The Church
-Lord, we pray about the terrible tradegy in the city on Friday. We pray for the families of those killed, and we pray for the restoration of those injured. We understand from Your Word that sin is terrible, but this shows us how bad things can get when drugs and violence take hold of a person, so that they do crazy things. 
+Lord, we pray for our nation of Australia as we have just celebrated "Australia Day". It is sad to see how divisive some choose to make it since in Your Goodness You have blessed us with so much in this land. 
 
-We thank You for the hospitals and their staff caring for the injured, and we pray for the families of the victims and the injured, who suddenly have to cope with this deliberate, senseless tragedy. 
+Help us to remember to be thankful at all times for the freedoms we enjoy, and to take up our responsibilities to be worthy citizens. We know that our first allegiance is to the King of Kings, but we also pray for wise government, for upright leaders, for disciplined and thorough debate in our Parliaments and for laws that promote godliness and punish evil.
 
-We pray also for churches to be able to minister to these families, for Your people to care for them. We pray for hospital chaplains to be able to show Your compassion and bring some sense of peace and comfort to them in the face of this mayhem.
+We continue to pray about the mayhem in the city that has cost five lives so far. We pray for the restoration of the injured, and we pray for churches and chaplains showing Your compassion and bringing some comfort to all those affected by this tragedy.
 
 ### Ashburton
 It's hard to turn to our own situation here but we thank You that Kingdom work continues in Ashburton. We thank You for everyone whom You are gathering to join the task. We also pray for those who can't be with us today: we remember Jim Gleeson and ask You to uphold him as he receives more intense care, and Diane with the weight of extra responsibilities upon her. Lift those burdens from her we pray, and grant her and Jim wisdom in the various decisions that need to be made.
 
-We also remember Margaret Sanders recovering from foot infections and needing to rest. Grant her the rest she needs as she takes time out at Rye. We uphold Nolene and Hazel, thankful that they can still attend with us today, but we also thank You that they are able to receive greater care during the week. 
+We remember again Margaret Sanders recovering from foot infections and needing to rest, we uphold Peter Jelleff seeking for successful post-operative treatment for his eyes. And we bring befor eYou Jim Gleeson and Muriel French. May they both know Your close comfort daily.
 
-We pray for ourselves here also. Whether we have determined to read more of Your Word, or to pray more, to be alert for opportunities to speak, in whatever way You have led us into new levels of service within the Kingdom, we want to continue as we have begun. Grant us the strength and perseverance of the Holy Spirit as we continue in those things we have commenced this year, in Jesus Name we ask, Amen.
+We pray for ourselves too. As the summer holidays end and people get into the swing of a new year, we pray that we would know the empoering work of the Holy Spirit within this place. As we look forward to launchingthe re-plant, may we see this as a new beginning, a new generation of Your people, something like the nation of Israel crossing the Jordan into their new home, in Jesus Name we ask, Amen.
 
-
-And now I will hand over to Sandra who will bring our second reading for today, from Matthew's gospel.
+And now I will ask MarJo to bring our second reading for today, from Matthew's gospel.
