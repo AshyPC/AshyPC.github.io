@@ -4,38 +4,38 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 22 Jan 2017
+### Order of Service 29 Jan 2017
 
 
-### Rev. Barry Oakes
+### Mook Lee
 
 <br>
 <br>
-**Welcome / Call to worship** (BO)
+**Welcome / Call to worship** (ML)
 <br>
 <br>
 <br>
-**Hymn [PP42]** O Fount of Love
+**Hymn [Rej70]** Praise My Soul the King of Heaven
 <br>
 <br>
 <br>
-**Opening Prayer** (BO)
+**Opening Prayer** (ML)
 <br>
 <br>
 <br>
-**Announcements** (JA)
+**Announcements** (JA) 
 <br>
 <br>
 <br>
-**Bible reading 1:** Ephesians 2:1-10 (page 827)  (BO)
+**Bible reading 1:** Galatians 2:11-21 (page 8)  ()
 <br>
 <br>
 <br>
-**Hymn [R380]** Marvellous Grace of Our Loving Lord
+**Hymn [MP1099/PP15]** O The Mercy of God
 <br>
 <br>
 <br>
-**Offering []** (BO)
+**Offering []** (JA)
 <br>
 <br>
 <br>
@@ -43,23 +43,23 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 19:30-20:19 (page 696)  (SM)
+**Bible reading 2:** Matthew 20:17-28 (page 696)  (MA)
 <br>
 <br>
 <br>
-**Hymn [PP15]** Oh, the Mercy of God
+**Hymn [PP10]** I Will Glory in My Redeemer
 <br>
 <br>
 <br>
-**Sermon:** "GRACE - BETTER THAN FAIRNESS"  (BO) 
+**Sermon:** "GREATNESS"  (ML) 
 <br>
 <br>
 <br>
-**Hymn [R409]** Rock of Ages
+**Hymn [PP39]** This Life I Live
 <br>
 <br>
 <br>
-**Benediction** (BO)
+**Benediction** (ML)
 <br>
 <br>
 <br>
