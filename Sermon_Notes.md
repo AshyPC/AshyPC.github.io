@@ -18,7 +18,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. 
+#### 1. Greatness is not achievements or status
 
 &nbsp; <br>
 &nbsp; <br>
@@ -30,7 +30,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. 
+#### 2. Greatness is to serve
 
 &nbsp; <br>
 &nbsp; <br>
@@ -42,7 +42,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. 
+#### 3. Jesus is the greatest
 
 &nbsp; <br>
 &nbsp; <br>
