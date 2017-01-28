@@ -23,10 +23,10 @@ Help us to remember to be thankful at all times for the freedoms we enjoy, and t
 We continue to pray about the mayhem in the city that has cost five lives so far. We pray for the restoration of the injured, and we pray for churches and chaplains showing Your compassion and bringing some comfort to all those affected by this tragedy.
 
 ### Ashburton
-It's hard to turn to our own situation here but we thank You that Kingdom work continues in Ashburton. We thank You for everyone whom You are gathering to join the task. We also pray for those who can't be with us today: we remember Jim Gleeson and ask You to uphold him as he receives more intense care, and Diane with the weight of extra responsibilities upon her. Lift those burdens from her we pray, and grant her and Jim wisdom in the various decisions that need to be made.
+We thank You that Kingdom work continues in Ashburton. We thank You for everyone whom You are gathering to join the task. We remember again those who can't be with us today: Margaret Sanders recovering from foot infections and needing to rest, we uphold Peter Jelleff seeking for successful post-operative treatment for his eyes. And we bring before You Jim Gleeson and Muriel French. May they both know Your close comfort daily.
 
-We remember again Margaret Sanders recovering from foot infections and needing to rest, we uphold Peter Jelleff seeking for successful post-operative treatment for his eyes. And we bring befor eYou Jim Gleeson and Muriel French. May they both know Your close comfort daily.
+We pray for ourselves too. As the summer holidays end and people get into the swing of a new year, we pray that we would know the empowering work of the Holy Spirit within this place. As we look forward to launching the re-plant, may we see this as a new beginning, a new generation of Your people, something like the nation of Israel crossing the Jordan into their new home. We may be apprehensive about the unknowns, but we are confident that You are leading us and therefore we can be also bold and courageous, like Joshua.
 
-We pray for ourselves too. As the summer holidays end and people get into the swing of a new year, we pray that we would know the empoering work of the Holy Spirit within this place. As we look forward to launchingthe re-plant, may we see this as a new beginning, a new generation of Your people, something like the nation of Israel crossing the Jordan into their new home, in Jesus Name we ask, Amen.
+We pray all these things in Jesus Name, Amen.
 
 And now I will ask MarJo to bring our second reading for today, from Matthew's gospel.
