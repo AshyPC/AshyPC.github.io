@@ -4,11 +4,11 @@ title: Sermon Notes
 ---
 ### Ashburton Presbyterian Church
 
-### Rev Barry Oakes
+### Mook Lee
 
-### 22nd Jan 2017
+### 29th Jan 2017
 
-### Matthew 19:30-20:19 "GRACE - BETTER THAN FAIRNESS"
+### Matthew 20:17-28 "GREATNESS"
 
 
 #### Introduction
@@ -18,7 +18,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. An 'unfair' story
+#### 1. 
 
 &nbsp; <br>
 &nbsp; <br>
@@ -27,18 +27,10 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 2. Grace is bigger than justice
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Grace does away with comparisons
+#### 2. 
 
 &nbsp; <br>
 &nbsp; <br>
@@ -46,9 +38,14 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 
-#### 4. Grace is free but costly!
+#### 3. 
 
+&nbsp; <br>
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
