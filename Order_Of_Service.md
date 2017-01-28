@@ -27,7 +27,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 1:** Galatians 2:11-21 (page 8)  ()
+**Bible reading 1:** Galatians 2:11-21 (page 866)  (JA)
 <br>
 <br>
 <br>
