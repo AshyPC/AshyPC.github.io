@@ -8,6 +8,7 @@ title: Ashburton Presbyterian Church
 
 ## 29 Jan 2017 
 (David  when the Lord delivered him from the hand of all his enemies and from the hand of Saul.)
+
 __Psalm 18:28__ _You, Lord, keep my lamp burning; my God turns my darkness into light._
 
 Let us pray:
