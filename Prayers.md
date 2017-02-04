@@ -6,28 +6,28 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 29 Jan 2017 
-(David  when the Lord delivered him from the hand of all his enemies and from the hand of Saul.)
+## 5 Feb 2017 
 
-__Psalm 18:28__ _You, Lord, keep my lamp burning; my God turns my darkness into light._
+__Psalm 31:14-15__ _But I trust in you, Lord; I say, 'You are my God.' My times are in your
+hands; deliver me from the hands of my enemies, from those who pursue me._
 
 Let us pray:
 
 ### Thanks to God
-O Lord we thank You that You are David's Rescuer, Protector and Ever-Present Guide. And because You are the Eternal God not limited by time as we are, You are also our Protector and Guide. David sang of Your great Power, but also of Your great Wisdom, Your concern for the humble rather than the proud, Your Perfection and Righteousness in all Your being.
+O Lord we thank You that You are our God, just as You are David's God. And because You are the Eternal God Who is "from everlasting to everlasting," You see our past, present and future all together, so we can say with him that our times are in Your hands. As we prepare to embark on changes we entrust ourselves into Your care, knowing that You see the end from the beginning, whereas we can only see a little of what lies ahead.
+
+We thank You Lord that You are also Lord of our past, and today we give thanks for our heritage, for those who have gone before us - both the Reformers of 500 years ago, and those ministers and missionaries of the gospel who brought the Word to this land.
 
 ### The World & The Church
-Lord, we pray for our nation of Australia as we have just celebrated "Australia Day". It is sad to see how divisive some choose to make it since in Your Goodness You have blessed us with so much in this land. 
+We know that in every age, imperfect men have made errors, besmirched Your Name, and failed to live according to the Truth of Your Word. Yet, we thank You that the Holy Spirit has preserved the Truth, and You continue to work to extend the Kingdom, win people away from a defeated enemy, and strengthen Your Church.
 
-Help us to remember to be thankful at all times for the freedoms we enjoy, and to take up our responsibilities to be worthy citizens. We know that our first allegiance is to the King of Kings, but we also pray for wise government, for upright leaders, for disciplined and thorough debate in our Parliaments and for laws that promote godliness and punish evil.
-
-We continue to pray about the mayhem in the city that has cost five lives so far. We pray for the restoration of the injured, and we pray for churches and chaplains showing Your compassion and bringing some comfort to all those affected by this tragedy.
+We pray for those charged with the task of preaching Your Word, and those who train our preachers and teachers. We pray that You would continue to guide and guard the work of the Theological College, and uphold Peter Hastie the Principal, all the staff, and the students as they learn to rightly handle the word - the very oracles of God. We also pray that we ourselves would be diligent students of Your Word, so that we can see for ourselves what You are saying to us, and that we can make it a daily part of our spiritual nourishment.
 
 ### Ashburton
-We thank You that Kingdom work continues in Ashburton. We thank You for everyone whom You are gathering to join the task. We remember again those who can't be with us today: Margaret Sanders recovering from foot infections and needing to rest, we uphold Peter Jelleff seeking for successful post-operative treatment for his eyes. And we bring before You Jim Gleeson and Muriel French. May they both know Your close comfort daily.
+We thank You for what You are doing here in Ashburton. We thank You for everyone who is here, and we remember again those who can't be with us: Barry & Suzanne enjoying a break, and we bring before You Jim Gleeson and Diane as she takes care of him. May they both know Your close comfort daily.
 
-We pray for ourselves too. As the summer holidays end and people get into the swing of a new year, we pray that we would know the empowering work of the Holy Spirit within this place. As we look forward to launching the re-plant, may we see this as a new beginning, a new generation of Your people, something like the nation of Israel crossing the Jordan into their new home. We may be apprehensive about the unknowns, but we are confident that You are leading us and therefore we can be also bold and courageous, like Joshua.
+We thank You for the resumption of our ESL classes, and for the first new students who have enrolled on day one. We pray for more of our previous students to return in the coming weeks and for the new activities, which we pray will enable them to practice their new-found skills.
 
-We pray all these things in Jesus Name, Amen.
+As the Body of Christ in this place we thank You that we are here to serve, rather than to be served, and so we commit all these things to You, for the purposes of the Kingdom, in Jesus Name, Amen.
 
-And now I will ask MarJo to bring our second reading for today, from Matthew's gospel.
+And now I will hand over to Margaret Sanders to bring our second reading for today, from Matthew's gospel.

@@ -4,38 +4,38 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 29 Jan 2017
+### Order of Service 5 Feb 2017
 
 
 ### Mook Lee
 
 <br>
 <br>
-**Welcome / Call to worship** (ML)
+**Welcome / Call to worship** (JA)
 <br>
 <br>
 <br>
-**Hymn [Rej70]** Praise My Soul the King of Heaven
+**Hymn [MP 506]** How Great Thou Art
 <br>
 <br>
 <br>
-**Opening Prayer** (ML)
+**Opening Prayer** (JA)
 <br>
 <br>
 <br>
-**Announcements** (JA) 
+**Announcements** (MS) 
 <br>
 <br>
 <br>
-**Bible reading 1:** Galatians 2:11-21 (page 866)  (JA)
+**Hymn [PP 1]** Before The Throne of God Above
 <br>
 <br>
 <br>
-**Hymn [MP1099/PP15]** O The Mercy of God
+**Bible reading 1:** Jeremiah 7:1-11 (page 570) (ML)
 <br>
 <br>
 <br>
-**Offering []** (JA)
+**Offering []** (ML)
 <br>
 <br>
 <br>
@@ -43,19 +43,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 20:17-28 (page 696)  (MA)
+**Bible reading 2:** Matthew 20:29-21:22 (page 734) (MS)
 <br>
 <br>
 <br>
-**Hymn [PP10]** I Will Glory in My Redeemer
+**Hymn [PP 3]** By Faith
 <br>
 <br>
 <br>
-**Sermon:** "GREATNESS"  (ML) 
+**Sermon:** "I HAVE FAITH"  (ML) 
 <br>
 <br>
 <br>
-**Hymn [PP39]** This Life I Live
+**Hymn [PP 11]** In Christ Alone
 <br>
 <br>
 <br>

@@ -6,9 +6,9 @@ title: Sermon Notes
 
 ### Mook Lee
 
-### 29th Jan 2017
+### 5th Feb 2017
 
-### Matthew 20:17-28 "GREATNESS"
+### Matthew 20:29-21:22 "I HAVE FAITH"
 
 
 #### Introduction
@@ -18,7 +18,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. Greatness is not achievements or status
+#### 1. We should be desperate for Christ
 
 &nbsp; <br>
 &nbsp; <br>
@@ -30,7 +30,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Greatness is to serve
+#### 2. Worship Christ as our King
 
 &nbsp; <br>
 &nbsp; <br>
@@ -42,7 +42,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Jesus is the greatest
+#### 3. Be Pure, not glamorous
 
 &nbsp; <br>
 &nbsp; <br>
@@ -52,4 +52,4 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### Conclusion
+#### 4. Mark the words of Jesus
