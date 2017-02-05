@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+  5 Feb 2017|[I Have Faith](https://www.dropbox.com/s/zaj5y0lh0dw4yyk/2017.02.05_Matthew_20.29-21.22.mp3?raw=1)|Mook Lee  
  29 Jan 2017|[Greatness (pdf 96k)](https://www.dropbox.com/s/em5fo5gtq7i8ea9/2017.01.29_Matthew_20.17-28.pdf?raw=1)|Mook Lee 
  22 Jan 2017|[Grace - Better than Fairness](https://www.dropbox.com/s/5ud2opctpu3qajo/2017.01.22_Matthew_19%4030-20%4019.mp3?raw=1)|Barry Oakes 
  15 Jan 2017|[Is Jesus Better?](https://www.dropbox.com/s/u4s2hdutafa6wcd/2017.01.15_Matthew_19%4013-30.mp3?raw=1)| Barry Oakes
