@@ -4,22 +4,22 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 5 Feb 2017
+### Order of Service 12 Feb 2017
 
 
 ### Mook Lee
 
 <br>
 <br>
-**Welcome / Call to worship** (JA)
+**Welcome / Call to worship**  (Colossians 1:15-20) (BO)
 <br>
 <br>
 <br>
-**Hymn [MP 506]** How Great Thou Art
+**Hymn [Rej 246]** Crown Him With Many Crowns
 <br>
 <br>
 <br>
-**Opening Prayer** (JA)
+**Opening Prayer** ()
 <br>
 <br>
 <br>
@@ -27,15 +27,17 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 1]** Before The Throne of God Above
+
+**Mission Spot** (MS)
 <br>
 <br>
 <br>
-**Bible reading 1:** Jeremiah 7:1-11 (page 570) (ML)
+
+**Hymn [PP 13]** Man of Sorrows / Offering during hymn (BO)
 <br>
 <br>
 <br>
-**Offering []** (ML)
+**Bible reading 1:** Matthew 21:23-46 (page 698) (GMcK)
 <br>
 <br>
 <br>
@@ -43,15 +45,15 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 20:29-21:22 (page 734) (MS)
+**Hymn [PP 44]** Cornerstone (My Hope is Built)
 <br>
 <br>
 <br>
-**Hymn [PP 3]** By Faith
+**Bible reading 2:** Matthew 22:1-14 (page 699)  (BO)
 <br>
 <br>
 <br>
-**Sermon:** "I HAVE FAITH"  (ML) 
+**Sermon:** "AUTHORITY AND ME"  (BO) 
 <br>
 <br>
 <br>
@@ -59,10 +61,10 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Benediction** (ML)
+**Benediction** (BO)
 <br>
 <br>
 <br>
-**Exit** []
+**Exit**
 
 

@@ -4,11 +4,11 @@ title: Sermon Notes
 ---
 ### Ashburton Presbyterian Church
 
-### Mook Lee
+### Barry Oakes
 
-### 5th Feb 2017
+### 12 Feb 2017
 
-### Matthew 20:29-21:22 "I HAVE FAITH"
+### Matthew 21:23-22:14 "AUTHORITY AND ME"
 
 
 #### Introduction
@@ -18,7 +18,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. We should be desperate for Christ
+#### 1. Authority and obedience
 
 &nbsp; <br>
 &nbsp; <br>
@@ -30,7 +30,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Worship Christ as our King
+#### 2. A matter of the heart
 
 &nbsp; <br>
 &nbsp; <br>
@@ -42,7 +42,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Be Pure, not glamorous
+#### 3. Who is in the Kingdom?
 
 &nbsp; <br>
 &nbsp; <br>
@@ -52,4 +52,4 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4. Mark the words of Jesus
+#### 4. Two implications of authority

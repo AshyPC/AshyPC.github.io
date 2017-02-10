@@ -6,7 +6,7 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 5 Feb 2017 
+## 12 Feb 2017 
 
 __Psalm 31:14-15__ _But I trust in you, Lord; I say, 'You are my God.' My times are in your
 hands; deliver me from the hands of my enemies, from those who pursue me._
