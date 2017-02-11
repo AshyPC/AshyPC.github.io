@@ -7,7 +7,7 @@ title: Order of Service
 ### Order of Service 12 Feb 2017
 
 
-### Mook Lee
+### Barry Oakes
 
 <br>
 <br>
@@ -19,7 +19,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Opening Prayer** ()
+**Opening Prayer** (BO)
 <br>
 <br>
 <br>
@@ -27,12 +27,10 @@ title: Order of Service
 <br>
 <br>
 <br>
-
 **Mission Spot** (MS)
 <br>
 <br>
 <br>
-
 **Hymn [PP 13]** Man of Sorrows / Offering during hymn (BO)
 <br>
 <br>
@@ -45,7 +43,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 44]** Cornerstone (My Hope is Built)
+**Hymn [PP 44]** Cornerstone (My Hope is Built)-- children leave for Sunday School
 <br>
 <br>
 <br>
