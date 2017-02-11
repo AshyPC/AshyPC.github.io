@@ -8,26 +8,30 @@ title: Ashburton Presbyterian Church
 
 ## 12 Feb 2017 
 
-__Psalm 31:14-15__ _But I trust in you, Lord; I say, 'You are my God.' My times are in your
-hands; deliver me from the hands of my enemies, from those who pursue me._
+__Psalm 34:3-4__ _Glorify the Lord with me: let us exalt His Name together. I sought the Lord
+ and He answered me; He delivered me from all my fears._
 
 Let us pray:
 
 ### Thanks to God
-O Lord we thank You that You are our God, just as You are David's God. And because You are the Eternal God Who is "from everlasting to everlasting," You see our past, present and future all together, so we can say with him that our times are in Your hands. As we prepare to embark on changes we entrust ourselves into Your care, knowing that You see the end from the beginning, whereas we can only see a little of what lies ahead.
+O Lord we thank You that You are the Great GOd Who made the heavens and the Earth, and that we are here together to praise Your Name, and to glorify You as a body of Your redeemed people. We thank You for the greatness of Your power displayed in Your Creation, as well as the greatness of Your mercy and grace in saving a lost humanity by sending Jesus.
 
-We thank You Lord that You are also Lord of our past, and today we give thanks for our heritage, for those who have gone before us - both the Reformers of 500 years ago, and those ministers and missionaries of the gospel who brought the Word to this land.
+He came to live and minister in this world as a humble servant, and then to die a death He did not deserve, to defeat an enemy who was too powerful for us. We thank You that He won back a rebellious people and You raised Him up to life again, so that death could no longer hold us in fear.
 
 ### The World & The Church
-We know that in every age, imperfect men have made errors, besmirched Your Name, and failed to live according to the Truth of Your Word. Yet, we thank You that the Holy Spirit has preserved the Truth, and You continue to work to extend the Kingdom, win people away from a defeated enemy, and strengthen Your Church.
+We thank You that You have graciously called and chosen us to be part of Your new kingdom, and to work within it as Your partners in sharing the Good News of Jesus' victory.
 
-We pray for those charged with the task of preaching Your Word, and those who train our preachers and teachers. We pray that You would continue to guide and guard the work of the Theological College, and uphold Peter Hastie the Principal, all the staff, and the students as they learn to rightly handle the word - the very oracles of God. We also pray that we ourselves would be diligent students of Your Word, so that we can see for ourselves what You are saying to us, and that we can make it a daily part of our spiritual nourishment.
+We thank You that You have placed us all within the Body of Christ so that each has a part to play, and the Holy Spirit oversees us all, so that Your purposes are fulfilled everywhere that You work. We thank You for those whom You call to go to other nations, and we pray in support of people like Calvin and Ruth. Sustain them, we ask, as they work in foreign lands with people of unusual customs and unfamiliar languages.
 
 ### Ashburton
-We thank You for what You are doing here in Ashburton. We thank You for everyone who is here, and we remember again those who can't be with us: Barry & Suzanne enjoying a break, and we bring before You Jim Gleeson and Diane as she takes care of him. May they both know Your close comfort daily.
+We thank You also for what You are doing here in Ashburton. We work in familiar surroundings, and yet we also find ourselves ministering to people from foreign lands with unfamiliar languages.
 
-We thank You for the resumption of our ESL classes, and for the first new students who have enrolled on day one. We pray for more of our previous students to return in the coming weeks and for the new activities, which we pray will enable them to practice their new-found skills.
+We thank You for our ESL classes, for the new students who enrol each week, and we pray for more of our previous students to return soon. We also pray for those who are moving into new ventures, as they find their way in a strange country. Allay their fears, we ask, Lord, so that they can travel and work with confidence as they become more comfortable with their new skills in English. 
 
-As the Body of Christ in this place we thank You that we are here to serve, rather than to be served, and so we commit all these things to You, for the purposes of the Kingdom, in Jesus Name, Amen.
+We thank You for everyone who is here, and we remember again those who can't be with us: we bring before You Jim Gleeson and Diane as she takes care of him, and Eric Williams, and his carers at Iris Manor. May they all know Your close comfort daily.
 
-And now I will hand over to Margaret Sanders to bring our second reading for today, from Matthew's gospel.
+We thank You Lord that we gather today to worship in a different format but retaining the essentials, as we sing and pray, we read Your Word and listen and learn as we are taught from it. Help us to examine and test all we do, to hold fast to what is good and to not be fearful of making changes, but to trust in Your leading so that we do all things to the honour and glory of Your Name, Amen.
+
+<nbsp>
+
+And now we will stand to sing our next hymn. And this is the first time I have announced that the children will be moving out to Sunday School.
