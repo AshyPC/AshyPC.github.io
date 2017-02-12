@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+12 Feb 2017|[Authority & Me](https://www.dropbox.com/s/dcfgt70a2xczn7a/2017.02.12_Matthew_21.23-22.14.mp3?raw=1)|Barry Oakes
  5 Feb 2017|[I Have Faith](https://www.dropbox.com/s/zaj5y0lh0dw4yyk/2017.02.05_Matthew_20.29-21.22.mp3?raw=1)|Mook Lee  
 29 Jan 2017|[Greatness (pdf 96k)](https://www.dropbox.com/s/em5fo5gtq7i8ea9/2017.01.29_Matthew_20.17-28.pdf?raw=1)|Mook Lee 
 22 Jan 2017|[Grace - Better than Fairness](https://www.dropbox.com/s/5ud2opctpu3qajo/2017.01.22_Matthew_19%4030-20%4019.mp3?raw=1)|Barry Oakes 
