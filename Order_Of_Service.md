@@ -4,18 +4,18 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 12 Feb 2017
+### Order of Service 19 Feb 2017
 
 
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  (Colossians 1:15-20) (BO)
+**Welcome / Call to worship**  (Psalm 118:1-9,14) (BO)
 <br>
 <br>
 <br>
-**Hymn [Rej 246]** Crown Him With Many Crowns
+**Hymn [Rej 51]** Holy Holy Holy
 <br>
 <br>
 <br>
@@ -27,19 +27,11 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Mission Spot** (MS)
+**Church Update** (BO)
 <br>
 <br>
 <br>
-**Hymn [PP 13]** Man of Sorrows / Offering during hymn (BO)
-<br>
-<br>
-<br>
-**Bible reading 1:** Matthew 21:23-46 (page 698) (GMcK)
-<br>
-<br>
-<br>
-**Prayers for our church and the world** (JA)
+**Children's Talk**
 <br>
 <br>
 <br>
@@ -47,15 +39,31 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 22:1-14 (page 699)  (BO)
+**Offering**  (BO)
 <br>
 <br>
 <br>
-**Sermon:** "AUTHORITY AND ME"  (BO) 
+**Prayer of confession / assurance**  (BO)
 <br>
 <br>
 <br>
-**Hymn [PP 11]** In Christ Alone
+**Prayers for our church and the world** (JA)
+<br>
+<br>
+<br>
+**Bible reading:** Matthew 22:15-45 (page 699)  (BO)
+<br>
+<br>
+<br>
+**Hymn [PP 38]** Across the Lands
+<br>
+<br>
+<br>
+**Sermon:** "WHAT DO YOU THINK ABOUT THE CHRIST?"  (BO) 
+<br>
+<br>
+<br>
+**Hymn [Rej 419]** Lord, Be My Vision
 <br>
 <br>
 <br>
