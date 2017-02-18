@@ -6,32 +6,34 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 12 Feb 2017 
+## 19 Feb 2017 
 
-__Psalm 34:3-4__ _Glorify the Lord with me: let us exalt His Name together. I sought the Lord
- and He answered me; He delivered me from all my fears._
+__Psalm 37:23-24__ _The Lord makes firm the steps of the one who delights in Him; though he may
+stumble, he will not fall, for the Lord upholds him with his hand._
 
 Let us pray:
 
 ### Thanks to God
-O Lord we thank You that You are the Great GOd Who made the heavens and the Earth, and that we are here together to praise Your Name, and to glorify You as a body of Your redeemed people. We thank You for the greatness of Your power displayed in Your Creation, as well as the greatness of Your mercy and grace in saving a lost humanity by sending Jesus.
+O Lord we thank You that we can gather freely in Your Presence today. We thank You that we can sing Your praises, delight in Your goodness, enjoy the beauty of Your creation and make use of all the bountiful provision that You put within our charge.
 
-He came to live and minister in this world as a humble servant, and then to die a death He did not deserve, to defeat an enemy who was too powerful for us. We thank You that He won back a rebellious people and You raised Him up to life again, so that death could no longer hold us in fear.
+We thank You for Jesus coming to provide for us the salvation we needed most, for His righteousness given to us who don't deserve it. He obeyed You fully, knowing what He was to endure, and suffering for our sin, He trusted Himself to You to raise Him to life again. We know that we are not perfect as He was, for we stumble often. And we thank You that You see us in Jesus, so that we do not fall completely, but You uphold us with Your hand, as Your Word declares.  We thank You that You are the God Who can be trusted.
 
 ### The World & The Church
-We thank You that You have graciously called and chosen us to be part of Your new kingdom, and to work within it as Your partners in sharing the Good News of Jesus' victory.
-
-We thank You that You have placed us all within the Body of Christ so that each has a part to play, and the Holy Spirit oversees us all, so that Your purposes are fulfilled everywhere that You work. We thank You for those whom You call to go to other nations, and we pray in support of people like Calvin and Ruth. Sustain them, we ask, as they work in foreign lands with people of unusual customs and unfamiliar languages.
+We pray for a world that still needs to know where to find both Justice and Mercy, and grace in time of need. We thank You that You continue to work in the world to win people back to Yourself. It can be easy to become discouraged by the bad things we see so often, but we thank You that the Holy Spirit works quietly, witnessing to the Cross and the Resurrection. Help us to renew our endeavours and work in co-operation with You to bring hope andencouragement in place of despair, and the light of the Gospel in place of darkness and perplexity, to those we meet. 
 
 ### Ashburton
-We thank You also for what You are doing here in Ashburton. We work in familiar surroundings, and yet we also find ourselves ministering to people from foreign lands with unfamiliar languages.
+We thank You for what You are doing here in Ashburton. Each day, each week, we take steps towards fulfilling Your calling to us as a part of the Body of Christ. We acknoweledge that we are prone to stumble, but we trust You to uphold us so that we do not fail.
 
-We thank You for our ESL classes, for the new students who enrol each week, and we pray for more of our previous students to return soon. We also pray for those who are moving into new ventures, as they find their way in a strange country. Allay their fears, we ask, Lord, so that they can travel and work with confidence as they become more comfortable with their new skills in English. 
+We thank You for our ESL classes, for the new students who enrol each week, and we continue to pray for more of our previous students to return. We pray also for the resumption of the Easy English Bible Study and Community group. May they be means of grace to us for fellowship, knowledge of Your Word and growth in becoming more like Jesus every day.
 
-We thank You for everyone who is here, and we remember again those who can't be with us: we bring before You Jim Gleeson and Diane as she takes care of him, and Eric Williams, and his carers at Iris Manor. May they all know Your close comfort daily.
+We thank You for everyone who is here, and we remember again those who can't be with us: we bring before You Jim Gleeson and Diane, for Eric, Michael, Nola and Manfred.
 
-We thank You Lord that we gather today to worship in a different format but retaining the essentials, as we sing and pray, we read Your Word and listen and learn as we are taught from it. Help us to examine and test all we do, to hold fast to what is good and to not be fearful of making changes, but to trust in Your leading so that we do all things to the honour and glory of Your Name, Amen.
+We also give thanks for the excellent medical care we have here, and pray again for Peter Jelliff and his follow-up surgery to repair his eyes.
+
+We pray particularly for Les as he faces hip replacement surgery on Tuesday. Guide the surgeons in the use of their skills as they operate. Grant him peace Lord as he takes time away from his busy schedule both for the surgery and the recovery afterwards. 
+
+In all these our prayers Lord, we are concerned less for ourselves and more for others, as we see that Jesus came to serve and not to be served. May all that we do and say be to His honour and glory, Amen.
 
 <nbsp>
 
-And now we will stand to sing our next hymn. And this is the first time I have announced that the children will be moving out to Sunday School.
+And now I will ask Sandra to bring us today's reading from Matthew.
