@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+19 Feb 2017|[What Do You Think About the Christ?](https://www.dropbox.com/s/tbboc26ut9a99vz/2017.02.19_Matthew_22_15-46.mp3?raw=1)|Barry Oakes
 12 Feb 2017|[Authority & Me](https://www.dropbox.com/s/dcfgt70a2xczn7a/2017.02.12_Matthew_21.23-22.14.mp3?raw=1)|Barry Oakes
  5 Feb 2017|[I Have Faith](https://www.dropbox.com/s/zaj5y0lh0dw4yyk/2017.02.05_Matthew_20.29-21.22.mp3?raw=1)|Mook Lee  
 29 Jan 2017|[Greatness (pdf 96k)](https://www.dropbox.com/s/em5fo5gtq7i8ea9/2017.01.29_Matthew_20.17-28.pdf?raw=1)|Mook Lee 
