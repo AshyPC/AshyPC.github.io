@@ -4,18 +4,18 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 19 Feb 2017
-
-
+### Order of Service 26 Feb 2017
+<br>
+<br>
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  (Psalm 118:1-9,14) (BO)
+**Welcome / Call to worship**  (Psalm 73:23-26) (BO)
 <br>
 <br>
 <br>
-**Hymn [Rej 51]** Holy Holy Holy
+**Hymn [Rej 11]** Give to Our God Immortal, Praise
 <br>
 <br>
 <br>
@@ -23,11 +23,11 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (MS) 
+**Announcements** (JA) 
 <br>
 <br>
 <br>
-**Church Update** (BO)
+**Bible reading:** James 2:14-26 (page 855)  (BO)
 <br>
 <br>
 <br>
@@ -35,15 +35,8 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 44]** Cornerstone (My Hope is Built)-- children leave for Sunday School
-<br>
-<br>
-<br>
-**Offering**  (BO)
-<br>
-<br>
-<br>
-**Prayer of confession / assurance**  (BO)
+**Hymn [PP 39]** This Life I Live / collect offering during hymn  (BO) 
+children leave for Sunday School at end
 <br>
 <br>
 <br>
@@ -51,19 +44,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 22:15-45 (page 699)  (BO)
+**Bible reading:** Matthew 23:1-39 (page 700)  (JA)
 <br>
 <br>
 <br>
-**Hymn [PP 38]** Across the Lands
+**Hymn [Rej 254]** Jesus Comes With Clouds Descending
 <br>
 <br>
 <br>
-**Sermon:** "WHAT DO YOU THINK ABOUT THE CHRIST?"  (BO) 
+**Sermon:** "OUR SPIRITUAL ECG"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [Rej 419]** Lord, Be My Vision
+**Hymn [PP 7]** How Deep the Father's Love
 <br>
 <br>
 <br>

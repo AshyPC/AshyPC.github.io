@@ -2,31 +2,22 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church
+### Ashburton Presbyterian Church 26 Feb 2017
 
 ### Barry Oakes
 
-### 19 Feb 2017
-
-### "WHAT DO YOU THINK ABOUT THE CHRIST?"  (Matthew 22:15-45) 
+### "OUR SPIRITUAL ECG"  (Matthew 23:1-39) 
 
 #### Introduction
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. The problem of worldly concern
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. The problem of unbelief
+#### 1. Understanding ourselves
 
 &nbsp; <br>
 &nbsp; <br>
@@ -35,19 +26,25 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
+#### 2. The problem of heart disease
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 &nbsp; <br>
 
-#### 3. The problem of theoretical faith
+#### 3. The cure
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-
-#### 4. What do you think about the Christ?
-
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
