@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+ 26 Feb 2017|[Our Spiritual ECG](https://www.dropbox.com/s/zl9bptkldbin07t/2017.02.26_Matthew23.mp3?raw=1)|Barry Oakes
  19 Feb 2017|[What Do You Think About the Christ?](https://www.dropbox.com/s/tbboc26ut9a99vz/2017.02.19_Matthew_22_15-46.mp3?raw=1)|Barry Oakes
  12 Feb 2017|[Authority & Me](https://www.dropbox.com/s/dcfgt70a2xczn7a/2017.02.12_Matthew_21.23-22.14.mp3?raw=1)|Barry Oakes
   5 Feb 2017|[I Have Faith](https://www.dropbox.com/s/zaj5y0lh0dw4yyk/2017.02.05_Matthew_20.29-21.22.mp3?raw=1)|Mook Lee  
