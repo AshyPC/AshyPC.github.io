@@ -4,18 +4,18 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 
-### Order of Service 26 Feb 2017
+### Order of Service 5 Mar 2017
 <br>
 <br>
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  (Psalm 73:23-26) (BO)
+**Welcome / Call to worship**  (Ephesians 1:11) (BO)
 <br>
 <br>
 <br>
-**Hymn [Rej 11]** Give to Our God Immortal, Praise
+**Hymn [Rej 254]** Jesus Comes with Clouds Descending
 <br>
 <br>
 <br>
@@ -23,20 +23,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (JA) 
+**Announcements** (MS) 
 <br>
 <br>
 <br>
-**Bible reading:** James 2:14-26 (page 855)  (BO)
+**Bible reading:** Matthew 24:1-23 (page 700) (BO)
 <br>
 <br>
 <br>
-**Children's Talk**
+**Children's Talk** (BO)
 <br>
 <br>
 <br>
-**Hymn [PP 39]** This Life I Live / collect offering during hymn  (BO) 
-children leave for Sunday School at end
+**Hymn [PP 45]** Trust / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
@@ -44,19 +43,27 @@ children leave for Sunday School at end
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 23:1-39 (page 700)  (JA)
+**Bible reading:** Matthew 24:24-35 (page 701)  (MA)
 <br>
 <br>
 <br>
-**Hymn [Rej 254]** Jesus Comes With Clouds Descending
+**Hymn [PP 44]** Cornerstone
 <br>
 <br>
 <br>
-**Sermon:** "OUR SPIRITUAL ECG"  (BO) 
+**Sermon:** "THE SIGNS OF THE END"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [PP 7]** How Deep the Father's Love
+Hymn [PP 45]** Trust
+<br>
+<br>
+<br>
+The Lord's Supper
+<br>
+<br>
+<br>
+**Hymn [PP 2]** The Communion Hymn
 <br>
 <br>
 <br>

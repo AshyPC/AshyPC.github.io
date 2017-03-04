@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 26 Feb 2017
+### Ashburton Presbyterian Church 5 Mar 2017
 
 ### Barry Oakes
 
-### "OUR SPIRITUAL ECG"  (Matthew 23:1-39) 
+### "THE SIGNS OF THE END"  (Matthew 24:1-35) 
 
 #### Introduction
 
@@ -16,20 +16,10 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. Understanding ourselves
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. The problem of heart disease
-
-&nbsp; <br>
+#### 1. The questions and the context
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -40,7 +30,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. The cure
+#### 2. Troubling signs of the end of the age!
 
 &nbsp; <br>
 &nbsp; <br>
@@ -51,5 +41,12 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 
-#### Conclusion
+#### 3. But, trust me!
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>

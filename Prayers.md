@@ -6,7 +6,7 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-## 26 Feb 2017 
+## 5 Mar 2017 
 
 __Psalm 45:4__ _In your majesty ride forth victoriously in the cause of truth, humility and
 justice; let your right hand achieve awesome deeds._
