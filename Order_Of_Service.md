@@ -52,11 +52,11 @@ title: Order of Service
 <br>
 <br>
 <br>
-Hymn [PP 45]** Trust
+**Hymn [PP 45]** Trust
 <br>
 <br>
 <br>
-The Lord's Supper
+**The Lord's Supper**
 <br>
 <br>
 <br>
