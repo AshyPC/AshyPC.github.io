@@ -3,9 +3,7 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-
 ### Order of Service 5 Mar 2017
-
 ### Barry Oakes
 
 <br>
