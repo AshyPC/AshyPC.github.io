@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 5 Mar 2017
+### Ashburton Presbyterian Church 12 Mar 2017
 
-### Barry Oakes
+### Mook Lee
 
-### "THE SIGNS OF THE END"  (Matthew 24:1-35) 
+### "WHILE WE WAIT"  (Matthew 24:36 - 25:30) 
 
 #### Introduction
 
@@ -16,11 +16,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 
-#### 1. The questions and the context
-&nbsp; <br>
+
+#### 1. No-one knows
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -30,7 +28,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Troubling signs of the end of the age!
+#### 2. Keep watch!
 
 &nbsp; <br>
 &nbsp; <br>
@@ -41,12 +39,17 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 
-#### 3. But, trust me!
+#### 3.  Live Faithfully
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### 4.  Conclusion

@@ -3,16 +3,16 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 5 Mar 2017
-### Barry Oakes
+### Order of Service 12 Mar 2017
+### Barry Oakes & Mook Lee
 
 <br>
 <br>
-**Welcome / Call to worship**  (Ephesians 1:11) (BO)
+**Welcome / Call to worship**  () (BO)
 <br>
 <br>
 <br>
-**Hymn [Rej 254]** Jesus Comes with Clouds Descending
+**Hymn [PP 3]** By Faith
 <br>
 <br>
 <br>
@@ -24,7 +24,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 24:1-23 (page 700) (BO)
+**Bible reading:** Matthew 24:36-51 (page 701) (BO)
 <br>
 <br>
 <br>
@@ -32,7 +32,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 45]** Trust / collect offering during hymn  (BO) - children leave for Sunday School at end
+**Hymn [MP 506]** How Great Thou Art / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
@@ -40,27 +40,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 24:24-35 (page 701)  (MA)
+**Bible reading:** Matthew 25:1-30 (page 702)  ()
 <br>
 <br>
 <br>
-**Hymn [PP 44]** Cornerstone
+**Hymn [Rej 586]** When Peace Like a River
 <br>
 <br>
 <br>
-**Sermon:** "THE SIGNS OF THE END"  (BO) 
+**Sermon:** "WHILE WE WAIT"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [PP 45]** Trust
-<br>
-<br>
-<br>
-**The Lord's Supper**
-<br>
-<br>
-<br>
-**Hymn [PP 2]** The Communion Hymn
+**Hymn [Rej 256]** Sing We The King
 <br>
 <br>
 <br>
