@@ -2,11 +2,9 @@
 layout: oos
 title: Ashburton Presbyterian Church
 ---
-## Ashburton Presbyterian Church
+## Ashburton Presbyterian Church  12 Mar 2017 
 
 ## Prayers for our church and the world
-
-## 12 Mar 2017 
 
 __Psalm 55:22__ _Cast your cares on the Lord and He will sustain you; He will never let the righteous be shaken._
 
