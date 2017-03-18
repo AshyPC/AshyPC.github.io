@@ -3,8 +3,8 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 12 Mar 2017
-### Barry Oakes & Mook Lee
+### Order of Service 19 Mar 2017
+### Barry Oakes
 
 <br>
 <br>
@@ -12,7 +12,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 3]** By Faith
+**Hymn [MP 975]** Before the Throne of God Above
 <br>
 <br>
 <br>
@@ -24,7 +24,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 24:36-51 (page 701) (BO)
+**Bible reading 1:** 1 John 4:10-17 (page 863) (BO)
 <br>
 <br>
 <br>
@@ -32,7 +32,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [MP 506]** How Great Thou Art / collect offering during hymn  (BO) - children leave for Sunday School at end
+**Hymn [PP 24]** Lamb of God / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
@@ -40,19 +40,19 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading:** Matthew 25:1-30 (page 702)  ()
+**Bible reading 2:** Matthew 25:31-46 (page 702)  (GMcK)
 <br>
 <br>
 <br>
-**Hymn [Rej 586]** When Peace Like a River
+**Hymn [PP 19]** Speak, O Lord
 <br>
 <br>
 <br>
-**Sermon:** "WHILE WE WAIT"  (BO) 
+**Sermon:** "LOVE DIVIDES"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [Rej 256]** Sing We The King
+**Hymn [Rej 310]** Brother, Let Me Be Your Servant
 <br>
 <br>
 <br>

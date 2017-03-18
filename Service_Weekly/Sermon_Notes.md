@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 12 Mar 2017
+### Ashburton Presbyterian Church 19 Mar 2017
 
-### Mook Lee
+### Barry Oakes
 
-### "WHILE WE WAIT"  (Matthew 24:36 - 25:30) 
+### "LOVE DIVIDES"  (Matthew 25:31-46)  
 
 #### Introduction
 
@@ -18,7 +18,7 @@ title: Sermon Notes
 &nbsp; <br>
 
 
-#### 1. No-one knows
+#### 1. The final day
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -28,19 +28,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Keep watch!
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-
-#### 3.  Live Faithfully
+#### 2. Sheep and goats
 
 &nbsp; <br>
 &nbsp; <br>
@@ -52,4 +40,16 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4.  Conclusion
+#### 3.  A matter of love
+
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+
+#### 4.  Important questions to ponder
