@@ -31,7 +31,7 @@ We pray for those amongt us in need of Your healing hand. Thank You for Les Oliv
 
 As we pray Lord, we remember that You are good - all the time, and that every good gift comes from Your gracious hand, in Jesus Name we pray, Amen.
 
-And now I will ask you to open your Bibles as Gaye McKenzie brings us today's second reading, from Matthew chapter 25.
+And now I will ask you to open your Bibles as Gaye McKenzie brings us today's second reading, which will be from Matthew chapter 25.
 
 
 
