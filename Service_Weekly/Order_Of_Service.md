@@ -3,16 +3,16 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 19 Mar 2017
+### Order of Service 26 Mar 2017
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  () (BO)
+**Welcome / Call to worship**  (2 Cor 5:17-21) (BO)
 <br>
 <br>
 <br>
-**Hymn [MP 975]** Before the Throne of God Above
+**Hymn [MP 382]** Come Thou Fount (traditional words)
 <br>
 <br>
 <br>
@@ -21,38 +21,36 @@ title: Order of Service
 <br>
 <br>
 **Announcements** (MS) 
+
+<br>
+**Video** Hope for Boroondara (BO)
+<br>
+<br>
+**Bible reading 1:** Exodus 12:1-13 (page 48) (BO)
 <br>
 <br>
 <br>
-**Bible reading 1:** 1 John 4:10-17 (page 863) (BO)
+**Hymn [Rej 211]** What Can Wash Away My Sin / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
-**Children's Talk** (BO)
+**Prayers for our church and the world** (ML)
 <br>
 <br>
 <br>
-**Hymn [PP 24]** Lamb of God / collect offering during hymn  (BO) - children leave for Sunday School at end
+**Bible reading 2:** Matthew 26:1-30 (page 703)  (ML)
 <br>
 <br>
 <br>
-**Prayers for our church and the world** (JA)
+**Hymn [PP 7]** How Deep the Father's Love
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 25:31-46 (page 702)  (GMcK)
+**Sermon:** "OUR SUBSTITUTE"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [PP 19]** Speak, O Lord
-<br>
-<br>
-<br>
-**Sermon:** "LOVE DIVIDES"  (BO) 
-<br>
-<br>
-<br>
-**Hymn [Rej 310]** Brother, Let Me Be Your Servant
+**Hymn [Rej 207]** There Is a Fountain, Filled with Blood
 <br>
 <br>
 <br>

@@ -2,23 +2,19 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 19 Mar 2017
+### Ashburton Presbyterian Church 26 Mar 2017
 
 ### Barry Oakes
 
-### "LOVE DIVIDES"  (Matthew 25:31-46)  
+### "OUR SUBSTITUTE"  (Matthew 26:1-30)  
 
 #### Introduction
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 
-
-#### 1. The final day
+#### 1. A growing storm!
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -28,7 +24,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Sheep and goats
+#### 2. At Passover time.
 
 &nbsp; <br>
 &nbsp; <br>
@@ -40,7 +36,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3.  A matter of love
+#### 3. Not a substitute!
 
 &nbsp; <br>
 &nbsp; <br>
@@ -52,4 +48,4 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4.  Important questions to ponder
+#### 4. Only a substitute.
