@@ -29,7 +29,7 @@ We pray for those amongt us in need of Your healing hand. We especially pray for
 
 As we pray Lord, we remember that You are Perfectly good, and that everything You do in our lives has a good and eternal purpose. Help us to work with You rather than against You, so that we may see Your purposes fulfilled, in Jesus Name we pray, Amen.
 
-And now I will ask you to open your Bibles as Gaye McKenzie brings us today's second reading, which will be from Matthew chapter 25.
+And now I will ask you to open your Bibles as .... brings us today's second reading from Matthew.
 
 
 
