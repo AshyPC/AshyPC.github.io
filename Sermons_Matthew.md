@@ -6,6 +6,8 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+  2 Apr 2017|[Jesus' Sufficiency In our Weakness](https://www.dropbox.com/s/gkuvxanv4xg0r96/2017.04.02_Matthew26_31-27%4010.mp3?raw=1)|Barry Oakes
+26 Mar 2017|[Our Substitute](https://www.dropbox.com/s/98bo42ghia3ncwx/2017.03.26_Matthew26_1-30.mp3?raw=1)|Barry Oakes
  19 Mar 2017|[Love Divides](https://www.dropbox.com/s/5dwq6a6nnzv429d/2017.03.19_Matthew25_31-46.mp3?raw=1)|Barry Oakes
  12 Mar 2017|[While We Wait](https://www.dropbox.com/s/3sh5dy32xf4qayu/2017.03.12_Matthew25.mp3?raw=1)|Mook Lee
   5 Mar 2017|[The Signs of the End](https://www.dropbox.com/s/c1lskiaik7azlmt/2017.03.05_Matthew24.mp3?raw=1)|Barry Oakes
