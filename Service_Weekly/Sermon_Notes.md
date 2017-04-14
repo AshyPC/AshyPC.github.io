@@ -2,30 +2,22 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 26 Mar 2017
+### Ashburton Presbyterian Church 16 Apr 2017
 
 ### Barry Oakes
 
-### "OUR SUBSTITUTE"  (Matthew 26:1-30)  
+### "RESURRECTION AND HOMECOMING"  (Matthew 27:62-28:15)  
 
 #### Introduction
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. A growing storm!
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. At Passover time.
-
+#### 1. Unstoppable!
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -36,7 +28,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Not a substitute!
+#### 2. Responses to the resurrection.
 
 &nbsp; <br>
 &nbsp; <br>
@@ -47,5 +39,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 
-#### 4. Only a substitute.
+#### 3. The resurrection; the answer to my 'hilaeth.'

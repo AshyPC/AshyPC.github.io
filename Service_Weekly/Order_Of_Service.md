@@ -3,16 +3,16 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 26 Mar 2017
+### Order of Service 16 Apr 2017
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  (2 Cor 5:17-21) (BO)
+**Welcome / Call to worship**  () (BO)
 <br>
 <br>
 <br>
-**Hymn [MP 382]** Come Thou Fount (traditional words)
+**Hymn [MP 76]** Christ the Lord Is Risen Today
 <br>
 <br>
 <br>
@@ -20,37 +20,39 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (MS) 
-
-<br>
-**Video** Hope for Boroondara (BO)
-<br>
-<br>
-**Bible reading 1:** Exodus 12:1-13 (page 48) (BO)
+**Announcements** (JA)
 <br>
 <br>
 <br>
-**Hymn [Rej 211]** What Can Wash Away My Sin / collect offering during hymn  (BO) - children leave for Sunday School at end
+**Bible reading 1:** 1 Peter 1:1-7 (page 857) (BO)
 <br>
 <br>
 <br>
-**Prayers for our church and the world** (ML)
+**Children's Talk** (BO)
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 26:1-30 (page 703)  (ML)
+**Hymn [PP 11]** The Power of the Cross / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
-**Hymn [PP 7]** How Deep the Father's Love
+**Prayers for our church and the world** (JA)
 <br>
 <br>
 <br>
-**Sermon:** "OUR SUBSTITUTE"  (BO) 
+**Bible reading 2:** Matthew 27:62-28:15 (page 706))  (GMcK)
 <br>
 <br>
 <br>
-**Hymn [Rej 207]** There Is a Fountain, Filled with Blood
+**Hymn [PP 47]** Jesus Paid It All
+<br>
+<br>
+<br>
+**Sermon:** "RESURRECTION AND HOMECOMING"  (BO) 
+<br>
+<br>
+<br>
+**Hymn Rej 386]** Amazing Grace
 <br>
 <br>
 <br>

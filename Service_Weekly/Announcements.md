@@ -3,19 +3,17 @@ layout: oos
 title: Announcements
 ---
  
-## 26 Feb 2017
+## 16 Apr 2017
 
-On behalf of the Session, Welcome to this service of worship, and special welcome to visitors
+He is Risen! He is Risen Indeed!
 
+On behalf of the Session, Welcome to this service of worship, and special welcome to visitors. We invite you to stay after the service and join us for a cuppa in the hall.
 
-1. Easy English Bible Study
-1. Wednesday - Prayer meeting at church 7.30pm 
+School holidays conclude and with Term 2 beginning we resume
+1. Easy English Bible Study on Wednesday
 1. Thursday - ESL
-1. Friday (3 March) World Day of Prayer is being held at the Baptist Church in Y Street Ashburton, at 1:30pm with afternoon tea afterwards
-1. Saturday Working bee at the church; our first with the SDBaptist mceeting here
-1. Sunday Communion
-1. Also next Sunday you are all invited to join us on a trip to Frankston by PT or car to see sand sculptures event on the foreshore (14.50 adults 11.50 concession (incl Seniors) ) more details from MarJo
-1. Ahead - Family Fun Day on 19th March
+1. Gaye & John McKenzie leave next Sunday for Japan and will be way till mid-May
+1. If you are wondering about giving to missions, we now have clearly labelled envelopes so that the managers can separate them from the normal offering for the work of the congregation
 
 Mission & Other Newsletters 
 
