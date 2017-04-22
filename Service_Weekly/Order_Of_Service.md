@@ -24,7 +24,10 @@ title: Order of Service
 <br>
 <br>
 <br>
-Video - Hope For Boroondara (BO)
+**Video** Hope For Boroondara (BO)
+<br>
+<br>
+<br>
 **Bible reading 1:** Matthew 4:18-22 (page 683) (BO)
 <br>
 <br>
@@ -33,8 +36,10 @@ Video - Hope For Boroondara (BO)
 <br>
 <br>
 <br>
-Video - Echoes of the Reformation (BO)
-
+**Video** Echoes of the Reformation (BO)
+<br>
+<br>
+<br>
 **Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
