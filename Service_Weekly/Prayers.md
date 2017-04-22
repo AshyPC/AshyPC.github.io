@@ -2,34 +2,38 @@
 layout: oos
 title: Ashburton Presbyterian Church
 ---
-## Ashburton Presbyterian Church  16 Apr 2017 
+## Ashburton Presbyterian Church  23 Apr 2017 
 
 ## Prayers for our church and the world
 
-__Psalm 74:22-23__ _Rise up, O God, and defend your cause; remember how fools mock you all day long. Do not ignore the clamour of your adversaries, the uproar of your enemies, which rises continually._
+__Psalm 86:11__ _Teach me Your way, Lord , that I may rely on Your faithfulness; give me an undivided heart, that I may fear Your Name._
 
 Let us pray:
 
 ### Thanks to God
-Father God, we thank You that today we are able to commemmorate the fact that You answered the psalmists prayer. We thank You that Jesus endured the mocking of fools, the clamour and uproar of enemies on our behalf. 
+Father God, we thank You that You are forever faithful and we can rely on Your faithfulness, as does the Psalmist. 
 
-We thank You for Jesus, Whom You raised by the same power You used to create the world in the beginning. We see that death could not hold Him, that darkness could not overcome the Light of the World for more than a few days, and even then only in order to fulfill Your supreme purposes.
+We thank You for Jesus Who was completely faithful and fully obedient to Your purposes, so that we could be rescued from the clutches of the enemy.
 
-We thank You Holy Spirit for Your Presence with us, in fulfillment of Jesus' promise to His original disciples. We thank You that You bring into our lives today the power, the effect of the Cross, and the full impact of the Father's forgiveness. We thank You that we are not excused as if we couldn't help being sinners, but fully forgiven, by recognising and accepting our sinful natures. Thank You that we are accepted solely because of Jesus' death and resurrection.
+We thank You for Your written Word, preserved through the ages, the record of Your dealings with wayward and rebellious mankind.
+
+We thank You that You have sent the Holy Spirit to be our teacher and guide, so that we may clearly understand Your ways.
 
 ### The World & The Church
-We thank You, Lord, for Your Church and we pray that around the world Your people would be encouraged to stand firm for the Truth of the Cross and the Resurrection. May the Church be united in this that Jesus died and that He was raised to life on the third day, according to the Scriptures, and that we bring a message of reconciliation rather than judgement.
+Lord, we know our weaknesses and we than You for Your Church as a means of grace, and for our fellow believers who encourage, admonish and support us in our walk of faith, whom we can pray for and encourage also. 
+
+We pray that with their help we may learn Your ways so that we may be undivided in our loyalty to our Risen King, and obedient to His call to make disciples. Help us to seize every opportunity to share the Good News of the Kingdom - reconciliation and peace with God.
 
 ### Ashburton
-As we resume some of our activities this week, Lord, we pray for our ESL students and our EEBS, as ways to serve those in our community as well as to share with them the Good News that Jesus is alive from the dead. We remember Suzanne, still seeking work to fulfill her visa requirements.
+Lord, we thank You for answered prayer for Suzanne, who has new work, and we pray that it will be enough to fulfill her visa requirements.
 
-We also pray for those amongt us in need of Your healing hand. We especially pray for Jim Gleeson and Muriel French now enjoying some respite care. May it be also a time of rest for her family who care for her most closely.
+We also pray for those amongst us in need of Your healing hand. We especially pray for Jim Gleeson and Muriel French now enjoying some respite care. May it be also a time of rest for her family who care for her most closely. We also want to liftr up to You Eric, Ruth, Michael, Bruce, Ken, Nola and Manfred. Even though they can't always be with us, we recognise them as members of the Body of Christ here.
 
-And we pray for safe travel for John & Gaye, that their trip would be relaxing and enjoyable, and that they would find good Christian fellowship on their journey.
+And we again pray safe travel for John & Gaye as they commence their trip today.
 
-We pray all these things Lord, knowing that You are the One Who answers, and that all the glory therefore belongs to You. In Jesus Name we pray, Amen.
+We pray all these things Lord, knowing that You lead us in our praying so that Your purposes will be fulfilled, for You are the One Who answers, and You are the One to Whom all praise belongs. In Jesus Name we pray, Amen.
 
-And now I will ask you to open your Bibles as Gaye McKenzie brings us today's second reading from Matthew.
+And now I will ask you to open your Bibles and follow today's second reading from the end of Matthew's Gospel on page 706.
 
 
 
