@@ -5,8 +5,6 @@ title: Order of Service
 ## Ashburton Presbyterian Church
 ### Order of Service 23 Apr 2017
 ### Barry Oakes/Mook Lee
-
-<br>
 <br>
 **Welcome / Call to worship**  (Heb 12:1-3) (BO)
 <br>
@@ -40,7 +38,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO) - children leave for Sunday School at end
+**Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO)
 <br>
 <br>
 <br>
