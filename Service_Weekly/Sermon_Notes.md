@@ -44,5 +44,5 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4. Dependance
+#### 4. Dependence
 

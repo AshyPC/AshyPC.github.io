@@ -4,7 +4,7 @@ title: Order of Service
 ---
 ## Ashburton Presbyterian Church
 ### Order of Service 23 Apr 2017
-### Barry Oakes
+### Barry Oakes/Mook Lee
 
 <br>
 <br>
