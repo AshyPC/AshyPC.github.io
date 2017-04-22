@@ -34,6 +34,7 @@ Video - Hope For Boroondara (BO)
 <br>
 <br>
 Video - Echoes of the Reformation (BO)
+
 **Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
