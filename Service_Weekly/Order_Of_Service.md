@@ -3,16 +3,16 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 16 Apr 2017
+### Order of Service 23 Apr 2017
 ### Barry Oakes
 
 <br>
 <br>
-**Welcome / Call to worship**  () (BO)
+**Welcome / Call to worship**  (Heb 12:1-3) (BO)
 <br>
 <br>
 <br>
-**Hymn [MP 76]** Christ the Lord Is Risen Today
+**Hymn [PP 3]** By Faith
 <br>
 <br>
 <br>
@@ -20,19 +20,21 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Announcements** (JA)
+**Announcements** (MS)
 <br>
 <br>
 <br>
-**Bible reading 1:** 1 Peter 1:1-7 (page 857) (BO)
+Video - Hope For Boroondara (BO)
+**Bible reading 1:** Matthew 4:18-22 (page 683) (BO)
 <br>
 <br>
 <br>
-**Children's Talk** (BO)
+**Children's Talk** (ML)
 <br>
 <br>
 <br>
-**Hymn [PP 11]** The Power of the Cross / collect offering during hymn  (BO) - children leave for Sunday School at end
+Video - Echoes of the Reformation (BO)
+**Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO) - children leave for Sunday School at end
 <br>
 <br>
 <br>
@@ -40,23 +42,23 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 27:62-28:15 (page 706))  (GMcK)
+**Bible reading 2:** Matthew 28:16-20 (page 706) (JA)
 <br>
 <br>
 <br>
-**Hymn [PP 47]** Jesus Paid It All
+**Hymn [PP 48]** Facing a Task Unfinished
 <br>
 <br>
 <br>
-**Sermon:** "RESURRECTION AND HOMECOMING"  (BO) 
+**Sermon:** "DISCIPLES MAKE DISCIPLES"  (ML) 
 <br>
 <br>
 <br>
-**Hymn Rej 386]** Amazing Grace
+**Hymn [PP 39]** This Life I Live
 <br>
 <br>
 <br>
-**Benediction** (BO)
+**Benediction** (ML)
 <br>
 <br>
 <br>
