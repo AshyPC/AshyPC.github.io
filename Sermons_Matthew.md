@@ -6,6 +6,7 @@ title: AshyPC Sermons - The Saviour King
 
  Date|The Gospel of Matthew: The Saviour King Series| Speaker
  -----:|---------------------|:--------------
+23 Apr 2017|[Disciples Make Disciples](https://www.dropbox.com/s/al09279k9pxmzek/2017.04.23_Matthew28_16-20.mp3?raw=1)|Mook Lee
   2 Apr 2017|[Jesus' Sufficiency In our Weakness](https://www.dropbox.com/s/gkuvxanv4xg0r96/2017.04.02_Matthew26_31-27%4010.mp3?raw=1)|Barry Oakes
 26 Mar 2017|[Our Substitute](https://www.dropbox.com/s/98bo42ghia3ncwx/2017.03.26_Matthew26_1-30.mp3?raw=1)|Barry Oakes
  19 Mar 2017|[Love Divides](https://www.dropbox.com/s/5dwq6a6nnzv429d/2017.03.19_Matthew25_31-46.mp3?raw=1)|Barry Oakes
