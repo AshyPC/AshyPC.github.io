@@ -15,8 +15,11 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
 
 #### 1. Character and Kingship
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
