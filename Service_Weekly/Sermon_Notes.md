@@ -2,29 +2,22 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 23 Apr 2017
+### Ashburton Presbyterian Church 30 Apr 2017
 
-### Mook Lee
+### Barry Oakes
 
-### "DISCIPLES MAKE DISCIPLES"  (Matthew 28:16-20)  
+### "Character Matters"  (2 Samuel 1:1-16)  
 
 #### Introduction
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-
-#### 1. Hesitation
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Confidence
-
+#### 1. Character and Kingship
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -34,7 +27,10 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Obedience
+#### 2. The character of the true King
+
+&nbsp; <br>
+&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -44,5 +40,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4. Dependence
+#### 3. Character and the King's people
+
+
 

@@ -3,14 +3,14 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 23 Apr 2017
-### Barry Oakes/Mook Lee
+### Order of Service 30 Apr 2017
+### Barry Oakes
 <br>
-**Welcome / Call to worship**  (Heb 12:1-3) (BO)
+**Welcome / Call to worship**  () (BO)
 <br>
 <br>
 <br>
-**Hymn [PP 3]** By Faith
+**Hymn [Rej 51]** Holy, Holy, Holy
 <br>
 <br>
 <br>
@@ -22,11 +22,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Video** Hope For Boroondara (BO)
-<br>
-<br>
-<br>
-**Bible reading 1:** Matthew 4:18-22 (page 683) (BO)
+**Bible reading 1:** 1 Samuel 31:1-13 (page 213) (BO)
 <br>
 <br>
 <br>
@@ -34,11 +30,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Video** Echoes of the Reformation (BO)
-<br>
-<br>
-<br>
-**Hymn [PP 38]** Across the Lands / collect offering during hymn  (BO)
+**Hymn [PP 37]** 10,000 Reasons / collect offering during hymn  (BO)
 <br>
 <br>
 <br>
@@ -46,23 +38,23 @@ title: Order of Service
 <br>
 <br>
 <br>
-**Bible reading 2:** Matthew 28:16-20 (page 706) (JA)
+**Bible reading 2:** 2 Samuel 1:1-16 (page 214) (MA)
 <br>
 <br>
 <br>
-**Hymn [PP 48]** Facing a Task Unfinished
+**Hymn [PP 41]** Ancient Words
 <br>
 <br>
 <br>
-**Sermon:** "DISCIPLES MAKE DISCIPLES"  (ML) 
+**Sermon:** "Character Matters"  (BO) 
 <br>
 <br>
 <br>
-**Hymn [PP 39]** This Life I Live
+**Hymn [Rej 515]** Search Me, O God
 <br>
 <br>
 <br>
-**Benediction** (ML)
+**Benediction** (BO)
 <br>
 <br>
 <br>
