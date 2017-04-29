@@ -13,9 +13,7 @@ Let us pray:
 ### Thanks to God
 Father God, we thank You that You are our Maker, and that we are still under Your care despite turning away from You.
 
-You are still God Almighty, King of the Universe but we have tried to build our own thrones and be rulers of our own lives.
-
-We thank You that You did not abandon us but sent Jesus to redeem us from our wilfulness.
+You are still God Almighty, King of the Universe but we have tried to build our own thrones and be rulers of our own lives. We thank You that You did not abandon us but sent Jesus to redeem us from our wilfulness.
 
 We thank You that all those whom You have called are counted as Your people, and graciously accepted into the family of God, with a sure hope of a home in heaven.
 
@@ -33,7 +31,7 @@ Here in Ashburton, Lord, we thank You for calling us to be a part of Your kingdo
 
 We acknowledge, Lord, that whatever we do needs to be in accordance with Your plan and purposes, knowing that You go before us to prepare the hearts of those we meet. We thank You that we do not venture out alone, but go with the Holy Spirit. May we therefore do all these things to further the Kingdoom and for Your glory alone. In Jesus Name we pray, Amen.
 
-And now I will ask you to open your Bibles as MarJo comes to bring us today's second reading from second Samuel.
+And now I will ask MarJo to bring us today's reading from second Samuel.
 
 
 
