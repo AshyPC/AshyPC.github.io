@@ -3,59 +3,49 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 30 Apr 2017
+### Order of Service 7 May 2017
 ### Barry Oakes
 <br>
-**Welcome / Call to worship**  () (BO)
+**Welcome / Call to worship**  () (Barry)
 <br>
 <br>
-<br>
-**Hymn [Rej 51]** Holy, Holy, Holy
-<br>
+**Hymn [MP 51]** Be Thou My Vision (traditional words)
 <br>
 <br>
 **Opening Prayer** (BO)
 <br>
 <br>
-<br>
-**Announcements** (MS)
-<br>
+Hymn [PP 43] My Heart Is Filled
 <br>
 <br>
-**Bible reading 1:** 1 Samuel 31:1-13 (page 213) (BO)
+**Announcements** (Margaret)
 <br>
 <br>
-<br>
-**Children's Talk** (ML)
-<br>
+**Bible reading 1:** Romans 5:1-5 (page 798) (Margaret)
 <br>
 <br>
-**Hymn [PP 37]** 10,000 Reasons / collect offering during hymn  (BO)
+**Prayer for the church and the world** (Mook)
 <br>
 <br>
-<br>
-**Prayers for our church and the world** (JA)
-<br>
+**Hymn [PP 44]** Cornerstone
 <br>
 <br>
-**Bible reading 2:** 2 Samuel 1:1-16 (page 214) (MA)
+**Bible reading 2:** 2 Samuel 1:17-27 (page 214) (Barry)
 <br>
 <br>
-<br>
-**Hymn [PP 41]** Ancient Words
-<br>
+**Sermon:** "Hope In Christ Means Grieving Well" (Barry)
 <br>
 <br>
-**Sermon:** "Character Matters"  (BO) 
+**Hymn [PP 2]** The Communion Song (Behold the Lamb)
 <br>
 <br>
-<br>
-**Hymn [Rej 515]** Search Me, O God
-<br>
+The Lord's Supper
 <br>
 <br>
-**Benediction** (BO)
+**Hymn [PP 2]** The Communion Song (Behold the Lamb) (verse 1 & chorus)<br>
 <br>
+<br>
+**Benediction** (Barry)
 <br>
 <br>
 **Exit**
