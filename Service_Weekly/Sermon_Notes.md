@@ -25,11 +25,9 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
 #### 2. Grief is gracious - it has no room for animosity - it thinks the best.
 
-&nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
@@ -46,7 +44,11 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
-&nbsp; <br>
 
 #### Conclusion: Faith under our grieving.
 
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
+&nbsp; <br>
