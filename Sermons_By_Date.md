@@ -9,6 +9,9 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+ 6 May 2017|[Hope In Christ Means Grieving Well](https://www.dropbox.com/s/rspqf6rok31i1yu/2017.05.07_2Samuel1_17-27.mp3?raw=1)|Barry Oakes (MP3 format)
+  |(https://www.dropbox.com/s/zac2nra0ptf3o67/2017.05.07_2Samuel1_17-27.ogg?raw=1)|Ogg Vorbis format
+30 Apr 2017|[Character Matters](https://www.dropbox.com/s/2e7vvoe16nvjvr8/2017.04.30_1Sam31-2Sam1.mp3?raw=1)|Barry Oakes
 23 Apr 2017|[Disciples Make Disciples](https://www.dropbox.com/s/al09279k9pxmzek/2017.04.23_Matthew28_16-20.mp3?raw=1)|Mook Lee
  2 Apr 2017|[Jesus' Sufficiency In our Weakness](https://www.dropbox.com/s/gkuvxanv4xg0r96/2017.04.02_Matthew26_31-27%4010.mp3?raw=1)|Barry Oakes
 26 Mar 2017|[Our Substitute](https://www.dropbox.com/s/98bo42ghia3ncwx/2017.03.26_Matthew26_1-30.mp3?raw=1)|Barry Oakes
