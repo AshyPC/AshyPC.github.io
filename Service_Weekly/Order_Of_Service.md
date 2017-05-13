@@ -3,46 +3,43 @@ layout: oos
 title: Order of Service
 ---
 ## Ashburton Presbyterian Church
-### Order of Service 7 May 2017
+### Order of Service 14 May 2017
 ### Barry Oakes
 <br>
 **Welcome / Call to worship**  () (Barry)
 <br>
 <br>
-**Hymn [MP 51]** Be Thou My Vision (traditional words)
+**Hymn [Rej 1]** Rejoice the Lord Is King
 <br>
 <br>
 **Opening Prayer** (BO)
 <br>
 <br>
-Hymn [PP 43] My Heart Is Filled
-<br>
-<br>
 **Announcements** (Margaret)
 <br>
 <br>
-**Bible reading 1:** Romans 5:1-5 (page 798) (Margaret)
+**Mission Spot** (Margaret)
 <br>
 <br>
-**Prayer for the church and the world** (Mook)
+**Bible reading 1:** 1 Samuel 11:5-11, 31:8-13 (pages 197, 214) (Barry)
 <br>
 <br>
-**Hymn [PP 44]** Cornerstone
+**Hymn [PP 4]** Come People of the Risen King
 <br>
 <br>
-**Bible reading 2:** 2 Samuel 1:17-27 (page 214) (Barry)
+**Prayer for the church and the world** (John)
 <br>
 <br>
-**Sermon:** "Hope In Christ Means Grieving Well" (Barry)
+**Bible reading 2:** 2 Samuel 2:1-11 (page 215) (Les)
 <br>
 <br>
-**Hymn [PP 2]** The Communion Song (Behold the Lamb)
+**Hymn [PP 12]** Jesus Is Lord
 <br>
 <br>
-The Lord's Supper
+**Sermon:** "God's Gracious King" (Barry)
 <br>
 <br>
-**Hymn [PP 2]** The Communion Song (Behold the Lamb) (verse 1 & chorus)<br>
+**Hymn [Rej 246] Crown Him with Many Crowns
 <br>
 <br>
 **Benediction** (Barry)

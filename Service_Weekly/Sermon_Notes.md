@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 7 May 2017
+### Ashburton Presbyterian Church 14 May 2017
 
 ### Barry Oakes
 
-### "HOPE IN CHRIST MEANS GRIEVING WELL"	(2 Samuel 1:17-27) 
+### "God's Gracious King" (2 Samuel 2:1-11) 
 
 #### Introduction
 
@@ -16,7 +16,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. Grief increases our longing & motivates us to action.
+#### 1. God's King does not grasp at power (verses 1-3)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -26,7 +26,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Grief is gracious - it has no room for animosity - it thinks the best.
+#### 2. God's King extends grace to his enemies (verses 4-7)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -36,7 +36,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Grief reveals what is in our hearts because we grieve most over what we love most.
+#### 3. God's King will draw opposition from rival kingdoms (verses 8-11)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -45,7 +45,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### Conclusion: Faith under our grieving.
+#### Conclusion.
 
 &nbsp; <br>
 &nbsp; <br>
