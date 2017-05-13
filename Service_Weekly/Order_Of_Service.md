@@ -39,7 +39,7 @@ title: Order of Service
 **Sermon:** "God's Gracious King" (Barry)
 <br>
 <br>
-**Hymn [Rej 246] Crown Him with Many Crowns
+**Hymn [Rej 246]** Crown Him with Many Crowns
 <br>
 <br>
 **Benediction** (Barry)
