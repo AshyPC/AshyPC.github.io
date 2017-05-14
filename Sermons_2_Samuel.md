@@ -7,8 +7,9 @@ title: AshyPC Sermons 2 Samuel
 ## 2 Samuel sermons in descending date order:
 
 
- Date|Link| Speaker
+ Date|Title & Link| Speaker
 -------------:|---------------------|:--------------
+
 14 May 2017|God's Gracious King|Barry Oakes
 [ MP3 ](https://www.dropbox.com/s/xr1jed2wc78x4ff/2017.05.14_2Samuel2_1-11.mp3?raw=1)
   |[Ogg ](https://www.dropbox.com/s/4deg528d5vao7x3/2017.05.14_2Samuel2_1-11.ogg?raw=1)
