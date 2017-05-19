@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 14 May 2017
+### Ashburton Presbyterian Church 21 May 2017
 
 ### Barry Oakes
 
-### "God's Gracious King" (2 Samuel 2:1-11) 
+### "Responding to the Kingdom" (2 Samuel 2:12-3:39) 
 
 #### Introduction
 
@@ -16,7 +16,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. God's King does not grasp at power (verses 1-3)
+#### 1. Abner - opposing the kingdom (2:12-3:5)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -26,7 +26,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. God's King extends grace to his enemies (verses 4-7)
+#### 2. Abner - seeking advantage from the kingdom (3:6-21)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -36,7 +36,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. God's King will draw opposition from rival kingdoms (verses 8-11)
+#### 3. Joab - subverting the kingdom (3:22-39)
 
 &nbsp; <br>
 &nbsp; <br>
@@ -45,7 +45,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### Conclusion.
+#### 4. God - establishing the kingdom
 
 &nbsp; <br>
 &nbsp; <br>
