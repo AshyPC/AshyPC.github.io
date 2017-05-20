@@ -2,40 +2,36 @@
 layout: oos
 title: Ashburton Presbyterian Church
 ---
-## Ashburton Presbyterian Church  14 May 2017 
+## Ashburton Presbyterian Church  21 May 2017 
 
 ## Prayers for our church and the world
 
-__Psalm 106:47-48__ _Save us, Lord our God, and gather us from the nations, that we may give thanks to Your holy Name and glory in Your praise._
+__Psalm 112:4__ _Even in darkness light dawns for the upright, for those who are gracious and compassionate and righteous._
 
 Let us pray:
 
 ### Thanks to God
-Father God, we thank You that we belong to You twice over - You are our Maker, and You are our Saviour. 
+O Lord God, we have come today by appointment to bring You praise and worship. We thank You that You are the God Who said "let there be light" and created the heavens and the earth out of nothing. We acknowledge Your Almighty power displayed in the Creation. You made man to be the pinnacle of that Creation, to rule under Your authority and to work within it to show Your glory.
 
-We thank You that You saved us for Your purposes - to give You thanks and praise and to magnify the Name of Jesus Christ, God the Son, the second Person of the Trinity. 
+But Adam and Eve rebelled and fell, so that there was darkness, sin and death which spoiled Your good Creation. 
 
-We thank You that Jesus became one of us, became one **with us** to bridge the gulf that separated us from You. He came to seek and save the lost, even if we didn't realise that we were lost in sin.
-
-We thank You, Holy Spirit, for bringing us back from death to life, away from our rebellion and back to submitting ourselves to the authority of God, and we thank You for placing us within the Body of Christ so that we may encourage one another to continue in the faith, so that we all may bring You honour and praise, both now on this earth, and later when all the saints are gathered in the great throne room of heaven.
+Nevertheless You provided the way of salvation and we thank You for Jesus Who came to redeem all that was lost in the Garden, and to bring about a New Creation with a body of people filling the City of God, the New Jerusalem, with glory, honour and praise for the King of Kings and Lord of Lords.
 
 ### The World & The Church
-Today, many are honouring mothers and celebrating motherhood. We thank You that You gave us the family, and we know that Jesus honoured His parents. 
+We thank You for bringing us out of the kingdom of darkness and into the marvellous light of the Kingdom of Your Son. By ourselves, we cannot be upright or gracious, but You have removed our rebellion and given us a righteousness not our own, so that we may now be compassionate and gracious to others, showing them the same grace and forgiveness that we have received from You through the Cross. 
 
-Paul commended Timothy's mother and grandmother for their consistent instruction in the true faith. Today and every day, we give You thanks for our mothers, near or far away, with us or departed.
+We thank You for the Body of Christ which is the army of the heavenly kingdom, regaining territory in this world. We thank You for spiritual weapons of prayer and Your Word, by which we can do our part in releasing captives from a defeated enemy. 
 
-For our church, Lord we also want to pray that You would grant us a greater fervour to seek out those not yet a part of Your kingdom, so that there are more and more from every tribe and nation to give You praise as the Psalmist encourages. 
+We pray that Your church would use those weapons graciously and compassionately as we seek out those Whom You have marked for salvation. We ask again that You would grant us a greater fervour to find them so that they can be part of the great multitude John saw in the Revelation, that there will be praise for the Lamb of God from every tribe and nation. 
 
 ### Ashburton
-Here in Ashburton, Lord, we thank You for calling us to be a part of Your kingdom work for the people of this area. We thank You for the results of "Hope For Booroondara", and pray that everything collected will be used to bless others. We pray for the people we met, and give thanks for all those who gave.
+Here in Ashburton, Lord, we thank You that You have shone Your light upon us and drawn us into Your kingdom. We pray that we likewise can bring compassion and grace into everything we do, individually and as a church.
 
-We pray for Ashley and the baby she is expecting. Please keep them both safe and well, and we pray for a trouble-free delivery in due time. 
+We thank You for watching over our travellers. Thank You for the safe return of the McKenzies, and we pray again for Tat and Julie in London. We also continue to uphold those in need of Your healing hand: Jim Gleeson, Muriel French and Sue Barber in particular. Thank You for restoring MarJo, and for those who filled the gap by taking the ESL classes.
 
-And we also pray for those in need of Your healing hand: Jim Gleeson, Muriel French and Sue Barber in particular. 
+Finally, Lord, we thank You for the leading of the Holy Spirit in our daily lives. We pray that as we read Your Word, as we speak to others, as we serve in practical ways, we would be doing all these things as unto the Lord, to further the Kingdom and for Your glory alone. In Jesus Name we pray, Amen.
 
-Finally, Lord, we pray that whatever You lead us to do day by day to honour the Name of Jesus, we can do it to the best of our ability, knowing that we are sharing Good News of eternal value. We thank You that wherever we go the Holy Spirit is with us. May we therefore do all these things to further the Kingdom and for Your glory alone. In Jesus Name we pray, Amen.
-
-And now I will ask Les to bring us today's reading from second Samuel.
+And now I will ask Gaye to bring us today's second reading from second Samuel.
 
 
 
