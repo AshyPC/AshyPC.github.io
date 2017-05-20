@@ -13,9 +13,7 @@ Let us pray:
 ### Thanks to God
 O Lord God, we have come today by appointment to bring You praise and worship. We thank You that You are the God Who said "let there be light" and created the heavens and the earth out of nothing. We acknowledge Your Almighty power displayed in the Creation. You made man to be the pinnacle of that Creation, to rule under Your authority and to work within it to show Your glory.
 
-But Adam and Eve rebelled and fell, so that there was darkness, sin and death which spoiled Your good Creation. 
-
-Nevertheless You provided the way of salvation and we thank You for Jesus Who came to redeem all that was lost in the Garden, and to bring about a New Creation with a body of people filling the City of God, the New Jerusalem, with glory, honour and praise for the King of Kings and Lord of Lords.
+But Adam and Eve rebelled and fell, so that there was darkness, sin and death which spoiled Your good Creation. Nevertheless You provided the way of salvation and we thank You for Jesus Who came to redeem all that was lost in the Garden, and to bring about a New Creation with a body of people filling the City of God, the New Jerusalem, with glory, honour and praise for the King of Kings and Lord of Lords.
 
 ### The World & The Church
 We thank You for bringing us out of the kingdom of darkness and into the marvellous light of the Kingdom of Your Son. By ourselves, we cannot be upright or gracious, but You have removed our rebellion and given us a righteousness not our own, so that we may now be compassionate and gracious to others, showing them the same grace and forgiveness that we have received from You through the Cross. 
