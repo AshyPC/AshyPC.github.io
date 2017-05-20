@@ -27,6 +27,8 @@ Here in Ashburton, Lord, we thank You that You have shone Your light upon us and
 
 We thank You for watching over our travellers. Thank You for the safe return of the McKenzies, and we pray again for Tat and Julie in London. We also continue to uphold those in need of Your healing hand: Jim Gleeson, Muriel French and Sue Barber in particular. Thank You for restoring MarJo, and for those who filled the gap by taking the ESL classes.
 
+
+
 Finally, Lord, we thank You for the leading of the Holy Spirit in our daily lives. We pray that as we read Your Word, as we speak to others, as we serve in practical ways, we would be doing all these things as unto the Lord, to further the Kingdom and for Your glory alone. In Jesus Name we pray, Amen.
 
 And now I will ask Gaye to bring us today's second reading from second Samuel.
