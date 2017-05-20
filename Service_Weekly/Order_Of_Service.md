@@ -30,6 +30,7 @@ Children's Talk (Barry)
 <br>
 <br>
 **Hymn [PP 49]** Jesus Is the King (new song - Song Select 3991826)
+<br>
 Offering during hymn / children leave for Sunday School at end
 <br>
 <br>
