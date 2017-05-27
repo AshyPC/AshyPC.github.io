@@ -18,8 +18,10 @@ We thank You for gathering us into the Kingdom of Your Son, making us a part of 
 
 Again this week we saw the destructive force of terrorism strike, not once, but twice. We pray that Your church would use different weapons - grace and compassion, prayer and the Word as we seek out those Whom You have marked for salvation. 
 
+We pray for Your protection over missionaries serving in high-risk locations. Some we can' t even name fully, but we know that You know exactly who they are. Lord we see that danger is not limited to certain places, but we pray especially for them to know the shelter of the Almighty, the Maker of heaven and earth.
+
 ### Ashburton
-Here in Ashburton, Lord, we ask again that You would grant us a greater fervour to find them so that they can join us in praise for the Lamb of God from every tribe and nation. We pray that these seats be filled with new believers so that this building may resound with Your praise!
+Here in Ashburton, Lord, we ask again that You would grant us a greater fervour to find the lost so that they can join us in praise for the Lamb of God from every tribe and nation. We pray that these seats be filled with new believers so that this building may resound with Your praise!
 
 We thank You that You have drawn us from different backgrounds, and You are building us into a united body working to see Your purposes fulfilled in this place. We thank You for ESL students drawn from many nations, and we thank You that You enable us to serve them and show Your care and concern to them as individuals.
 

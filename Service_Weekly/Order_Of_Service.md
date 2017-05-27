@@ -24,7 +24,7 @@ title: Order of Service
 <br>
 <br>
 <br>
-Children's Talk (Barry)
+**Children's Talk** (Barry)
 <br>
 <br>
 <br>
