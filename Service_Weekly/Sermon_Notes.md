@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 21 May 2017
+### Ashburton Presbyterian Church 28 May 2017
 
 ### Barry Oakes
 
-### "Responding to the Kingdom" (2 Samuel 2:12-3:39) 
+### "GOD'S KINGDOM, GOD'S WAY" (2 Samuel 4)
 
 #### Introduction
 
@@ -16,7 +16,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 1. Abner - opposing the kingdom (2:12-3:5)
+#### 1. Two men seeking the Kingdom their way.
 
 &nbsp; <br>
 &nbsp; <br>
@@ -26,7 +26,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 2. Abner - seeking advantage from the kingdom (3:6-21)
+#### 2. A Kingdom not established by human hands.
 
 &nbsp; <br>
 &nbsp; <br>
@@ -36,7 +36,7 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 3. Joab - subverting the kingdom (3:22-39)
+#### 3. A Kingdom not thwarted by human hands.
 
 &nbsp; <br>
 &nbsp; <br>
@@ -45,10 +45,12 @@ title: Sermon Notes
 &nbsp; <br>
 &nbsp; <br>
 
-#### 4. God - establishing the kingdom
+#### Conclusion
 
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
 &nbsp; <br>
+
+"GOD'S KINGDOM, GOD'S WAY" (2 Samuel 4)
