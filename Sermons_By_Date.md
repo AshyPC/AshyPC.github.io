@@ -9,6 +9,7 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 --------------:|---------------------|:--------------
+28 May 2017|[God's Kingdom God's Way](https://www.dropbox.com/s/zn25umfucypysk4/2017.05.28_2_Samuel_4.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
 21 May 2017|[Responding To The Kingdom](https://www.dropbox.com/s/17wsikl761vaukb/2017.05.21_2Samuel2_12-3_39.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
 14 May 2017|[God's Gracious King](https://www.dropbox.com/s/xr1jed2wc78x4ff/2017.05.14_2Samuel2_1-11.mp3?raw=1)|Barry Oakes (MP3 format)
   |[God's Gracious King](https://www.dropbox.com/s/4deg528d5vao7x3/2017.05.14_2Samuel2_1-11.ogg?raw=1)|Ogg Vorbis format
