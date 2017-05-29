@@ -18,6 +18,7 @@ title: Order of Service
 **Children's Talk** (Barry)
 
 **Hymn [PP 11]** In Christ Alone
+
 Offering during hymn / children leave for Sunday School at end
 
 **Prayer for the church and the world** (John)
