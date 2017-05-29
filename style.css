@@ -119,16 +119,6 @@ text-decoration: underline;
     border-color: #18596B;
 }
 
-#oos {
-	/* class for order of service prayers and sermon notes */
-	/* float: left; */
-	width: 100%;	
-	padding: 25px 5px 5px 5px;
-	margin-left: auto;
-	display: block;
-	clear: both;
-}
-
 .oos h3 {
 /* use for sermon notes heading block to be centred */
 padding: 0;
