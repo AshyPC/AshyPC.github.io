@@ -2,11 +2,11 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 28 May 2017
+### Ashburton Presbyterian Church Sunday 28 May 2017
 
 ### Barry Oakes
 
-### "GOD'S KINGDOM, GOD'S WAY" (2 Samuel 4)
+### "GOD’S KINGDOM, GOD’S WAY" (2 Samuel 4)
 
 * Introduction
 
