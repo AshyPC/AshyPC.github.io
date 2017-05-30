@@ -2,10 +2,10 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service 28 May 2017
+### Order of Service Sunday 28 May 2017
 ### Barry Oakes
 
-**Welcome / Call to worship**  () (Barry)
+**Welcome / Call to Worship** () (Barry)
 
 **Hymn [Rej 316]** A Mighty Fortress Is Our God
 
@@ -15,7 +15,7 @@ title: Order of Service
 
 **Bible reading 1:** Matthew 16:13-20 (page 694) (Barry)
 
-**Children's Talk** (Barry)
+**Children's talk** (Barry)
 
 **Hymn [PP 11]** In Christ Alone
 
