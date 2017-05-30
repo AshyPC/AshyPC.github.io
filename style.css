@@ -127,7 +127,7 @@ a {
 	flex-direction: column;
 }
 
-.oos p, .oos li {
+.oos p {
 	flex: 1;
 }
 
