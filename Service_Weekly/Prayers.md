@@ -9,7 +9,6 @@ title: Ashburton Presbyterian Church
 __Psalm 106:47__ _Save us, Lord our God, and gather us from the nations, that we may give thanks to your holy name and glory in your praise._
 
 Let us pray:
-
 ### Thanks to God
 O Lord our God, we thank You that You are our God, because You have a clear purpose - to see peoples of every nation praising Your Name. You have redeemed us from our former life, rescued us from a self-centred and futile existence so that we can join with You in seeing people from every tribe and tongue and people and nation gathered around the Heavenly throne. 
 
@@ -26,7 +25,6 @@ Here in Ashburton, Lord, we ask again that You would grant us a greater fervour 
 We thank You that You have drawn us from different backgrounds, and You are building us into a united body working to see Your purposes fulfilled in this place. We thank You for ESL students drawn from many nations, and we thank You that You enable us to serve them and show Your care and concern to them as individuals.
 
 We continue to uphold those in need of Your healing hand: Jim, Muriel, Ruth.
-
 Finally, Lord, we thank You for the leading of the Holy Spirit in our daily lives. We pray that as we read Your Word, as we speak to others, as we serve in practical ways, we would be in step with His leading - neither running ahead nor lagging behind. Keep us clear and firm, with the goal of Heaven in view, always aiming to further the Kingdom and see Jesus glorified. For it is in His precious Name that we pray, Amen.
 
 And now I will ask Sandra to bring us today's reading from second Samuel.
