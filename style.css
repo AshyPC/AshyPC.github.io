@@ -127,8 +127,12 @@ a {
 	flex-direction: column;
 }
 
-.oos p {
+.oos li {
 	flex: 1;
+}
+
+.oos p {
+	flex: 2;
 }
 
 .oos h3 {
