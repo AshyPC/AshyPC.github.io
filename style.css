@@ -119,6 +119,18 @@ a {
 	border-color: #18596B;
 }
 
+.oos {
+	position: absolute;
+	height: 100%;
+	width: 100%;
+	display: flex;
+	flex-direction: column;
+}
+
+.oos p {
+	flex: 1;
+}
+
 .oos h3 {
 	/* use for sermon notes heading block to be centred */
 	padding: 0;
