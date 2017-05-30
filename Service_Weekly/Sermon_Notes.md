@@ -8,7 +8,7 @@ title: Sermon Notes
 
 ### "GOD'S KINGDOM, GOD'S WAY" (2 Samuel 4)
 
-Introduction
+* Introduction
 
 1\. Two men seeking the Kingdom their way.
 
@@ -16,4 +16,4 @@ Introduction
 
 3\. A Kingdom not thwarted by human hands.
 
-Conclusion
+* Conclusion
