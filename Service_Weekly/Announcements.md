@@ -5,7 +5,6 @@ title: Announcements
  
 ## 28 May 2017
 
-
 On behalf of the Session, Welcome to this service of worship, and special welcome to visitors. We invite you to stay after the service and join us for a cuppa in the hall.
 
 
