@@ -130,6 +130,7 @@ a {
 	/* use for prayers & announcements heading block left align */
 	padding: 0;
 	font-size: 12px, "Times New Roman";
+	line-height: 150% 
 	color: #666;
 	font-weight: bold;
 	text-align: left;
