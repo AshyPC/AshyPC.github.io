@@ -1,5 +1,5 @@
 ---
-layout: oos
+layout: prayers
 title: Announcements
 ---
  

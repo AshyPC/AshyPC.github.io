@@ -1,5 +1,5 @@
 ---
-layout: oos
+layout: prayers
 title: Ashburton Presbyterian Church
 ---
 ## Ashburton Presbyterian Church  28 May 2017 
