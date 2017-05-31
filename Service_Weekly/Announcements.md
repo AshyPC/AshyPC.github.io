@@ -7,6 +7,7 @@ title: Announcements
 
 
 On behalf of the Session, Welcome to this service of worship, and special welcome to visitors. We invite you to stay after the service and join us for a cuppa in the hall.
+
 ### This week 
 1. Easy English Bible Study on Wednesday
 1. Thursday - ESL
