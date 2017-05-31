@@ -129,8 +129,8 @@ a {
 .base h3 {
 	/* use for prayers & announcements heading block left align */
 	padding: 0;
-	font-size: 12px, "Times New Roman";
-	line-height: 18px
+	font-size: 12px;
+	font-family: "sans";
 	color: #666;
 	font-weight: bold;
 	text-align: left;
@@ -140,7 +140,6 @@ a {
 	/* use for prayers & announcements body block align left*/
 	padding: 0;
 	font-size: 12px, "Times New Roman";
-	line-height: normal
 	color: #666;
 	font-weight: bold;
 	text-align: left;
