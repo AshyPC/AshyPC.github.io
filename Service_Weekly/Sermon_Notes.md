@@ -2,18 +2,18 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday 28 May 2017
+### Ashburton Presbyterian Church Sunday June 4th 2017
 
-### Barry Oakes
+### Mook
 
-### "GOD’S KINGDOM, GOD’S WAY" (2 Samuel 4)
+### "OUR PROTECTOR AND DEFENDER" (2 Samuel 5)
 
 * Introduction
 
-1\. Two men seeking the Kingdom their way.
+1\. God fulfils his promise
 
-2\. A Kingdom not established by human hands.
+2\. Flaws of humanity
 
-3\. A Kingdom not thwarted by human hands.
+3\. God's deliverance
 
 * Conclusion

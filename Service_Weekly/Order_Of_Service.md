@@ -2,34 +2,34 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday 28 May 2017
-### Barry Oakes
+### Order of Service Sunday June 4th 2017
+### Mook
 
 **Welcome / Call to Worship** () (Barry)
 
-**Hymn [Rej 316]** A Mighty Fortress Is Our God
+**Hymn [PP 1]** Before the Throne of God Above
 
-**Opening Prayer** (Barry)
+**Announcements** (Margaret S)
 
-**Announcements** (John)
+**Bible reading 1:** Revelations 21:1-4 (page 878) (Barry)
 
-**Bible reading 1:** Matthew 16:13-20 (page 694) (Barry)
-
-**Children's talk** (Barry)
-
-**Hymn [PP 11]** In Christ Alone
+**Hymn [MP 200]** Great is Thy Faithfulness
 
 Offering during hymn / children leave for Sunday School at end
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 4 (page 217) (SM)
+**Bible reading 2:** 2 Samuel 5 (page 217) (Mook)
 
-**Hymn [Rej 148]** You Servants of God
+**Hymn [Rej 582]** My Hope is Built
 
-**Sermon:** "God's Kingdom, God's Way" (Barry)
+**Sermon:** "Our Protector and Defender" (Mook)
 
-**Hymn [MP 51]** Be Thou My Vision (traditional words)
+**Hymn [PP 2]** Behold the Lamb (Communion Song)
+
+Communion
+
+**Hymn [PP 2]** Behold the Lamb (Communion Song) [Only verse 1]
 
 **Benediction** (Barry)
 
