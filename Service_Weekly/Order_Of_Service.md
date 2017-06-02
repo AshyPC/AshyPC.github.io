@@ -7,7 +7,7 @@ title: Order of Service
 
 **Welcome / Call to Worship** () (Barry)
 
-**Hymn [PP 1]** Before the Throne of God Above
+**Hymn [MP 975]** Before the Throne of God Above
 
 **Announcements** (Margaret S)
 
