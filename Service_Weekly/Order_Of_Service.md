@@ -27,7 +27,7 @@ Prayer of confession
 
 **Hymn [PP 47]** Jesus Paid It All
 
-Assurance of forgiveness
+**Assurance of forgiveness**
 
 **Prayer for the church and the world** (John)
 
