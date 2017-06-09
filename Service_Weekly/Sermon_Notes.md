@@ -2,18 +2,26 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday June 4th 2017
+### Ashburton Presbyterian Church Sunday June 11th 2017
 
-### Mook
+### Barry Oakes
 
-### "OUR PROTECTOR AND DEFENDER" (2 Samuel 5)
+### Sermon outline: "GOD AT THE CENTRE" (2 Samuel 6)
 
 * Introduction
 
-1\. God fulfils his promise
+1\. How God comes...
 
-2\. Flaws of humanity
+* a. God is not safe
 
-3\. God's deliverance
+* b. God is holy
+
+* c. God's presence is blessing
+
+2\. Responding to God's presence
+
+* a. with humility and joy
+
+* b. with dignity and misery
 
 * Conclusion
