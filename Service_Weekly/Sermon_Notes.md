@@ -12,16 +12,16 @@ title: Sermon Notes
 
 1\. How God comes...
 
-* a. God is not safe
+1\.1. God is not safe
 
-* b. God is holy
+1\.2. God is holy
 
-* c. God's presence is blessing
+1\.3. God's presence is blessing
 
 2\. Responding to God's presence
 
-* a. with humility and joy
+2\.1. with humility and joy
 
-* b. with dignity and misery
+2\.2. with dignity and misery
 
 * Conclusion
