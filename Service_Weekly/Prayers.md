@@ -6,27 +6,26 @@ title: Ashburton Presbyterian Church
 
 ## Prayers for our church and the world
 
-__Psalm 119:34__ _Give me understanding, so that I may keep your law and obey it with all my heart._
+__Psalm 127:1__ _Unless the Lord builds the house, the builders labour in vain. Unless the Lord watches over the city, the guards stand watch in vain._
 
 Let us pray:
 ### Thanks to God
-O Lord our God, we thank You that have created a world which was once perfect, but even now, groaning under the curse, it remains orderly and we thank You that You have made us to fit into this world and understand it. With the Psalmist we pray for understanding, so that we can honour You as Creator, but especially to honour You as the Giver of the perfect law, the only One worthy of our wholehearted obedience.
+O Lord our God, we thank You are the Only God, the Maker of Heaven and Earth. You are the Creator, the source of Life and the Sustainer of all that You have made. We thank You that You are "from everlasting to everlasting" and You are bringing together people from all over this world to honour and worship the Son Whom You have installed as King of Kings and Lord of Lords. 
 
-We thank You for Your mercy, in the face of Adam and Eve's rebellion, and in our deliberately following in their ways. We deserved only Your justice, but because Jesus went to the Cross on our behalf, and then rose from the dead to secure our salvation and grant us the inheritance which was properly His, we are released from the power, the penalty and the guilt of sin. 
+We thank You for Your mercy, in turning us from Your enemies into adopted members of Your heavenly household, so that we share in the inheritance which belongs to Jesus, in the indestructible life which is His and in the incredible priveleges of sonship, which You bestowed upon us when You graciously saved us from Your righteous judgement, through the Cross and the Resurrection.
 
 ### The World & The Church
-We are saddened as we see a world still in rebellion against Your law and Your creation, as evidenced by the attacks on Margaret Court this week. We pray for her and for others who make a public stand for the truth of Your Word. We pray that the anger of her opponents will be seen by more and more people for what it really is, and that they will turn away from those activists who malign Your people.
+** Queen's Birthday **
+As we come tomorrow to a public holiday for the Queen's Birthday, we give thanks for Her Majesty who bears the title of Defender of the Faith. We thank You that she submits to the heavenly authority of the Lord Jesus, and is the source of earthly sovereignty for our nation. May we respect the rightful authority of our governments at all levels, even whilst we hold our representatives to account for the discharge of their duties as servants of the Crown and of our national interests. We pray for wisdom in the decisions they make, for discernment of right and wrong as You declare, and for righteousness in all their dealings.  
 
-Help us to truly understand Your Word, so that we may recognise the Truth and challenge error, regardless of who says it. We pray that the Body of Christ would be able to support prominent people when they make a stand. May it be the Church militant instead of the Church dormant.
+We thank You for the church which You have established and built, to carry out Your will in this world. We see it so often weakened by error and apostacy, as we learn more about the Reformation and compare those times with the days in which we live. We pray for Your church to be strengthened, for the Scriptures to be understood as the sole source of Your revelation, the Truth of both Your justice and Your mercy, the basis of Your message of reconciliation. 
+
+May we work alongside You as You build and as You watch over Your Church. We pray that as members of the Body of Christ we would be able to support one another in sharing the Good News with a world which seems to relish the telling of bad news. 
 
 ### Ashburton
-Today we gather around Your table to celebrate the Lord's Supper. We thank You for Your provision of both Word and Sacraments for building up the Body. Holy Spirit we ask You to strengthen us, enable us to take in all that You provide for us via these means of grace. 
+We praise You for your steadfast love and great mercy towards us here in Ashburton, Lord. We ask You to show us the state of our work for the Kingdom and the way we live. We want to honour You in all things and we thank You that You are building **this house** and watching over **our city.** We pray for righteousness to prevail so that we are not distracted from the task of finding those whom You have marked for salvation, so that they may not only hear the Good News but also respond and thus walk in newness of life. And all these things we pray in Jesus precious Name, Amen.
 
-Help us also to remember that we are a body of people together, and not merely a collection of individuals. We want to pray for each other, encourage one another and build each other up in this most holy faith. We continue to uphold those in need of Your healing hand: Jim, Muriel, Ruth, and Eric. 
-
-Finally we ask that You help us keep the goal of Heaven in view, always aiming to further the Kingdom and see Jesus glorified. For it is in His precious Name that we pray, Amen.
-
-And now I will hand over to Mook for today's reading from second Samuel chapter 5.
+And now I will hand over to Barry for today's reading from second Samuel chapter 6.
 
 
 
