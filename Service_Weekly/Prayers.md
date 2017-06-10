@@ -15,7 +15,7 @@ O Lord our God, we thank You are the Only God, the Maker of Heaven and Earth. Yo
 We thank You for Your mercy, in turning us from Your enemies into adopted members of Your heavenly household, so that we share in the inheritance which belongs to Jesus, in the indestructible life which is His and in the incredible priveleges of sonship, which You bestowed upon us when You graciously saved us from Your righteous judgement, through the Cross and the Resurrection.
 
 ### The World & The Church
-** Queen's Birthday **
+__Queen's Birthday__
 As we come tomorrow to a public holiday for the Queen's Birthday, we give thanks for Her Majesty who bears the title of Defender of the Faith. We thank You that she submits to the heavenly authority of the Lord Jesus, and is the source of earthly sovereignty for our nation. May we respect the rightful authority of our governments at all levels, even whilst we hold our representatives to account for the discharge of their duties as servants of the Crown and of our national interests. We pray for wisdom in the decisions they make, for discernment of right and wrong as You declare, and for righteousness in all their dealings.  
 
 We thank You for the church which You have established and built, to carry out Your will in this world. We see it so often weakened by error and apostacy, as we learn more about the Reformation and compare those times with the days in which we live. We pray for Your church to be strengthened, for the Scriptures to be understood as the sole source of Your revelation, the Truth of both Your justice and Your mercy, the basis of Your message of reconciliation. 
