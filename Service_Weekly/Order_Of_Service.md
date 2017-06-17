@@ -33,6 +33,4 @@ Offering during hymn / children leave for Sunday School at end
 
 **Benediction** (Barry)
 
-Exit
-
 **Exit**
