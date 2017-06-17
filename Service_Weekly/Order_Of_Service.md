@@ -2,43 +2,37 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday June 11th 2017
+### Order of Service Sunday June 18th 2017
 ### Barry Oakes
 
-**Welcome / Call to Worship** () (Barry)
+**Welcome / Call to Worship** (Ps 21:1-7) (Barry)
 
-**Hymn [PP 44]** Cornerstone
+**Hymn [Rej 92]** Glory Be to God the Father
 
 **Opening prayer** (Barry)
 
 **Announcements** (Margaret S)
 
-**Bible reading 1:** Mark 12:28-34 (page 718) (Barry)
+**Bible reading 1:** Ephesians 2:1-10 (page 827) (Barry)
 
-**Bible reading 2:** John 14:15-23 (page 764) (Suzanne)
+**Children's talk** (Barry)
 
-**Children's talk** (Mook)
-
-**Hymn [PP 50]** Here I Am to Worship
+**Hymn [PP 10]** I Will Glory in My Redeemer
 
 Offering during hymn / children leave for Sunday School at end
 
-Prayer of confession
-
-**Hymn [PP 47]** Jesus Paid It All
-
-**Assurance of forgiveness**
-
 **Prayer for the church and the world** (John)
 
-**Bible reading 3:** 2 Samuel 6 (page 218) (Barry)
+**Bible reading 2:** 2 Samuel 7 (page 219) (John)
 
-**Hymn [Rej 243]** Lord Enthroned in Heavenly Splendour (to tune Rej 102)
+**Hymn [MP 624]** Take My Life and Let It Be (traditional words)
 
-**Sermon:** "GOD AT THE CENTRE" (Barry)
+**Sermon:** "WHAT GOD ACCEPTS; WHAT GOD GIVES" (Barry)
 
-**Hymn [PP 50]** Here I Am to Worship (v.1 & chorus) / transition to MP 51 Be Thou My Vision
+**Hymn [PP 39]** This Life I Live
 
 **Benediction** (Barry)
+
+Exit
 
 **Exit**
