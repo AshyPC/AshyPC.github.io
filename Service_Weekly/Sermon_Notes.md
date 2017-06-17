@@ -8,7 +8,7 @@ title: Sermon Notes
 
 ### Sermon outline:
 
-## "WHAT GOD ACCEPTS; WHAT GOD GIVES"    (2 Samuel 7)
+### "WHAT GOD ACCEPTS; WHAT GOD GIVES"    (2 Samuel 7)
 
 * Introduction
 
