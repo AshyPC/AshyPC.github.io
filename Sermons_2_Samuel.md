@@ -9,6 +9,7 @@ title: AshyPC Sermons 2 Samuel
 
  Date|Title & Link| Speaker
 -------------:|---------------------|:--------------
+18 Jun 2017|[What God Accepts; What God Gives](https://www.dropbox.com/s/2puq1d0yl5b8p1v/2017.06.18_2_Samuel_7.ogg?raw=1)|Barry Oakes
   4 Jun 2017|[Our Protector & Defender](https://www.dropbox.com/s/p7mno3s9z05tn78/2017.06.04_2_Samuel_5.mp3?raw=1)|Mook Lee 
 28 May 2017|[God's Kingdom God's Way](https://www.dropbox.com/s/zn25umfucypysk4/2017.05.28_2_Samuel_4.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
 21 May 2017|[Responding To The Kingdom](https://www.dropbox.com/s/17wsikl761vaukb/2017.05.21_2Samuel2_12-3_39.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
