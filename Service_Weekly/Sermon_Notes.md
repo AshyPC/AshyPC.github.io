@@ -2,20 +2,16 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday June 18th 2017
+### Ashburton Presbyterian Church Sunday June 25th 2017
 
 ### Barry Oakes
 
-### Sermon outline:
-
-### "WHAT GOD ACCEPTS; WHAT GOD GIVES"    (2 Samuel 7)
+### Sermon outline: "PROMISE FULFILLED" (2 Samuel 8)
 
 * Introduction
 
-1\. David's sense of duty
+1\. Promise fulfilled in dominion
 
-2\. God does not take take, but gives
+2\. Promise fulfilled in homage
 
-3\. David, lost in wonder
-
-* Conclusion
+3\. Promise fulfilled in righteous rule
