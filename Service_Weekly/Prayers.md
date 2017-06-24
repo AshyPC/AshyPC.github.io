@@ -17,7 +17,7 @@ We thank You that You care for us as individuals, but that You have placed us in
 As today Scots Church focuses on chaplaincy, so we too pray for the chaplains who minister in schools, hospitals, emergency services, military posts, even sporting clubs. Grant them wisdom and discernment as they listen with compassion, so that people who may not even come to a church can still know Your love and care in tough times.
 
 ### Ashburton
-We thank You that You are near us here in Ashburton also, even while You oversee Your whole creation. And so we ask for Your care for those who are in need - we remember Eric, Jim, Ruth, Hazel, Muriel, Michael and John.
+We thank You that You are near us here in Ashburton also, even while You oversee Your whole creation. And so we ask for Your care for those who are in need - we remember Eric, Jim, Ruth, Hazel, Muriel, Michael and John. We also lift up to You Mook & Ashley as the time comes for their baby to be born. We pray that Ashley continue in good health and that the delivery will be without complications.
 
 We thank You again for new students in our ESL classes. As we come to the end of a term, we pray for refreshment for our teachers and helpers during the break, and we pray that our students may grow in confidence as they practice their English in real life situations. And when they return we pray that we can continue to help them as they tell us about the difficulties they encountered. In Jesus Precious Name we pray, Amen.
 
