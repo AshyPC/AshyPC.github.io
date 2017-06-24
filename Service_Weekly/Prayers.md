@@ -2,11 +2,9 @@
 layout: prayers
 title: Ashburton Presbyterian Church
 ---
-## Ashburton Presbyterian Church 18 June 2017 
+## Prayers for our church and the world 25 June 2017 
 
-## Prayers for our church and the world
-
-__Psalm 138:7__ _Though I walk in the midst of trouble, you preserve my life. You stretch out your hand against the anger of my foes; with your right hand you save me._
+__Psalm 145:18__ _The Lord is near to all who call upon Him, To all who call upon Him in truth._
 
 Let us pray:
 ### Thanks to God
