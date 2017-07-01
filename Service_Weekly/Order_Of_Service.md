@@ -31,7 +31,7 @@ Offering during hymn / children leave for Sunday School at end
 
 The Lord's Supper
 
-**Hymn:** In Christ Alone
+**Hymn:** [PP 11] In Christ Alone
 
 **Benediction** (Barry)
 
