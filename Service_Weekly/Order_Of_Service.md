@@ -3,6 +3,7 @@ layout: oos
 title: Order of Service
 ---
 ### Order of Service Sunday July 2nd 2017
+### Communion Service
 ### Barry Oakes
 
 **Welcome / Call to Worship**  (Barry)
@@ -29,12 +30,10 @@ Offering during hymn / children leave for Sunday School at end
 
 **Hymn:** [PP 36] Jesus, Thank You
 
-The Lord's Supper
+**The Lord's Supper**
 
 **Hymn:** [PP 11] In Christ Alone
 
 **Benediction** (Barry)
-
-Exit
 
 **Exit**
