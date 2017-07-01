@@ -2,10 +2,10 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday July 2nd 2017 (early draft copied by JMA 26th June; later version copied Sat 1 July 16:09)
+### Order of Service Sunday July 2nd 2017
 ### Barry Oakes
 
-**Welcome / Call to Worship** () (Barry)
+**Welcome / Call to Worship**  (Barry)
 
 **Hymn [Rej 144]** Jesus Shall Reign Where'er the Sun
 

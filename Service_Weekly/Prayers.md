@@ -3,9 +3,11 @@ layout: prayers
 title: Prayers
 ---
 
-## Prayers for our church and the world 25 June 2017
+## Prayers for our church and the world 2nd July 2017
 
 __Psalm 145:18__ _The Lord is near to all who call upon Him, To all who call upon Him in truth._
+
+UNITY
 
 Let us pray:
 ### Thanks to God
