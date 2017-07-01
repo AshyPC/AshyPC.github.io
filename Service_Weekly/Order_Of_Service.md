@@ -27,7 +27,7 @@ Offering during hymn / children leave for Sunday School at end
 
 **Sermon:** "BEAUTY FOR ASHES" (Barry)
 
-**Hymn:** Jesus, Thank You
+**Hymn:** [PP 36] Jesus, Thank You
 
 The Lord's Supper
 
