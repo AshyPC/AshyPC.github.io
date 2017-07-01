@@ -2,16 +2,18 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday June 25th 2017
+### Ashburton Presbyterian Church Sunday July 2nd 2017 (early draft copied by JMA 26th June; later version copied Sat 1 July 16:09)
 
 ### Barry Oakes
 
-### Sermon outline: "PROMISE FULFILLED" (2 Samuel 8)
+### Sermon outline: "BEAUTY FOR ASHES" (2 Samuel 9)
 
 * Introduction
 
-1\. Promise fulfilled in dominion
+1\. A covenant not forgotten
 
-2\. Promise fulfilled in homage
+* 2.The King meets us in our shame
 
-3\. Promise fulfilled in righteous rule
+3\. A garment of praise...
+
+* Conclusion

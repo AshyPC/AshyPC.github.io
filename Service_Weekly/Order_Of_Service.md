@@ -2,35 +2,39 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday June 25th 2017
+### Order of Service Sunday July 2nd 2017 (early draft copied by JMA 26th June; later version copied Sat 1 July 16:09)
 ### Barry Oakes
 
-**Welcome / Call to Worship** (Ps 21:1-7) (Barry)
+**Welcome / Call to Worship** () (Barry)
 
-**Hymn [PP 51]** O Church Arise
+**Hymn [Rej 144]** Jesus Shall Reign Where'er the Sun
 
 **Opening prayer** (Barry)
 
-**Announcements** (John)
+**Announcements** (Margaret)
 
-**Bible reading 1:** Psalm 2 (page 384) (Barry)
+**Bible reading 1:** Isaiah 61:1-3 (page 529); Matthew 11:25-30 (page 689) (Eric)
 
-**Children's talk** (Barry)
-
-**Hymn [PP 52]** For the Cause
+**Hymn:** [PP 52] For the Cause (all musicians)
 
 Offering during hymn / children leave for Sunday School at end
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 8 (page 220) (Les)
+**Bible reading 2:** 2 Samuel 9 (page 220) (Gaye)
 
-**Hymn [Rej 1]** Rejoice, the Lord Is King!
+**Hymn [Rej 382]** Come Thou Fount (traditional words)
 
-**Sermon:** "PROMISE FULFILLED" (Barry)
+**Sermon:** "BEAUTY FOR ASHES" (Barry)
 
-**Hymn [Rej 254]** Jesus Comes with Clouds Descending
+**Hymn:** Jesus, Thank You
+
+The Lord's Supper
+
+**Hymn:** In Christ Alone
 
 **Benediction** (Barry)
+
+Exit
 
 **Exit**
