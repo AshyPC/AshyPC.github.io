@@ -3,7 +3,8 @@ layout: prayers
 title: Prayers
 ---
 
-## Prayers for our unity in the work of the Kingdom 2nd July 2017
+## Prayers for our unity in the work of the Kingdom 
+### 2nd July 2017
 
 __Eph 2:13-14__ _ But now in Christ Jesus you who once were far away have been brought near by the blood of Christ. 
 For he himself is our peace, who has made the two groups one and has destroyed the barrier, the dividing wall of hostility_
