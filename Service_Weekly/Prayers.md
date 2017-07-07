@@ -3,8 +3,8 @@ layout: prayers
 title: Prayers
 ---
 
-## Prayers for our unity in the work of the Kingdom 
-### 2nd July 2017
+## Prayers for our World and the Church 
+### 9th July 2017
 
 __Col 1:9-10__ _... we have not ceased to pray for you and to ask that you may be filled with the knowledge of His will in all spiritual wisdom and understanding, so that you will walk in a manner worthy of the Lord, to please Him in all respects, bearing fruit in every good work and increasing in the knowledge of God ..._
 
