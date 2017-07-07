@@ -2,7 +2,7 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, July 9th., 2017 (copied by JMA 7th July 19:45)
+### Order of Service Sunday, July 9th., 2017
 ### Barry Oakes
 
 **Welcome / Call to Worship** (1 Chron 29:11-13) (Barry)
@@ -30,7 +30,5 @@ title: Order of Service
 **Hymn [Rej 474]** Rise Up, You Saints of God
 
 **Benediction** (Barry)
-
-Exit
 
 **Exit**

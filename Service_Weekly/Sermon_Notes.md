@@ -2,7 +2,7 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, July 9th., 2017 (copied by JMA 7th July 19:45)
+### Ashburton Presbyterian Church Sunday, July 9th., 2017
 
 ### Barry Oakes
 

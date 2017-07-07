@@ -6,26 +6,26 @@ title: Prayers
 ## Prayers for our unity in the work of the Kingdom 
 ### 2nd July 2017
 
-__Eph 2:13-14__ _ But now in Christ Jesus you who once were far away have been brought near by the blood of Christ. 
-For he himself is our peace, who has made the two groups one and has destroyed the barrier, the dividing wall of hostility_
-
-UNITY
+__Col 1:9-10__ _... we have not ceased to pray for you and to ask that you may be filled with the knowledge of His will in all spiritual wisdom and understanding, so that you will walk in a manner worthy of the Lord, to please Him in all respects, bearing fruit in every good work and increasing in the knowledge of God ..._
 
 Let us pray:
 ### Thanks to God
-Lord Almighty, we have gathered today to worship You as Father, Son and Holy Spirit - the unity of Three In One.
+God Almighty, You are Lord of both time and eternity, and all things in our world are present to You. We acknowledge that You are infinite, but we are finite and limited to this realm of time. You know the end from the beginning, and all that You do will serve Your purposes and achieve Your goals. We have gathered today to worship You Who are far above all we can imagine, and yet You have bestowed Your love upon us.
 
-You initially created a world and mankind to reflect that same unity in all things. But because of sin there came division and separation, and man turned his back on You. But today we also celebrate the Lord's Supper, remembering what Jesus did on the Cross to bring peace again between God and man, and between man and his neighbour. Even in this we see the united work of the Godhead - Father, Son and Holy Spirit working together to bring salvation to mankind, and to spread the Good News to all the world. 
+You created this world and mankind to serve You, which is our highest purpose. Although sin intervened, today we stand redeemed by what Jesus did on the Cross, and what You did in raising him up on the Third Day. 
+
+### The World and the Church
+We thank You that You planned for Your people to be united, but also to be wise in the ways of heaven, rather than the ways of the world. We thank You for Your Church, Your witness to a world that seeks for true purpose, yet refuses to look in the right direction. We pray with Paul that Your people would be filled with the knowledge of Your will along with spiritual wisdom and understanding. May the Church represent Her Lord in a worthy manner, even when enemies attack it unmercifully. May it please You in all respects, may it bear fruit in every good work that You call upon it to do.
+
+We pray today for Your persecuted Church, where Your people suffer daily. We remember groups like MERF, Barnabas Fund, Pioneers and many others working in dangerous circumstances. We may not have personal knowledge of what Your people are going through, but we thank You that we are shielded here and we pray Your protection for those who are not.
 
 ### Ashburton
-We thank You that today we see another aspect of that unity in the Church here as we join Ashburton and South Camberwell congregations into one, so that the work of the Kingdom can be extended. We thank You that Jesus has made us into one. We thank You that as we have met together, we have sensed the unity that comes from the work of the Holy Spirit in our hearts, so that we all seek to serve Jesus as King of Kings and Lord of His Church.
+We thank You again for the joining of Ashburton and South Camberwell congregations into one. We pray that we may all grow in our knowledge of You and Your purposes, so that we all seek to serve Jesus as we increase in our knowledge of God.
 
-We thank you that you have broken down every dividing wall of prejudice and hostility. As we continue to work and worship together, we pray that You would lead us, so that we do not focus on our differences in social or ethnic backgrounds to make artificial distinctions.
+We pray for our various needs, knowing that You supply all our needs as individuals - whether spiritual or material. As we grow to know each other in closer fellowship, we pray that You would guide us in praying for each other, supporting one another and encouraging one another towards the goal and purpose of "bearing fruit in every good work". 
 
-Help us to live in peace and build friendly relationships with all irrespective of their backgrounds. Strengthen our resolve to work in unity, to demonstrate that Jesus is our peace, to achieve Your purposes and extend Your kingdom.
+We pray for Your Presence in our homes and workplaces, our schools and our leisure activities. We pray that in all circumstances and places we may be purposeful witnesses of the new kingdom of heaven, so that others may see that we triumph only through Jesus. For it is in His Name we pray, Amen.
 
-In Jesus Precious Name we pray, Amen.
-
-And now I will ask Gaye to bring today's reading from second Samuel chapter 9. 
+And now I will ask Nam to bring our next reading from second Samuel chapter 10. 
 
 
