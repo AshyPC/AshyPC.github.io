@@ -2,38 +2,35 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday July 2nd 2017
-### Communion Service
+### Order of Service Sunday, July 9th., 2017 (copied by JMA 7th July 19:45)
 ### Barry Oakes
 
-**Welcome / Call to Worship**  (Barry)
+**Welcome / Call to Worship** (1 Chron 29:11-13) (Barry)
 
-**Hymn [Rej 144]** Jesus Shall Reign Where'er the Sun
+**Hymn:** [MP 37] 10,0000 Reasons
 
 **Opening prayer** (Barry)
 
 **Announcements** (Margaret)
 
-**Bible reading 1:** Isaiah 61:1-3 (page 529); Matthew 11:25-30 (page 689) (Eric)
+**Bible reading 1:** Galatians 6:1-10 (page 826) (Barry)
 
-**Hymn:** [PP 52] For the Cause (all musicians)
+**Children's talk** (Mook)
 
-Offering during hymn / children leave for Sunday School at end
+**Hymn:** [MP 44] Cornerstone / Offering during hymn
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 9 (page 220) (Gaye)
+**Bible reading 2:** 2 Samuel 10 (page 221) (Nam)
 
-**Hymn [Rej 382]** Come Thou Fount (traditional words)
+**Hymn [Rej 32]** God Is Our Strength and Refuge
 
-**Sermon:** "BEAUTY FOR ASHES" (Barry)
+**Sermon:** "DOING GOOD, KNOWING THE LORD DOES RIGHT" (Barry)
 
-**Hymn:** [PP 36] Jesus, Thank You
-
-**The Lord's Supper**
-
-**Hymn:** [PP 11] In Christ Alone
+**Hymn [Rej 474]** Rise Up, You Saints of God
 
 **Benediction** (Barry)
+
+Exit
 
 **Exit**

@@ -2,18 +2,16 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday July 2nd 2017
+### Ashburton Presbyterian Church Sunday, July 9th., 2017 (copied by JMA 7th July 19:45)
 
 ### Barry Oakes
 
-### Sermon outline: "BEAUTY FOR ASHES" (2 Samuel 9)
+### Sermon outline: "DOING GOOD, KNOWING THE LORD DOES RIGHT" (2 Samuel 10)
 
 * Introduction
 
-1\. A covenant not forgotten
+1\. Kindness is not just for the family of Christ
 
-* 2.The King meets us in our shame
+2\. Kindness can meet opposition.
 
-3\. A garment of praise...
-
-* Conclusion
+3\. In the midst of it all, “The LORD will do what is good in his sight.”
