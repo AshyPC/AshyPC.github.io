@@ -7,7 +7,7 @@ title: Order of Service
 
 **Welcome / Call to Worship** (1 Chron 29:11-13) (Barry)
 
-**Hymn:** [MP 37] 10,0000 Reasons
+**Hymn:** [PP 37] 10,0000 Reasons
 
 **Opening prayer** (Barry)
 
@@ -17,7 +17,7 @@ title: Order of Service
 
 **Children's talk** (Mook)
 
-**Hymn:** [MP 44] Cornerstone / Offering during hymn
+**Hymn:** [PP 44] Cornerstone / Offering during hymn
 
 **Prayer for the church and the world** (John)
 
