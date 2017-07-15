@@ -24,3 +24,6 @@ title: Sermon Notes
 <br>
 <br>
 #### 3. Failed King
+<br>
+<br>
+<br>
