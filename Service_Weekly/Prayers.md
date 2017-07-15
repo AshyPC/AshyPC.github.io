@@ -4,15 +4,13 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 9th July 2017
+### 16th July 2017
 
-__Col 1:9-10__ _... we have not ceased to pray for you and to ask that you may be filled with the knowledge of His will in all spiritual wisdom and understanding, so that you will walk in a manner worthy of the Lord, to please Him in all respects, bearing fruit in every good work and increasing in the knowledge of God ..._
+__1 Thess 5:16-18__ _Rejoice always; pray without ceasing; in everything give thanks; for this is God's will for you in Christ Jesus._
 
 Let us pray:
 ### Thanks to God
-God Almighty, You are Lord of both time and eternity, and all things in our world are present to You. We acknowledge that You are infinite, but we are finite and limited to this realm of time. You know the end from the beginning, and all that You do will serve Your purposes and achieve Your goals. We have gathered today to worship You Who are far above all we can imagine, and yet You have bestowed Your love upon us.
-
-You created this world and mankind to serve You, which is our highest purpose. Although sin intervened, today we stand redeemed by what Jesus did on the Cross, and what You did in raising him up on the Third Day. 
+God in Heaven, You are Lord of All, and Your throne is beyond our reach, yet You are present with us as we gather. Although You hide Yourself from mankind because of sin, You reveal Yourself to those Whom You have redeemed. We thank You that You have called us out of darkness and into Your mavellous light, turned us from Your enemies into friends, and reconciled us to one another. We thank You that You have set Your love upon us and despite our daily imperfections, You remain faithful on account of Jesus and His victory at the Cross. 
 
 ### The World and the Church
 We thank You that You planned for Your people to be united, but also to be wise in the ways of heaven, rather than the ways of the world. We thank You for Your Church, Your witness to a world that seeks for true purpose, yet refuses to look in the right direction. We pray with Paul that Your people would be filled with the knowledge of Your will along with spiritual wisdom and understanding. May the Church represent Her Lord in a worthy manner, even when enemies attack it unmercifully. May it please You in all respects, may it bear fruit in every good work that You call upon it to do.
@@ -26,6 +24,6 @@ We pray for our various needs, knowing that You supply all our needs as individu
 
 We pray for Your Presence in our homes and workplaces, our schools and our leisure activities. We pray that in all circumstances and places we may be purposeful witnesses of the new kingdom of heaven, so that others may see that we triumph only through Jesus. For it is in His Name we pray, Amen.
 
-And now I will ask Nam to bring our next reading from second Samuel chapter 10. 
+And now Mook will bring our next reading from second Samuel chapter 11. 
 
 

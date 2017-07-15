@@ -2,7 +2,7 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, July 16th., 2017 (copied by JMA 13th July 13:50)
+### Ashburton Presbyterian Church Sunday, July 16th., 2017
 
 ### Mook
 
@@ -10,8 +10,8 @@ title: Sermon Notes
 
 * Introduction
 
-* 1.
+* 1. Wandering Heart
 
-* 2.
+* 2. Perseverance for sin
 
-* 3.
+* 3. Failed King
