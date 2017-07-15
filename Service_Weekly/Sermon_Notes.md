@@ -7,7 +7,7 @@ title: Sermon Notes
 ### Mook Lee
 
 ### Sermon outline: "THE PERFECT KING... NOT!" (2 Samuel 11)
-<br>
+####
 #### Introduction
 <br>
 <br>
