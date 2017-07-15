@@ -8,10 +8,27 @@ title: Sermon Notes
 
 ### Sermon outline: "THE PERFECT KING... NOT!" (2 Samuel 11)
 
-* Introduction
+#### Introduction
 
-* 1\. Wandering Heart
 
-* 2\. Perseverance for sin
 
-* 3\. Failed King
+
+#### 1. Wandering Heart
+
+
+
+
+
+
+
+#### 2. Perseverance for sin
+
+
+
+
+
+
+
+
+
+#### 3. Failed King
