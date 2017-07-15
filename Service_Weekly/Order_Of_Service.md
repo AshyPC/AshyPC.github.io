@@ -2,33 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, July 9th., 2017
-### Barry Oakes
+### Order of Service Sunday, July 16th., 2017 (copied by JMA 13th July 13:50)
+### Mook
 
-**Welcome / Call to Worship** (1 Chron 29:11-13) (Barry)
+**Welcome / Call to Worship** (Psalm 18:30-36) (Mook)
 
-**Hymn:** [PP 37] 10,0000 Reasons
+**Hymn [Rej 1]** Rejoice the Lord is King
 
-**Opening prayer** (Barry)
+**Opening prayer** (Mook)
 
 **Announcements** (Margaret)
 
-**Bible reading 1:** Galatians 6:1-10 (page 826) (Barry)
+**Bible reading 1:** Romans 5:12-21 (page 798) (Mook)
 
-**Children's talk** (Mook)
-
-**Hymn:** [PP 44] Cornerstone / Offering during hymn
+**Hymn [Rej 582]** My Hope is Built / Offering during hymn
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 10 (page 221) (Nam)
+**Bible reading 2:** 2 Samuel 11 (page 221) (???)
 
-**Hymn [Rej 32]** God Is Our Strength and Refuge
+**Hymn [MP 975]** Before the throne of God above
 
-**Sermon:** "DOING GOOD, KNOWING THE LORD DOES RIGHT" (Barry)
+**Sermon:** "THE PERFECT KING... NOT!" (Mook)
 
-**Hymn [Rej 474]** Rise Up, You Saints of God
+**Hymn [PP 7]** How Deep the Father's Love
 
-**Benediction** (Barry)
+**Benediction** (Mook)
+
+Exit
 
 **Exit**

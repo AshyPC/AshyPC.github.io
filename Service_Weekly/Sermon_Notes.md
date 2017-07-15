@@ -2,16 +2,16 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, July 9th., 2017
+### Ashburton Presbyterian Church Sunday, July 16th., 2017 (copied by JMA 13th July 13:50)
 
-### Barry Oakes
+### Mook
 
-### Sermon outline: "DOING GOOD, KNOWING THE LORD DOES RIGHT" (2 Samuel 10)
+### Sermon outline: "THE PERFECT KING... NOT!" (2 Samuel 11)
 
 * Introduction
 
-1\. Kindness is not just for the family of Christ
+* 1.
 
-2\. Kindness can meet opposition.
+* 2.
 
-3\. In the midst of it all, “The LORD will do what is good in his sight.”
+* 3.
