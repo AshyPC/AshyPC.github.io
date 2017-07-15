@@ -3,7 +3,7 @@ layout: oos
 title: Order of Service
 ---
 ### Order of Service Sunday, July 16th., 2017
-### Mook
+### Mook Lee
 
 **Welcome / Call to Worship** (Psalm 18:30-36) (Mook)
 
