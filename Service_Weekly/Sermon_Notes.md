@@ -4,7 +4,7 @@ title: Sermon Notes
 ---
 ### Ashburton Presbyterian Church Sunday, July 16th., 2017
 
-### Mook
+### Mook Lee
 
 ### Sermon outline: "THE PERFECT KING... NOT!" (2 Samuel 11)
 

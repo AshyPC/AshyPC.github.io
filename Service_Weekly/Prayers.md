@@ -23,19 +23,23 @@ We pray for our various needs, and in particular we remember Eric Edwards this w
 
 Let us close our time of prayer by reciting the words which Jesus taught His disciples
 
-Our Father, Who art in heaven,
-Hallowed be Thy Name.
+Our Father, Who art in heaven, Hallowed be Thy Name.
+
 Thy Kingdom come. 
-Thy will be done on earth, 
-As it is in heaven.
+
+Thy will be done on earth, As it is in heaven.
+
 Give us this day our daily bread,
+
 And forgive us our trespasses,
 As we forgive those that trespass against us. 
-Lead us not into temptation, 
-But deliver us from evil. 
+
+Lead us not into temptation, But deliver us from evil. 
+
 For thine is the kingdom, 
+
 The power, and the glory, 
-For ever and ever. 
-Amen.
+
+For ever and ever. Amen.
 
 And now Mook will bring our next reading from second Samuel chapter 11. 
