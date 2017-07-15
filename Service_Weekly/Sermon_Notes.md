@@ -10,8 +10,8 @@ title: Sermon Notes
 
 * Introduction
 
-* 1. Wandering Heart
+* 1\. Wandering Heart
 
-* 2. Perseverance for sin
+* 2\. Perseverance for sin
 
-* 3. Failed King
+* 3\. Failed King
