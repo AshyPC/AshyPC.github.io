@@ -11,21 +11,12 @@ title: Sermon Notes
 #### Introduction
 <br>
 <br>
-<br>
-<br>
-<br>
 #### 1. Wandering Heart
 <br>
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
 #### 2. Perseverance for sin
-<br>
-<br>
-<br>
 <br>
 <br>
 <br>
