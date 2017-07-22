@@ -2,31 +2,43 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, July 16th., 2017
-### Mook Lee
+### Order of Service Sunday, July 23rd., 2017 (copied by JMA 20th July 23:40)
+### Barry Oakes
 
-**Welcome / Call to Worship** (Psalm 18:30-36) (Mook)
+**Welcome / Call to Worship** (PS 96) (Barry)
 
-**Hymn [Rej 1]** Rejoice the Lord is King
+**Hymn [PP 4]** Come People of the Risen King
 
-**Opening prayer** (Mook)
+**Announcements** (John)
 
-**Announcements** (Margaret)
+Prayer of Confession / Assurance
 
-**Bible reading 1:** Romans 5:12-21 (page 798) (Seng Tan)
+**Hymn [PP 47]** Jesus Paid It All
 
-**Hymn [Rej 582]** My Hope is Built on Nothing Less / Offering during hymn
+**Bible reading 1:** Psalm 51 (page 405) (Barry)
+
+**Children's talk** ()
+
+**Hymn [PP 24]** Lamb of God
+
+Offering during hymn / children go to Sunday School
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 11 (page 222) (Mook)
+**Bible reading 2:** 2 Samuel 12 (page 222) ()
 
-**Hymn [MP 975]** Before the Throne of God Above
+**Hymn [Rej 386]** Amazing Grace
 
-**Sermon:** "THE PERFECT KING... NOT!" (Mook)
+**Video:** 'It's a Slow Fade'
 
-**Hymn [PP 7]** How Deep the Father's Love
+**Sermon:** "God's Scandalous Grace" (Barry)
 
-**Benediction** (Mook)
+**Hymn [PP 7]** How Deep the Father's Love...transition to...
+
+**Hymn [PP 53]** Create in Me a Clean Heart (Keith Green)
+
+**Benediction** (Barry)
+
+Exit
 
 **Exit**

@@ -2,16 +2,20 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, July 16th., 2017
+### Ashburton Presbyterian Church Sunday, July 23rd., 2017 (copied by JMA 20th July 23:40)
 
-### Mook Lee
+### Barry Oakes
 
-### Sermon outline: "THE PERFECT KING... NOT!" (2 Samuel 11)
- 
+### Sermon outline:
+
+* "GOD'S SCANDALOUS GRACE"    (2 Samuel 12)
+
 * Introduction
 
-* 1. Wandering Heart
+1\. It's a slow fade
 
-* 2. Perseverance for sin
+2\. Nathan's case and David's guilt
 
-* 3. Failed King
+3\. God's scandalous grace
+
+* Conclusion
