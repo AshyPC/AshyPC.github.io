@@ -9,6 +9,11 @@ title: AshyPC Sermons Chronological
 
  Date|Link| Speaker
 --------------:|---------------------|:--------------
+23 Jul 2017|[God's Scandalous Grace](https://www.dropbox.com/s/uq4op73tu0frpbj/2017.07.23_2_Samuel_12.ogg?raw=1)|Barry Oakes
+16 Jul 2017|[The Perfect King...Not!](https://www.dropbox.com/s/6selevm7auo7gj4/2017.07.16_2_Samuel_11.ogg?raw=1)|Mook Lee
+  9 Jul 2017|[Doing Good, Knowing The LORD Does Right](https://www.dropbox.com/s/boff9vh7gunj636/2017.07.09_2_Samuel_10.ogg?raw=1)|Barry Oakes
+  2 Jul 2017|[Beauty For Ashes](https://www.dropbox.com/s/izy24drejtmq116/2017.07.02_2_Samuel_9.ogg?raw=1)|Barry Oakes
+25 Jun 2017|[Promise Fulfilled](https://www.dropbox.com/s/z9y1ti3jiaejjb9/2017.06.25_2_Samuel_8.ogg?raw=1)|Barry Oakes
  18 Jun 2017|[What God Accepts; What God Gives](https://www.dropbox.com/s/2puq1d0yl5b8p1v/2017.06.18_2_Samuel_7.ogg?raw=1)|Barry Oakes
   4 Jun 2017|[Our Protector & Defender](https://www.dropbox.com/s/p7mno3s9z05tn78/2017.06.04_2_Samuel_5.mp3?raw=1)|Mook Lee 
 28 May 2017|[God's Kingdom God's Way](https://www.dropbox.com/s/zn25umfucypysk4/2017.05.28_2_Samuel_4.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
