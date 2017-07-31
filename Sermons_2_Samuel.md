@@ -9,6 +9,7 @@ title: AshyPC Sermons 2 Samuel
 
  Date|Title & Link| Speaker
 -------------:|---------------------|:--------------
+30 Jul 2017|[Sowing, Reaping & Sowing Again](https://www.dropbox.com/s/jaop6jpde6ixv7s/2017.07.30_2_Samuel_13.ogg?raw=1)|Barry Oakes
 23 Jul 2017|[God's Scandalous Grace](https://www.dropbox.com/s/uq4op73tu0frpbj/2017.07.23_2_Samuel_12.ogg?raw=1)|Barry Oakes
 16 Jul 2017|[The Perfect King...Not!](https://www.dropbox.com/s/6selevm7auo7gj4/2017.07.16_2_Samuel_11.ogg?raw=1)|Mook Lee
   9 Jul 2017|[Doing Good, Knowing The LORD Does Right](https://www.dropbox.com/s/boff9vh7gunj636/2017.07.09_2_Samuel_10.ogg?raw=1)|Barry Oakes
