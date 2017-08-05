@@ -4,24 +4,24 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 30th July 2017
+### 6th August 2017
 
-__Psalm 26:2__ _Examine me, O Lord , and try me; Test my mind and my heart._
+__Rev 19:9__ _Then the angel said to me, 'Write this: Blessed are those who are invited to the wedding supper of the Lamb!' And he added, 'These are the true words of God.'_
 
 Let us pray:
 ### Thanks to God
-Heavenly Father, You are Lord of all, You see all, and You know the end from the beginning. We live in Your Presence, and nothing can be hidden from You. But because of Your great love for us who deserve nothing more than Your justice, we can remain in Your Presence without being consumed. Therefore with David, we can dare to ask that You try us and see if there is any wicked way within. 
+God Almighty, we come into Your presence today aware of our weaknesses and shortcomings. We know our need of a Saviour Who can intercede for us before Your Throne. However, we come thankfully because we see in the Lord Jesus the One Who is worthy, the One Who is able, in fact the Only One Who has taken our place, taken on our humanity, and then taken our punishment.
 
-We thank You that whatever there is has been already dealt with at the Cross. Help us to be ever mindful of the cost of our rebellious waywardness. Help us also to be alert to temptation so that we may submit ourselves afresh to You, shelter under Your wings, and therefore see the tempter flee from us. 
+Because of Your great love for us who deserve nothing more than Your justice, we can come into Your Presence. We therefore rejoice at the prospect of sharing at the Table in the Lord's Supper, the foretaste of the Great Marriage Feast of the Lamb which is still to come.
+
+We thank You that we can look forward to that event with a sure hope, knowing that our redemption is secure. We thank You that our hope is fed from Your Word which has been preserved and handed down to us through the ages, the Word fixed forever in the heavens, Your Word which is more secure a foundation for our faith than this Earth upon which we stand. 
 
 ### The World and the Church
-We thank You that we do not face this world alone, but that You have placed us in Your Church, the Body of Christ, the guardian of the truth, where we find both encouragement and correction. We thank You for fellow believers who can help us to see where we fall short and help us to align ourselves with Your Word. We ask that You stir us up to encourage each other to "love and good works." We know that too often we have chosen the path of comfort, whereas we want to choose the path of commitment, and fuller obedience to Your Word. Grant us the strength to stand up when we would prefer to sit down, and to speak up when we would prefer to remain silent. 
- 
+That Word may be secure for us, but in this world there are those to whom it is an offense, and a cause for rebellion. We pray for this nation and for our Parliamentarians to retain the definition of Marriage which is presently in accord with Your Word, and Your Creation order. We pray for those who seek to overturn that definition. May they be defeated, and may the spiritual forces of darkness acting behind them be defeated also. We are alert to the real enemy working against Your Church and Your people. We affirm in the celebration of the Supper that he is a defeated enemy, whose rebellion against Your order has already been broken.
+
 ### Ashburton
-We again give thanks for Your goodness to us here in Ashburton, and for the progress each day in the work that You have set before us. We thank You for new students in the ESL ministry each week. We continue to pray for the Youth Group, the Seniors Centre and the Holmesglen Student Ministry, and for the changes we need to make to ensure that they operate successfully. 
+We give thanks for Your goodness to us here in Ashburton, and for the faithful preaching of Your Word. We give thanks for the work of the College and the sound teaching which we receive as a result of the efforts of every person there: staff, students, faculty and administration. 
 
-We pray for Sue and Tim Barber as they go this week to Adelaide for the funeral of a close family friend, killed in a road accident. We pray for his family and for the driver of the car, and we ask that Sue and Tim might be able to minister Your love and compassion for the family as they grieve this sudden and tragic loss of the Dad and husband.  
+We pray for those among our number in need of Your special care today. We remember Eric, Jim and Muriel especially. We pray for the work to which You have called us in the Seniors ministry, Youth ministry, Holmesglen outreach, and ESL. May we minister Your grace in everything, Lord, so that whatever we do may be unto You. May those who receive the ministry be moved to praise You as the true source of our motivation and care for them, in Jesus' Name we pray, AMEN. 
 
-In everything, Lord, we ask that whatever we do may be unto You, done in Your strength and always seeking for Your glory, in Jesus' Name we pray, AMEN. 
-
-And now we come to the next reading from second Samuel chapter 13. 
+And now we stand to sing "Sovereign Over Us". 

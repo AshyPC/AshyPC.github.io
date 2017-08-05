@@ -2,38 +2,39 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, July 23rd., 2017
-### Barry Oakes
+### Order of Service Sunday, Aug 6th., 2017
+### Barry Oakes/Damian Meeuwissen
 
-**Welcome / Call to Worship** (PS 96) (Barry)
+**Welcome / Call to Worship**  (Barry)
 
-**Hymn [PP 4]** Come People of the Risen King
+**Hymn **  Praise to the Lord, the Almighty!
 
-**Announcements** (John)
+**Opening Prayer**
 
-**Prayer of Confession / Assurance**
+**Announcements** (Margaret)
 
-**Hymn [PP 47]** Jesus Paid It All
-
-**Bible reading 1:** Psalm 51 (page 405) (Barry)
-
-**Hymn [PP 24]** Lamb of God
-
-Offering during hymn / children go to Sunday School
+**Bible reading 1:** Matthew 27:32-50 (Margaret)
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** 2 Samuel 12 (page 222) ()
+**Hymn ** Sovereign Over Us
 
-**Hymn [Rej 386]** Amazing Grace
+Offering during hymn / children go to Sunday School
 
-**Video:** 'Slow Fade' by Casting Crowns
+**College News** (Damian)
 
-**Sermon:** "God's Scandalous Grace" (Barry)
+**Bible reading 2:** Psalm 22 (Peng)
 
-**Hymn [PP 7]** How Deep the Father's Love
+**Hymn ** Man of Sorrows
 
-**Hymn [PP 53]** Create in Me a Clean Heart (Keith Green)
+**Sermon:** "The Psalm of the Cross" (Damian)
+
+**Hymn ** The Power of the Cross
+
+Lord's Supper
+
+**Hymn ** Jesus Paid It All 
+(shortened to just 3 verses + choruses - no bridge and chorus at the end)
 
 **Benediction** (Barry)
 
