@@ -4,14 +4,16 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 6th August 2017
+### 13th August 2017
 
-__Rev 19:9__ _Then the angel said to me, 'Write this: Blessed are those who are invited to the wedding supper of the Lamb!' And he added, 'These are the true words of God.'_
+__Job 14:7-9__ _"For there is hope for a tree, when it is cut down, that it will sprout again, And its shoots will not fail. ... at the scent of water it will flourish and put forth sprigs like a plant._
 
 Let us pray:
 ### Thanks to God
-God Almighty, we come into Your presence today aware of our weaknesses and shortcomings. We know our need of a Saviour Who can intercede for us before Your Throne. However, we come thankfully because we see in the Lord Jesus the One Who is worthy, the One Who is able, in fact the Only One Who has taken our place, taken on our humanity, and then taken our punishment.
+O Lord God Almighty, You are the Source of all life, and we thank You that in Your ever-living Word we find true hope. Whatever the visible situation, where there is life there is hope, as both Job and King David knew. We therefore turn to You and away from a world which wants to give up on some people before their time. 
+We come before You alert to the fact that we can be influenced by the world's ways. We know we need One Who can save us from our own weaknesses and therefore we turn to Jesus, the only One Who has lived a perfect life. We thank You that You provided the Perfect Substitute Who has taken our place, and freed us from the guilt the power and the penalty of sin.
 
+***
 Because of Your great love for us who deserve nothing more than Your justice, we can come into Your Presence. We therefore rejoice at the prospect of sharing at the Table in the Lord's Supper, the foretaste of the Great Marriage Feast of the Lamb which is still to come.
 
 We thank You that we can look forward to that event with a sure hope, knowing that our redemption is secure. We thank You that our hope is fed from Your Word which has been preserved and handed down to us through the ages, the Word fixed forever in the heavens, Your Word which is more secure a foundation for our faith than this Earth upon which we stand. 
