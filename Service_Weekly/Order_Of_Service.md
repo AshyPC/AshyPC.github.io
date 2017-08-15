@@ -19,7 +19,7 @@ title: Order of Service
 
 **Prayer for the church and the world** (John)
 
-**Hymn ** Rej 258 Come and See the Shining Hope
+**Hymn** Rej 258 Come and See the Shining Hope
 
 Offering during hymn / children go to Sunday School
 
@@ -29,7 +29,7 @@ Offering during hymn / children go to Sunday School
 
 **Sermon:** "What should I think about heaven?" (Barry)
 
-**Hymn ** Rej 127 I Cannot Tell Why He Whom Angels Worship
+**Hymn** Rej 127 I Cannot Tell Why He Whom Angels Worship
 
 **Q & A**
 

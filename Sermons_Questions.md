@@ -9,4 +9,4 @@ title: AshyPC Sermons Questions Series
 
  Date|Link| Speaker
 --------------:|---------------------|:--------------
-6 Aug 2017|[The Psalm of The Cross](https://www.dropbox.com/s/yebf5v1ttqy9ubz/2017.08.06_Psalm_22.ogg?raw=1)| Damian Meeuwissen PTC Candidate
+13 Aug 2017|[What Should I Think About...Heaven](https://www.dropbox.com/s/lfhdovjcbb95ioo/2017.08.13_2_Cor_12.ogg?raw=1)| Barry Oakes
