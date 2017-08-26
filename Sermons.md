@@ -33,9 +33,8 @@ Psalms and Visiting Speakers [Samples](Sermons_Samples.html)
 </tr>
 <tr>
 <td><a href="Sermons_Leadership.html"> <img src="https://www.dropbox.com/s/webuzt2t95d6epu/Leadership_Word_300.png?raw=1" width="150" alt="Leadership &amp; the Word of God"></a></td>
-<td><a href="Sermons_Beatitudes.html"> <img src="https://www.dropbox.com/s/2639spangpxaj6v/beatitudes_72.png?raw=1" width="150" alt="The Beatitudes"></a></td>
-<td><a href="Sermons_Sumarno.html"> <img src="https://www.dropbox.com/s/8e3rxgiic3m9jdl/stone_cross_suffering_300.png?raw=1" width="150" alt="Suffering &amp; the People of God"></a></td>
 <td><a href="Sermons_Beatitudes.html"> <img src="images/beatitudes2.jpg" width="150" alt="The Beatitudes"></a></td>
+<td><a href="Sermons_Sumarno.html"> <img src="https://www.dropbox.com/s/8e3rxgiic3m9jdl/stone_cross_suffering_300.png?raw=1" width="150" alt="Suffering &amp; the People of God"></a></td>
 </tr>
 </table>
 <center>

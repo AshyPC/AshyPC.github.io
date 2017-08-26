@@ -4,26 +4,26 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 13th August 2017
+### 27th August 2017
 
-__Job 14:7-9__ _"For there is hope for a tree, when it is cut down, that it will sprout again, And its shoots will not fail. ... at the scent of water it will flourish and put forth sprigs like a plant._
+__1 John 1:5-7__ _"God is Light, and in Him there is no darkness at all. If we say that we have fellowship with Him and yet walk in the darkness, we lie and do not practice the truth; but if we walk in the Light as He Himself is in the Light, we have fellowship with one another, and the blood of Jesus His Son cleanses us from all sin._
 
 Let us pray:
 ### Thanks to God
-O Lord God Almighty, You are the Source of all life, and we thank You that in Your ever-living Word we find true hope. Whatever the visible situation, where there is life there is hope, as both Job and King David knew. We therefore turn to You and away from a world which wants to give up on some people before their time. 
+O Lord, You are the Source of all life, and we thank You for John's use of Light and Darkness to contrast Your Perfect righteousness against our sinful ways. We ask that You would shine Your light into our lives so that we may know the Truth, which sets us free. We long to be cleansed of all sin and to walk in the light every day. Strengthen us in our resolve to avoid the darkness and come to Your light. We pray also that once we grasp the truth that we may live in accordance with the light You have shown us. May we be doers of Your Word, practising the truth increasingly every day. 
 
-We come before You knowing that we can be influenced by the world's ways. We know we need One Who can save us from our own weaknesses and therefore we turn to Jesus, the only One Who has lived a perfect life. We thank You that You provided the Perfect Substitute Who has taken our place, and freed us from the guilt the power and the penalty of sin.
+We thank You for sending Jesus to be our substitute, the Perfect One Who died in our place, taking our penalty upon Himself. Now by Your Holy Spirit indwelling us, we can be free of our past sinfulness, and we can resist the temptations of the devil, as we abide close to You.
 
 ### The World and the Church
-We thank You that our redemption is secure, even if we live in difficult times, when sharing Good News seems almost impossible. We thank You that Your Word is fixed forever in the heavens, and that we are still free to study it, apply it to our daily living, and share it with others. We pray for those even in Australia who cannot do so. We especially lift up to You Campbell Markham and David Gee facing anti-discrimination complaints in Tasmania, and children in Queensland schools who are not permitted to evangelise their school mates.
+We thank You that Jesus' victory is complete and our redemption is secure, regardless of the times we live in. As we look today in Your Word of Life to consider the question of ending a life, we pray for those in this State and this nation who stand vigil against the slaughter of the unborn. We pray also for repeal of the bad laws which permit all this, and we pray again for the preservation of life at the extremes of illness and age. We ask that You move our State Parliament to reject any change in the law which would allow doctors to administer death to their patients. 
 
-Last week we prayed for this nation and for our Parliamentarians, and thhis week we thank You for evidence of progress in holding some form of plebiscite, as they government parties promised. We continue to pray for those who seek to uphold definition of marriage. May Your Godly order for families be maintained and may the spiritual forces of darkness be defeated also.
+We thank You for the clear statements made by many church leaders and especially our Moderator-General John Wilson, to uphold the definition of marriage. We thank You that Your Church heeds Your voice, and speaks the truth. We pray for the electors across this nation to hear and respond as they lodge their postal votes. We pray also that our Parliamentary representatives would take heed of the results of the voting. May Your Godly order for families be maintained and may the spiritual forces of darkness be defeated.
 
 ### Ashburton
-We give thanks for Your goodness to us here in Ashburton, and for the faithful preaching of Your Word. May we be ever attentive to the reading and preaching we receive, and may we take it in, and respond in faith to the working of Your Holy Spirit applying it to us daily for our sanctification.
+We give thanks for Your goodness to us here in Ashburton, and we are therefore confident to pray for those among our number in need of Your special care today. We also lift up to You Jim Gleeson, Ruth, Michael, Diane and Muriel, and others who can't be with us.
 
-We pray for those among our number in need of Your special care today. We remember Eric Edwards who is now in glory, and pray for Your comfort for his family and friends. We also lift up Jim Gleeson, Diane and Muriel French.
+We pray for the advance of the Kingdom work here, and focus again on the Holmesglen outreach, where some blockage has hindered progress. We ask that the blockage be removed so that plans can progress to fruition. We also give thanks for the ESL students who come every week to learn more English. We thank You for the teachers and helpers who enable them to grow in their knowledge of both language and culture. Thank You for the students' eagerness and may they put into action what they learn. We thank You for the growth in the Tuesday elderlies ministry, for the youth work and the Friday fellowship and study group. We pray for both the spiritual and material fruit of our work - keep us in Your will as we extend the use of our facilities here. 
 
-We pray for the work to which You have called us here, and particularly for the Holmesglen outreach, where some blockage has hindered progress. We ask that the blockage be removed so that plans can be put into action for a Christian club on campus and a support ministry to the students. These setbacks can be frustrating Lord, but we ask that we be able to minister Your grace in everything, so that whatever we do may be received well by the Holmesglen administration, in Jesus' Name we pray, AMEN. 
+In Jesus' Name we pray, AMEN. 
 
-And now I will hand back to Barry as we stand to sing our next hymn. 
+And now Kum Seng will bring us a reading from God's Word. 
