@@ -2,34 +2,36 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, Aug 13th., 2017
+### Order of Service Sunday, Aug 27th., 2017
 ### Barry Oakes
 
-**Welcome / Call to Worship** (Dan 7:9-14) (Barry)
+**Welcome / Call to Worship**  (John 12:35-36) (Barry)
 
-**Hymn **  Rej 9 O Worship the King, All Glorious Above
+**Hymn**  For The Cause
 
 **Opening Prayer**
 
-**Hymn** Immanuel! (From the Squalor of a Borrowed Stable)
+**MAF** Dad joke comp (video)
 
 **Announcements** (Margaret)
 
-**Bible reading 1:** 2 Corinthians 12:1-10 (page 822) (Sandra)
+**Operation Christmas Child** (Gaye)
+
+**Bible reading 1:** Matthew 5:13-16 (page 684) (Gaye)
+
+**Hymn** Psalm 62
+
+**ACL on marriage plebiscite** (video)
 
 **Prayer for the church and the world** (John)
 
-**Hymn** Rej 258 Come and See the Shining Hope
+**Bible reading 2:** Psalm 139 (page 444) (Kum Seng)
 
-Offering during hymn / children go to Sunday School
+**Hymn** [Rej 383] The Lord Made Man the Scriptures Tell - Tune 'Warrington' (Rej 144)
 
-**Hymn** Speak, O Lord
+**Sermon:** "When is it right to end a life?" (Barry)
 
-**Bible reading 2:** Revelation 21:22-22:5 (page 879) (Nam)
-
-**Sermon:** "What should I think about heaven?" (Barry)
-
-**Hymn** Rej 127 I Cannot Tell Why He Whom Angels Worship
+**Hymn** This Life I Live
 
 **Q & A**
 
