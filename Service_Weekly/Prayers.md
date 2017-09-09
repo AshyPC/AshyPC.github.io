@@ -4,26 +4,42 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 27th August 2017
+### 10th September 2017
 
-__1 John 1:5-7__ _"God is Light, and in Him there is no darkness at all. If we say that we have fellowship with Him and yet walk in the darkness, we lie and do not practice the truth; but if we walk in the Light as He Himself is in the Light, we have fellowship with one another, and the blood of Jesus His Son cleanses us from all sin._
+__Ecclesiastes 9:18__ _Wisdom is better than weapons of war, but one sinner destroys much good._
+__Psalm 56:11__ _in God I trust and am not afraid. What can man do to me?_
 
 Let us pray:
 ### Thanks to God
-O Lord, You are the Source of all life, and we thank You for John's use of Light and Darkness to contrast Your Perfect righteousness against our sinful ways. We ask that You would shine Your light into our lives so that we may know the Truth, which sets us free. We long to be cleansed of all sin and to walk in the light every day. Strengthen us in our resolve to avoid the darkness and come to Your light. We pray also that once we grasp the truth that we may live in accordance with the light You have shown us. May we be doers of Your Word, practising the truth increasingly every day. 
+O Lord, You are God over all, Creator and Sustainer of everything we see, and everything we can't see. Your great power is on display throughout this universe, which You brought into existence by Your Word alone. 
 
-We thank You for sending Jesus to be our substitute, the Perfect One Who died in our place, taking our penalty upon Himself. Now by Your Holy Spirit indwelling us, we can be free of our past sinfulness, and we can resist the temptations of the devil, as we abide close to You.
+You made man in Your image, to obey You, the perfectly Wise ruler of Your Creation, and charged him to rule over this world according to Your Wisdom and righteousness. But Adam and Eve chose to reject Your rule over them, seeking wisdom from elsewhere.
+
+We thank You for sending Jesus to undo what Adam did, to be our substitute, the Perfect One Who died in our place, taking our penalty upon Himself. Now by Your Holy Spirit indwelling us, we can be free of our past sinfulness, and we can submit ourselves to Your wise rule once again.
 
 ### The World and the Church
-We thank You that Jesus' victory is complete and our redemption is secure, regardless of the times we live in. As we look today in Your Word of Life to consider the question of ending a life, we pray for those in this State and this nation who stand vigil against the slaughter of the unborn. We pray also for repeal of the bad laws which permit all this, and we pray again for the preservation of life at the extremes of illness and age. We ask that You move our State Parliament to reject any change in the law which would allow doctors to administer death to their patients. 
+We thank You that Jesus' victory is complete and our redemption is secure, so that we can fully trust in You and not be afraid. We thank You for the Church the Body of Christ, where You have placed us as living stones, and where we are being built up into a new temple filled with Your praise. 
 
-We thank You for the clear statements made by many church leaders and especially our Moderator-General John Wilson, to uphold the definition of marriage. We thank You that Your Church heeds Your voice, and speaks the truth. We pray for the electors across this nation to hear and respond as they lodge their postal votes. We pray also that our Parliamentary representatives would take heed of the results of the voting. May Your Godly order for families be maintained and may the spiritual forces of darkness be defeated.
+We thank You that we have Jesus promise that the Church will withstand the worst that the enemy can throw against it. But we acknowledge the truth of Solomon's words - that one sinner can destroy much good. We coontinue to pray for our nation to turn back to You, so that sinners are redeemed instead of unrepentant, and we pray for voters to lodge their postal votes in support of Godly order in marriage and family life. We pray also that our Parliamentary representatives would take heed of the results, and would act in accordance with Your heavenly wisdom for the good of the nation rather than enabling the destruction of what is good.
 
 ### Ashburton
-We give thanks for Your goodness to us here in Ashburton, and we are therefore confident to pray for those among our number in need of Your special care today. We also lift up to You Jim Gleeson, Ruth, Michael, Diane and Muriel, and others who can't be with us.
+We pray for the advance of the Kingdom work here, and focus again on the Holmesglen outreach. We ask that plans can progress to fruition. We also give thanks for the various ministries operating - ESL, elderlies ministry, for the youth work and the Friday fellowship and study group. We pray for increased wisdom, and as we grow in grace may we become more skilled in the use of spritual weapons, knowing that we battle for souls against an unseen but defeated enemy. We thank You that we need not be afraid for anything as we put our trust in You. 
 
-We pray for the advance of the Kingdom work here, and focus again on the Holmesglen outreach, where some blockage has hindered progress. We ask that the blockage be removed so that plans can progress to fruition. We also give thanks for the ESL students who come every week to learn more English. We thank You for the teachers and helpers who enable them to grow in their knowledge of both language and culture. Thank You for the students' eagerness and may they put into action what they learn. We thank You for the growth in the Tuesday elderlies ministry, for the youth work and the Friday fellowship and study group. We pray for both the spiritual and material fruit of our work - keep us in Your will as we extend the use of our facilities here. 
+Let us conclude our prayer with the words Jesus taught His disciples:
 
-In Jesus' Name we pray, AMEN. 
+Our Father, Who art in heaven,
+Hallowed be Thy Name.
+Thy Kingdom come. 
+Thy will be done on earth, 
+As it is in heaven.
+Give us this day our daily bread,
+And forgive us our trespasses,
+As we forgive those that trespass against us. 
+Lead us not into temptation, 
+But deliver us from evil. 
+For thine is the kingdom, 
+The power, and the glory, 
+For ever and ever. 
+Amen.
 
-And now Kum Seng will bring us a reading from God's Word. 
+And now I will hand back to Barry. 
