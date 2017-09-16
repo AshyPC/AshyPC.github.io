@@ -4,42 +4,30 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 10th September 2017
+### 17th September 2017
 
-__Ecclesiastes 9:18__ _Wisdom is better than weapons of war, but one sinner destroys much good._
-__Psalm 56:11__ _in God I trust and am not afraid. What can man do to me?_
+__Psalm 63:3-4__ _Because your love is better than life, my lips will glorify you.
+	I will praise you as long as I live, and in your name I will lift up my hands._
 
 Let us pray:
 ### Thanks to God
-O Lord, You are God over all, Creator and Sustainer of everything we see, and everything we can't see. Your great power is on display throughout this universe, which You brought into existence by Your Word alone. 
+O Lord, we thank You that we can come into Your Presence to praise You today, and every day. We acknowledge that You are our Maker, Redeemer and Sustainer. You give us Life and breath, You keep watch over us even when we sleep.
 
-You made man in Your image, to obey You, the perfectly Wise ruler of Your Creation, and charged him to rule over this world according to Your Wisdom and righteousness. But Adam and Eve chose to reject Your rule over them, seeking wisdom from elsewhere.
+We thank You for Jesus the Perfect One Who died in our place, taking the penalty for our sin upon Himself. We thank You, Holy Spirit that You have taken up residence within, so we can by Your power be free of our past sinfulness, and can submit ourselves to Your will.
 
-We thank You for sending Jesus to undo what Adam did, to be our substitute, the Perfect One Who died in our place, taking our penalty upon Himself. Now by Your Holy Spirit indwelling us, we can be free of our past sinfulness, and we can submit ourselves to Your wise rule once again.
+### Thanks for the Word
+We thank You for Your Word which is fixed forever in the heavens, a sure foundation for our faith, true wisdom for our daily lives, and revealing to us the trustworthy knowledge of Your character, Your justice, Your mercy, Your love towards us.  
 
 ### The World and the Church
-We thank You that Jesus' victory is complete and our redemption is secure, so that we can fully trust in You and not be afraid. We thank You for the Church the Body of Christ, where You have placed us as living stones, and where we are being built up into a new temple filled with Your praise. 
+We thank You for the Church for which Jesus died, and to which He gave the charge to guard the Truth and to proclaim Your salvation to all the world. We thank You for the rich heritage we have received, for the cloud of faithful witnesses who won their own victories in spreading the Gospel, and who now cheer us on to win the same victory in today's world.  
 
-We thank You that we have Jesus promise that the Church will withstand the worst that the enemy can throw against it. But we acknowledge the truth of Solomon's words - that one sinner can destroy much good. We coontinue to pray for our nation to turn back to You, so that sinners are redeemed instead of unrepentant, and we pray for voters to lodge their postal votes in support of Godly order in marriage and family life. We pray also that our Parliamentary representatives would take heed of the results, and would act in accordance with Your heavenly wisdom for the good of the nation rather than enabling the destruction of what is good.
+We thank You for Jesus promise that the Church will stand against whatever the enemy can throw against it. We pray for Steve North and the Ballarat parish as they face the glare of publicity for standing firm on the truth of Your Word for marriage. Strengthen them all and grant them wisdom in dealing with hostile publicity and unfounded attacks. We continue to pray for Australian voters to be able to express their views in the postal survey, that those views will be accurately tallied, and that the Federal Parliament will only act in accordance with the result that emerges at the end of the survey time. 
+
+We also pray for ourselves as we submit to Your Word, and we pray for Barry in his preaching, to bring out the true meaning for us to take to heart, and to live out day by day. Grant us the Godly wisdom we need to understand how to apply Your Word to our current circumstances.
 
 ### Ashburton
-We pray for the advance of the Kingdom work here, and focus again on the Holmesglen outreach. We ask that plans can progress to fruition. We also give thanks for the various ministries operating - ESL, elderlies ministry, for the youth work and the Friday fellowship and study group. We pray for increased wisdom, and as we grow in grace may we become more skilled in the use of spritual weapons, knowing that we battle for souls against an unseen but defeated enemy. We thank You that we need not be afraid for anything as we put our trust in You. 
+For our work here, we give thanks for the variety of ministries operating. We pray that even now we look forward and prepare for the next stage, as we prepare for the expansion of cross-cultural work and the renewal of support from the wider Presbyterian church. We pray for our own part in sharing the Gospel with those around us in the community, with those who come to ESL classes, and our Easy English Bible Study. May we be a body of people who reach out to those in need, so that in whatever we do, we glorify the Name of the King of Kings.
 
-Let us conclude our prayer with the words Jesus taught His disciples:
+In Jesus Precious Name we pray, Amen.
 
-Our Father, Who art in heaven,
-Hallowed be Thy Name.
-Thy Kingdom come. 
-Thy will be done on earth, 
-As it is in heaven.
-Give us this day our daily bread,
-And forgive us our trespasses,
-As we forgive those that trespass against us. 
-Lead us not into temptation, 
-But deliver us from evil. 
-For thine is the kingdom, 
-The power, and the glory, 
-For ever and ever. 
-Amen.
-
-And now I will hand back to Barry. 
+And now Peng will be bringing us the second reading from God's Word. 
