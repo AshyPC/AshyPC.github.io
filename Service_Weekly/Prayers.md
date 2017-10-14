@@ -4,26 +4,23 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 1st October 2017
+### 15th October 2017
 
-__Psalms 72:17__ _May His name endure forever; May His name increase as long as the sun shines;  And let men bless themselves by Him; Let all nations call Him blessed._
-_Behold, the nations are like a drop from a bucket, And are regarded as a speck of dust on the scales; Behold, He lifts up the islands like fine dust. Isaiah 40:15_
+__Psalms 86:5__ _You, Lord, are forgiving and good, abounding in love to all who call to you._ (David)
 
 Let us pray:
 ### Thanks to God
-Father God, we gather today to happily fulfill the command of Jesus our Saviour to celebrate the Supper and, as often as we do, to remember that He has come once and will surely come again.
-
-### Thanks for the Word
-We thank You for Your Word which stands firm forever, and reveals to us Your Character and Your actions in this world You have created. We thank You for the encouragement we receive to bless others in Your Name, as well as to see You blessed by all the nations.
+O Lord, we come into Your Presence today only because You are forgiving, and good, and abounding in love. We know we need forgiveness and we know that we cannot be good apart from your work within us. We thank You that Your Love is expressed towards us as those who have called to You.
 
 ### The World and the Church
-We thank You for Your Church which is Your chosen instrument to reveal the true nature of Your love for mankind. You  love us so much that You sent Jesus as our Redeemer, even though You knew we were rebellious sinners. But You then begin Your sanctifying work in us to change us from enemies into friends, You adopt us into Your heavenly family, then commission us to be Your ambassadors to others who are still lost and blinded by sin. May we wear the Name of "Christian" with honour, and may all that we do be a true reflection of the character and grace of our Lord Jesus, Whose Name we carry.
+We thank You for Your Church which You are building up daily. We thank You for our brothers and sisters in the faith both here and in other places. They encourage us to remain faithful to Your calling, the spur us on to love and good works, which You have set out ready for us to do, in order to serve others and spread the good news of Jesus. We thank You that Your church can still speak out and be heard in this nation. We pray again for the preservation of the definition of marriage in Australia as the postal survey concludes this week, and we await the result in November.
+
+Heavenly Father, we thank you for our marriage relationships. We ask that You protect and strengthen them, that we will hear and apply in our lives what you teach us on marriage in Your Word. We pray for happy and strong marriages which can be examples to others, and a demonstration of the relation of Christ to His Church.
 
 ### Ashburton
-Marg Sanders, Jim Gleeson
-As we gather around the table shortly we pray for those who can't be with us, in particular we lift up Margaret Sanders and Jim Gleeson both not well at this time. We pray Your mercy and protection for those travelling and we ask Your comfort for those in need of care and fellowship, especially Muriel French, Ruth Morrow, Hazel McGrath. As we enjoy the freedom to gather together, we pray also for those whom You have called to the mission field, away from the comforts of home as they sometimes sense the loneliness of solitary Christian service. And in doing so, we thank You that we can bring our burdens to You, and You can be present where we cannot.
+We pray for ourselves as servants in the work here. We pray Your mercy and protection for those travelling and we ask Your comfort for those in need of care and fellowship. We pray for Mook as he prepares to expound Your Word for us this morning, and we also pray for the continuation of his cross-cultural work here, especially for the opening of doors at Holmesglen TAFE. Help us to remain eager to work, despite the delays we experience, and help us to neither run ahead of Your timing nor to lag behind.  
 
-In Jesus Matchless Name we pray, Amen.
+In Jesus Name we pray all these things, Amen.
 
-And now Peng will bring our next reading from God's Precious Word.
+And now Nam will bring our next reading from God's Matchless Word.
 
