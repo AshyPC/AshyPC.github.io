@@ -6,7 +6,8 @@ title: Prayers
 ## Prayers for our World and the Church 
 ### 12th November 2017
 __Ezekiel 18:32__ _For I have no pleasure in the death of anyone who dies," declares the Lord. "Therefore, repent and live."_ 
-Yesterday Remembrance Day WW1
+
+
 __John 15:13__ _Greater love has no one than this: to lay down one's life for one's friends._ 
 
 Let us pray:
