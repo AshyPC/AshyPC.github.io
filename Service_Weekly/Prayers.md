@@ -4,20 +4,26 @@ title: Prayers
 ---
 
 ## Prayers for our World and the Church 
-### 29th October 2017
-__Jeremiah 42:6__ _Whether it is pleasant or unpleasant, we will listen to the voice of the Lord our God...so that it may go well with us when we listen to the voice of the Lord our God._ (the weeping prophet)
+### 12th November 2017
+__Ezekiel 18:32__ _For I have no pleasure in the death of anyone who dies," declares the Lord. "Therefore, repent and live."_ 
+Yesterday Remembrance Day WW1
+__John 15:13__ _Greater love has no one than this: to lay down one's life for one's friends._ 
 
 Let us pray:
 ### Thanks to God
-O Lord, we give thanks today because You are the only and Sovereign God, All-Powerful, able to fulfill Your purposes despite what man does or fails to do. We thank You that You keep Your promises both in blessing and in curses, both in gracious mercy and in righteous justice. We know we need forgiveness just as did Your people in days past, and we know that we must confront the bad news abut ourselves in order to appreciate the Good News of Jesus.
+O Lord, we come into Your Presence today to honour You as the Author and Sustainer of all life. We thank You for Jesus Who is the Way, the Truth and the Life. We thank You that He showed Your love, the greatest love, towards us by laying down His life for every believer, everyone past, present and future who is included in the Body of Christ.
 
 ### The World and the Church
-We thank You for Your Church which You are building up daily. We thank You for saints who kept the faith in times past, as we remember this week both the Reformation and the season of All Saints. We give thanks that Luther was prepared to question the errors which had corrupted the church, wanting to see the Bride of Christ without spot or blemish. We remember and give thanks for others who translated the scriptures, who shared the Truth with as many as would listen, and who likewise sought to restore true worship in the church. We thank You for missionaries both famous and unknown who carried Your Word to different lands, and those who brought it to us so that we could hear and obey.
+From Your Word we understand the terrible truth of Adam's sin, the Fall and the Curse, and we see the result too readily in wars and strife throughout history. We also see that the Way to the Tree of Life was guarded with a flaming sword until Your redemptive purposes were fulfilled.
+
+From that same Word we also learn the Glorious Truth of the Redemption won for us by Jesus in the Cross and the Resurrection and, in the future, the reopening of the Way to the Tree of Life.
+
+We thank You for Your Church which You are building up daily. We thank You for saints of the past, those who preserved and delivered to succeeding generations the Word and the Faith. We marked yesterday as Remembrance Day and we also thank You for those who have defended our nation and our freedom to worship You according to Your Word, without fear of oppression or interference. We pray that we would be equally faithful to deliver the same Faith to the coming generations.
 
 ### Ashburton
-We pray for ourselves as servants in the work here. Heavenly Father, let us rejoice in your truth along with the Church Victorious, and help us to pray for the nations that you may be known. Fill us with your presence and power to testify of your great mercy and love to those who are lost. May we be today's Church Militant, holding firmly to the Truth with grace, without trying to compromise with the world. May we have the courage of a Jeremiah who at first brought the unpleasant word to his people, in order to prepare them for the pleasant word to come later - that their God had plans to give them a hope and a future.
+We pray for ourselves as Your servants in the work here. We give thanks for the safe return of John & Gaye, and we pray for safe travel for others about to depart, just as we remember Tat & Julie still travelling in Europe. We also pray for those in our midst who are in need of Your particular love and care. May we be instruments of mercy to our fellow believers.
 
-We pray that this word would be for our community too, that Your mercy and love would be seen in us as we show the Holy Spirit's work in our lives more and more each day to those whom we meet and work with. In Jesus Name we pray all these things, Amen.
+We pray for Your guidance as we prepare for next week's Ashwood festival. We ask for the words to speak as we meet those in our local community, so that this Word which we hear read and preached weekly, would be for our community too. Again we ask that Your mercy and love would be seen in us as we show the Holy Spirit's work in our lives more and more each day to those whom we meet and work with. In Jesus Name we pray all these things, Amen.
 
-And now we come to the second reading of the Word from Romans.
+And now I will ask Peng to come forward and bring our second reading of the Word, from Romans.
 
