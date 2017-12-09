@@ -23,7 +23,7 @@ We pray for Your Church to be strong, and that various denominations would make 
 ### Ashburton
 We pray for ourselves as Your servants in the work here. We pray for the Carols Service to be well attended, and for the many visitors to understand the true meaning of the popular songs of this season. May they come to know that this baby Jesus is not only the Lamb of God, but also the coming King of kings. 
 
-We also pray for those in our midst who are in need of Your particular love and care. We especially pray for Ruth Morrow and her family, as a=well as remembering Muriel, Bruce, and Jim & Diane,and Ken.
+We also pray for those in our midst who are in need of Your particular love and care. We especially pray for Ruth Morrow and her family, as well as remembering Muriel, Bruce, and Jim & Diane,and Ken.
 
 In Jesus Name we pray all these things, Amen.
 
