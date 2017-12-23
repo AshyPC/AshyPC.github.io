@@ -1,10 +1,9 @@
 ---
-layout: oos
-title: Ashburton Presbyterian Church
+layout: prayers
+title: Prayers
 ---
-## Ashburton Presbyterian Church  24 Dec 2017 
-
-## Prayers for our church and the world
+## Prayers for our World and the Church 
+### 24th December 2017
 
 __Deuteronomy 4:31__ _For the Lord your God is a merciful God; He will not abandon or destroy you or forget the covenant with your ancestors, which He confirmed to them by oath._
 
@@ -34,6 +33,3 @@ We also want to remember Ruth Morrow and thank You that she is with You in glory
 As we pray Lord, we remember that You are good - all the time, and that every good gift comes from Your gracious hand, in Jesus Name we pray, Amen.
 
 And now I will ask you to open your Bibles for today's second reading, from Romans 7:7-25.
-
-
-

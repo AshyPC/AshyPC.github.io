@@ -8,7 +8,28 @@ title: AshyPC Sermons Chronological
 
 
  Date|Link| Speaker
-------------:|---------------------|:--------------
+--------------:|---------------------|:--------------
+20 Aug 2017|[What Place Does God Give to Women in the Church?](https://www.dropbox.com/s/g1yqoe4wx1f2ort/2017.08.20_Romans_16.ogg?raw=1)|Barry Oakes
+13 Aug 2017|[What Should I Think About...Heaven](https://www.dropbox.com/s/lfhdovjcbb95ioo/2017.08.13_2_Cor_12.ogg?raw=1)| Barry Oakes
+ 6 Aug 2017|[The Psalm of The Cross](https://www.dropbox.com/s/yebf5v1ttqy9ubz/2017.08.06_Psalm_22.ogg?raw=1)| Damian Meeuwissen PTC Candidate
+30 Jul 2017|[Sowing, Reaping & Sowing Again](https://www.dropbox.com/s/jaop6jpde6ixv7s/2017.07.30_2_Samuel_13.ogg?raw=1)|Barry Oakes
+23 Jul 2017|[God's Scandalous Grace](https://www.dropbox.com/s/uq4op73tu0frpbj/2017.07.23_2_Samuel_12.ogg?raw=1)|Barry Oakes
+16 Jul 2017|[The Perfect King...Not!](https://www.dropbox.com/s/6selevm7auo7gj4/2017.07.16_2_Samuel_11.ogg?raw=1)|Mook Lee
+  9 Jul 2017|[Doing Good, Knowing The LORD Does Right](https://www.dropbox.com/s/boff9vh7gunj636/2017.07.09_2_Samuel_10.ogg?raw=1)|Barry Oakes
+  2 Jul 2017|[Beauty For Ashes](https://www.dropbox.com/s/izy24drejtmq116/2017.07.02_2_Samuel_9.ogg?raw=1)|Barry Oakes
+25 Jun 2017|[Promise Fulfilled](https://www.dropbox.com/s/z9y1ti3jiaejjb9/2017.06.25_2_Samuel_8.ogg?raw=1)|Barry Oakes
+ 18 Jun 2017|[What God Accepts; What God Gives](https://www.dropbox.com/s/2puq1d0yl5b8p1v/2017.06.18_2_Samuel_7.ogg?raw=1)|Barry Oakes
+  4 Jun 2017|[Our Protector & Defender](https://www.dropbox.com/s/p7mno3s9z05tn78/2017.06.04_2_Samuel_5.mp3?raw=1)|Mook Lee 
+28 May 2017|[God's Kingdom God's Way](https://www.dropbox.com/s/zn25umfucypysk4/2017.05.28_2_Samuel_4.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
+21 May 2017|[Responding To The Kingdom](https://www.dropbox.com/s/17wsikl761vaukb/2017.05.21_2Samuel2_12-3_39.ogg?raw=1)|Barry Oakes (Ogg Vorbis format)
+14 May 2017|[God's Gracious King](https://www.dropbox.com/s/xr1jed2wc78x4ff/2017.05.14_2Samuel2_1-11.mp3?raw=1)|Barry Oakes (MP3 format)
+  |[God's Gracious King](https://www.dropbox.com/s/4deg528d5vao7x3/2017.05.14_2Samuel2_1-11.ogg?raw=1)|Ogg Vorbis format
+ 7 May 2017|[Hope In Christ Means Grieving Well](https://www.dropbox.com/s/rspqf6rok31i1yu/2017.05.07_2Samuel1_17-27.mp3?raw=1)|Barry Oakes (MP3 format)
+  |[Hope in Christ means Grieving Well](https://www.dropbox.com/s/zac2nra0ptf3o67/2017.05.07_2Samuel1_17-27.ogg?raw=1)|Ogg Vorbis format
+30 Apr 2017|[Character Matters](https://www.dropbox.com/s/2e7vvoe16nvjvr8/2017.04.30_1Sam31-2Sam1.mp3?raw=1)|Barry Oakes
+23 Apr 2017|[Disciples Make Disciples](https://www.dropbox.com/s/al09279k9pxmzek/2017.04.23_Matthew28_16-20.mp3?raw=1)|Mook Lee
+ 2 Apr 2017|[Jesus' Sufficiency In our Weakness](https://www.dropbox.com/s/gkuvxanv4xg0r96/2017.04.02_Matthew26_31-27%4010.mp3?raw=1)|Barry Oakes
+26 Mar 2017|[Our Substitute](https://www.dropbox.com/s/98bo42ghia3ncwx/2017.03.26_Matthew26_1-30.mp3?raw=1)|Barry Oakes
 19 Mar 2017|[Love Divides](https://www.dropbox.com/s/5dwq6a6nnzv429d/2017.03.19_Matthew25_31-46.mp3?raw=1)|Barry Oakes
 12 Mar 2017|[While We Wait](https://www.dropbox.com/s/3sh5dy32xf4qayu/2017.03.12_Matthew25.mp3?raw=1)|Mook Lee
  5 Mar 2017|[The Signs of the End](https://www.dropbox.com/s/c1lskiaik7azlmt/2017.03.05_Matthew24.mp3?raw=1)|Barry Oakes

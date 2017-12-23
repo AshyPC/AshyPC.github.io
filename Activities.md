@@ -36,3 +36,21 @@ Community groups are more than Bible studies – they are sharing life together.
 ### An Easy English Bible Study
 
 ### Special events such as our Family Fun Afternoon, presence at community festivals and international lunch with ESL students enable us to raise awareness of the church and build relationships within the community. We are always looking for ways to connect with the community.
+
+
+:------------------------------------------------|:--------------------------------------:
+Sunday Worship with|
+Children's Sunday School|Community Groups
+Youth Group|Young Adults Group
+:------------------------------------------------|:--------------------------------------:
+
+We serve our local community with...
+
+:------------------------------------------------|:--------------------------------------:
+ESL: English as a Second Language classes operate during school terms (link to another page)
+Seniors Fellowship Ministry:  our multi-lingual members bring older people with little or no English to regular afternoon activities, meals and fellowship
+Easy English bible study: for any with limited English, who express an interest in Christian faith 
+Monthly Sunday lunch after the worship service: a time to get to know members of the congregation, invite friends or neighbours who want to learn more about Christianity
+Sunday Family Funday
+Holmesglen Student Support: especially for overseas students who are in Australia without their family and support network/s
+ 

@@ -2,50 +2,19 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church 26 Mar 2017
-
+### Ashburton Presbyterian Church Sunday, July 23rd., 2017
 ### Barry Oakes
 
-### "OUR SUBSTITUTE"  (Matthew 26:1-30)  
+### Sermon outline:
 
-#### Introduction
+* "GOD'S SCANDALOUS GRACE"    (2 Samuel 12)
 
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
+* Introduction
 
-#### 1. A growing storm!
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
+1\. It's a slow fade
 
-#### 2. At Passover time.
+2\. Nathan's case and David's guilt
 
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
+3\. God's scandalous grace
 
-#### 3. Not a substitute!
-
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-&nbsp; <br>
-
-#### 4. Only a substitute.
+* Conclusion

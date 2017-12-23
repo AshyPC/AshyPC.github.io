@@ -9,6 +9,7 @@ title: AshyPC Sermons occasional
 
  Date|Link| Speaker
 ------------:|---------------------|:--------------
+ 6 Aug 2017|[The Psalm of The Cross](https://www.dropbox.com/s/yebf5v1ttqy9ubz/2017.08.06_Psalm_22.ogg?raw=1)| Damian Meeuwissen PTC Candidate
 16 Oct 2016| [Faith Through Suffering](https://www.dropbox.com/s/ikw9niaaez9l5j4/2016.10.16_Job1%401-22_MookLee.mp3?raw=1)| Mook Lee
 21 Aug 2016|[From Despair to Delight Psalm 77](https://www.dropbox.com/s/5bnc72rvie6xuqf/2016.08.21_David_Reid_Psalm_77.mp3?raw=1)|Rev David Reid
 14 Aug 2016|[The Beauty of Christianity - College Sunday](https://www.dropbox.com/s/ice0qu29rpknlml/2016.08.14_The_Beauty_of_Christianity_Paul_Jang.mp3?raw=1)|Student Paul Jang

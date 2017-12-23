@@ -2,62 +2,39 @@
 layout: oos
 title: Order of Service
 ---
-## Ashburton Presbyterian Church
-### Order of Service 26 Mar 2017
+### Order of Service Sunday, Aug 27th., 2017
 ### Barry Oakes
 
-<br>
-<br>
-**Welcome / Call to worship**  (2 Cor 5:17-21) (BO)
-<br>
-<br>
-<br>
-**Hymn [MP 382]** Come Thou Fount (traditional words)
-<br>
-<br>
-<br>
-**Opening Prayer** (BO)
-<br>
-<br>
-<br>
-**Announcements** (MS) 
+**Welcome / Call to Worship**  (John 12:35-36) (Barry)
 
-<br>
-**Video** Hope for Boroondara (BO)
-<br>
-<br>
-**Bible reading 1:** Exodus 12:1-13 (page 48) (BO)
-<br>
-<br>
-<br>
-**Hymn [Rej 211]** What Can Wash Away My Sin / collect offering during hymn  (BO) - children leave for Sunday School at end
-<br>
-<br>
-<br>
-**Prayers for our church and the world** (ML)
-<br>
-<br>
-<br>
-**Bible reading 2:** Matthew 26:1-30 (page 703)  (ML)
-<br>
-<br>
-<br>
-**Hymn [PP 7]** How Deep the Father's Love
-<br>
-<br>
-<br>
-**Sermon:** "OUR SUBSTITUTE"  (BO) 
-<br>
-<br>
-<br>
-**Hymn [Rej 207]** There Is a Fountain, Filled with Blood
-<br>
-<br>
-<br>
-**Benediction** (BO)
-<br>
-<br>
-<br>
+**Hymn**  For The Cause
+
+**Opening Prayer**
+
+**MAF** Dad joke comp (video)
+
+**Announcements** (Margaret)
+
+**Operation Christmas Child** (Gaye)
+
+**Bible reading 1:** Matthew 5:13-16 (page 684) (Gaye)
+
+**Hymn** Psalm 62
+
+**ACL on marriage plebiscite** (video)
+
+**Prayer for the church and the world** (John)
+
+**Bible reading 2:** Psalm 139 (page 444) (Kum Seng)
+
+**Hymn** [Rej 383] The Lord Made Man the Scriptures Tell - Tune 'Warrington' (Rej 144)
+
+**Sermon:** "When is it right to end a life?" (Barry)
+
+**Hymn** This Life I Live
+
+**Q & A**
+
+**Benediction** (Barry)
+
 **Exit**
-
-
