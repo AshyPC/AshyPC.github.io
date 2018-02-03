@@ -3,28 +3,25 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 14th January 2018
+### 4th February 2018
 
-__Psalm 9:7,9__ _But the Lord abides forever;...The Lord [] will be a stronghold for the oppressed, A stronghold in times of trouble;_
+__Psalms 20:7__ _Some boast in chariots and some in horses, But we will boast in the name of the Lord, our God._
 
 Let us pray:
 
 ### Thanks to God
-O Lord, we have come together to bring You praise and worship, to hear Your Word read and preached, and to encourage each other in fellowship. We are here not by chance, but by royal appointment.
-Because You are God from everlasting to everlasting, we can put our trust in You. 
+O Lord, we have come into Your House to praise and worship You, to hear Your Word read and preached, to commemorate Jesus' victory at the Cross. So many in the world boast of chariots and horses, and their own accomplishments we boast in the Name of our God. Because You are the Only God, the One Who made this world, Who sustains the entire creation, Who is altogether Righteous, Loving and forgiving. 
 
-We thank You that Jesus, God the Son, Second Person of the Trinity, came into our world in order to bring salvation to us, for we could not save ourselves. We thank You that He conquered death for us, so that it no longer holds us in fear of what the future may hold. 
+We thank You that Jesus, God the Son, came into our world to bring salvation to us, to reconcile us to You, for we were rebellious and refused to turn back to You. But You made the first step, You did the impossible to satisfy the requirements of true Justice in punishing sin, yet showed Yourself loving and merciful in saving us, who could not save ourselves.
 
-We thank You for sending the Holy Spirit to be our constant Teacher, Guide and Sanctifier as we daily progress under His direction towards the goal of being like Jesus. We thank You that He aligns our lives daily with Your purposes in accordance with the New Life You have given us. We know that we are not yet perfect, but we strive towards that goal as we make use of the means of grace which You have provided.
+We thank You, Holy Spirit for coming from heaven to testify to Jesus, to be with us daily, to change us to be like Jesus. We thank You for the unity You bring within the Body of Christ, and pray that we would grow more and more closely united as we fellowship together, serve one another and work together for the Kingdom. 
 
 ### The World & The Church
-As we look about us Lord, we see storm clouds of life brewing and we pray for our world and our nation. We thank You for those places where the Gospel is making great gains, and we wonder at the hardness we see within our own country. 
+We see a world where people are perplexed, where they feel hopeless in the face of world events too big to understand, so they lose heart and wander about in their lives like sheep without a shepherd. 
 
-We pray for Your church to rise up and be strong in the strength that You give to declare Your might, to recall people to the banner of the Truth, to show compassion for the lost and to defend the defenceless, so that they may know for sure that the Lord is their only stronghold.
+We pray for Your church to declare Your Truth, to graciously recall people to the wisdom of old, to show compassion for the lost and to shepherd them as Your flock.
 
 ### Ashburton
-Within our own congregation we pray today especially for the family and friends of Jim Gleeson and Betty Oliver, both of whom are now at rest with You. We thank You that being in Your Presence is far better, but we also know we are here in this world to serve. Thank You that all our days are numbered by You, and that Betty and Jim have concluded their time here in accordance with Your plan and purpose for them. 
+May we as members of Ashburton Presbyterian, be a part of that great work to win souls, as ambassadors of Your salvation which is found only in Jesus. Help us to focus our attention and to work within Your purposes for the Ashburton, Chadstone, Holmesglen and Waverley areas, in Jesus Name we pray all these things, Amen.
 
-In Jesus Name we pray all these things, Amen.
-
-And now I will ask you to stand as we sing our next hymn "A Mighty Fortress is Our God".
+And now Sandra will bring us the second reading from God's Word today.
