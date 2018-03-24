@@ -25,10 +25,10 @@ We thank You that Jesus, the Eternal Son, came into our world as one of us to br
 ### The World & The Church
 We pray for our world and the work of the church in serving the Kingdom. We know that this world will not be free of sin until Jesus returns to take His Kingship visibly and bring righteoous judgement to all. As we observe more and more attempts to restrict the Church and attack Your people, we pray that our hymns of praise may declare the Truth, and that we may continue to declare the Good News, as ambassaddors of the Kingdom of Heaven.
 
-If we wish to be a healthy nation, we must return to the Lord, for there is only One Way to the Father. We thank You for the opportunity afforded by the Easter season for Your Church to declare this Truth, to graciously recall people to the Cross, to show compassion for the lost and to shepherd them as Your flock.
+If we wish to be a healthy nation, we must return to You, Lord, for there is only One Way to the Father. We pray for a turnaround in our land, and we thank You for the opportunity afforded by the Easter season. May Your Church declare the Truth, graciously recall people to the Cross, show compassion for the lost and shepherd them as Your flock, to Your eternal praise and glory.
 
 ### Ashburton
-We continue to pray as members of Ashburton Presbyterian, for this area where You have placed us as part of Your great work to win souls. As we show forth the unity of the Body of Christ, help us to focus our attention and to work within Your purposes for this area. We pray for the ESL program and thank You for new students, we pray for the Seniors ministry, as they reach out to people and we pray again that You might open the closed doors at the Holmesglen TAFE, so that we may bring good news to those in need of ministry there.  
+We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us as part of Your great work to win souls. As we show forth the unity of the Body of Christ, help us to demonstrate the way the Kingdom of Heaven operates, and to work within Your purposes for this area. We pray for the ESL program and thank You for new students, we pray for the Seniors ministry, as they reach out to people and we pray again that You might open the closed doors at the Holmesglen TAFE, so that we may bring good news to those in need of ministry there.
 
 In Jesus Name we pray all these things, Amen.
 
