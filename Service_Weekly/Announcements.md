@@ -9,10 +9,10 @@ On behalf of the Session, Welcome to this service of worship, and special welcom
 
 You will have received a pew sheet as you came in today, with information about events coming up soon.
 
-
-In addition to the items listed, I can tell you about
+##In addition to the items listed, I can tell you about
 
 ### This week 
+
 
 1. 1. Hope For Boorondarra Food Drive distribution today. After morning tea, there will be a gathering of the teams for prayer and preparation, then they will be going out with the collection bags.
 1. 2. Next Sunday 6th May will be the day the teams go back to collect the bags. 
@@ -22,6 +22,7 @@ In addition to the items listed, I can tell you about
 
 
 ### Mission & Other Newsletters 
+
 
 1. Fellow Workers - news from Presbyterian churches around the State
 
