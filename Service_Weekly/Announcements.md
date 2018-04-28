@@ -22,6 +22,7 @@ You will have received a pew sheet as you came in today, with information about 
 
 ### Mission & Other Newsletters  
 
-1. Fellow Workers - news from Presbyterian churches around the State
+1. Fellow Workers - news from Presbyterian churches around the State  
 
 
+And now I will hand over to MarJo for the first of today's readings from Scripture
