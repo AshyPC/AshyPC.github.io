@@ -3,7 +3,8 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 25th March 2018
+
+## 6th May 2018
 
 __Psalm 62:1-2__ 
 _Truly my soul finds rest in God; my salvation comes from him.
