@@ -4,37 +4,34 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-## 6th May 2018
+## 27th May 2018
 
-__Psalm 62:1-2__ 
-_Truly my soul finds rest in God; my salvation comes from him.
-Truly he is my rock and my salvation; he is my fortress, I shall never be shaken._
+__Psalm 71:14-15__ 
+_But as for me, I will hope continually, And will praise You yet more and more. My mouth shall tell of Your righteousness And of Your salvation all day long_
 
 
 Let us pray:
 
 ### Thanks to God
-Heavenly Father, we thank You that You are the God of rest, Who rested from the work of Creation, and gave us a day of rest. We thank You that we can come into Your Presence to praise and worship You. We thank You that we can rest securely in Your Presence every day, and yet we can enjoy a day of rest from our own work. 
+Heavenly Father, we thank You that You are the God of hope, Who did not leave Adam and Eve in a hopeless position of sin but promised to deal fully and completely with sin and rebellion in mankind. 
 
 We thank You that Jesus, the Eternal Son, came into our world to bring salvation to us, a salvation not brought about by our labour, but granted by You as a gift, according to Your sovereign choice and purpose, based upon His finished work on the Cross.
 
 We thank You for sending the Holy Spirit to be with us Your people, to guide us, teach us and santify us daily. We thank You that it is by His enabling, rather than our own efforts, that we work in the Kingdom to obey Your Word and see Your purposes established in this world and the next.   
 
 ### The World & The Church
-We pray for our world and the work of the church in extending the Kingdom. As we observe more and more attempts to restrict the Church and attack Your people, we pray that our trust would remain in the Rock Who is Christ, the returning King, and that we may continue to declare the Good News, as ambassaddors of His Kingdom.
+It is sad to hear that in Ireland the voters have chosen by majority to repeal a constitutional protection for unborn children, so that more babies (and mothers) are now at risk than ever before.
 
-We still see a world in which men seek wisdom in the wrong places, and yet in their confusion do not realise that there is only One to Whom they can turn for the true wisdom from above. We pray that Your church would be firm in clinging to the Truth of Your Word, and compassionate in declaring it, whether in season or out of season. May we be diligent and persevering in our search for the lost whom You are calling back to Yourself.
+We pray for our world which continues to vote against choosing life and yet we thank You that in other places people are choosing life instead. We see a world in which men seek wisdom in the wrong places, trusting in numbers and majority votes instead of turning to the only One Who is the true wisdom from above.
+
+We pray for the work of the church in extending the Kingdom. We do not lose heart but want to persevere in the hope born of the work of Your Holy Spirit within us. We want to praise You more and more, and declare Your righteousness and Your salvation daily. We want to see more people come to know You, and to know the sure hope of eternal life and the blessed assurance of sins forgiven. 
 
 ### Ashburton
-We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us as part of Your great work to win souls. Help us to demonstrate the way the Kingdom of Heaven operates, and to work within Your purposes for this area.
+We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us as part of Your great work to win souls. Help us to demonstrate the hope that we have as members of the Kingdom of Heaven, knowing we are pilgrims on a journey, with an eternal perspective, looking for the city with foundations.
 
-We pray for the collection of the Hope food bags today that the generosity of people around us may result in blessing to those who eventually receive the donated goods. And may the receivers also know that they have a Rescuer in whom they can trust, niot just for material sustenance but also for eternal life.
-
-We pray for those who are not well, knowing that we are all subject to the weaknesses of winter chills, colds and 'flu. Sustain us we pray so that we may continue to serve. 
-
-We pray also for travelling mercies for those of our number who are away. Keep them and bless them in their journeys, and bring them back safely in due time. 
+We pray for those who are not well, knowing that we are all subject to the weaknesses of winter chills, colds and 'flu. Sustain us we pray so that we may continue to serve. We especially remember Hazel McGrath, and we continue to pray for Tim as he recovers from his surgery.
 
 In all these things we seek to remain faithful to Your calling and the leading of the Holy Spirit, in Jesus Name we pray, Amen.
 
-And now Theodore will bring our second reading of God's Word today, from Second Samuel 23.
+And now I will hand back to Barry.
 
