@@ -4,27 +4,22 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-## 30th September 2018
+## 14th October 2018
 
-__Psalm 115:1-3__ 
-_Not to us, Lord , not to us but to Your Name be the glory, because of Your love and faithfulness. Why do the nations say, 'Where is their God?' Our God is in heaven; He does whatever pleases Him._
+__1 Chron. 28:20__ 
+_David also said to Solomon his son, 'Be strong and courageous, and do the work. Do not be afraid or discouraged, for the Lord God, my God, is with you. He will not fail you or forsake you until all the work for the service of the temple of the Lord is finished._
 
-Let us give glory to God as we pray:
+Let us remember that God is with us as we pray:
 
 ### Thanks to God
-Heavenly Father, we come before You today not to give ourselves glory but to give You the glory that is due to Your Name. We thank You that You are the Maker of all things, the Sustainer of the entire creation, and that You made us and all creatures to glorify You.
-
-We come into Your Presence only because You are Faithful and True, and You love us even though we do not deserve anything. For because of Adam's sin we were rebels, not interested in glorifying You as we should but only wanting to satisfy ourselves.
-
-You did not leave us dead in sin - instead You sent Jesus, Your own Son, to take our place, to bear our punishment, the penalty of death that our sins deserved and then You raised Him from the dead to give us New Life which we did not deserve. 
-
-We thank You that You didn't leave us when Jesus returned to heaven to take His throne, but You gave us Your continuing Presence in the Holy Spirit to guide us, teach us and sanctify us daily. We thank You that You are faithful in keeping us, and we pray that we may persevere to the end.
+Heavenly Father, we thank You today that You do not fail us of forsake us but You remain true to Your promises to us. We thank You that we can come into Your Presence, not as isolated individuals but as a community of believers, called together to be Your church in this place, brought together only because of the sacrifice of Jesus Your Son on the Cross, and His resurrection from the dead. We thank You that He reigns from heaven, that the Holy Spirit brings His life to us and enables His love to be shed abroad in our hearts, so that we can show the world what it is to glorify You, as You intend for all of Your Creation.
 
 ### The World & The Church
-We pray for our world which continues to turn its back on You. Many dare to taunt Your people asking "Where is your God?" not fearing Your justice and we pray earnestly that their eyes be opened to Your greatness and their danger in the coming judgement, that they might be turned from enemies into friends.  
+We pray for our world which mostly believes that life is cheap. We thank You that children are a heritage from the Lord, and precious in Your sight. We thank You for the peaceful rallies in Brisbane and Melbourne yesterday which sought to show that unborn babies have a right to life just as we all do. We thank You for the peaceful conduct of the rallies, and for the excellent work of the Police as they upheld the law.
 
 ### Ashburton
-We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us. We thank You and pray for Your blessing upon our various ministries - Seniors centre, Youth and Young Adults, ESL, Sunday School, and missionary support. We want to be sure that everything we do honours Your Name, upholds the cause of Jesus and extends the Kingdom to more and more people. May we be a true beacon of the One Who is the Light of the World.
+We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us. We pray for Your blessing upon our various ministries and we seek Your strength and courage to do the work of the Kingdom. Help us to keep in sight the end result - the service of the temple of the Lord where people from every background and nation and language come together in unity to worship You. 
 
-In all these activities, You call us to remain faithful and true, and that is what we pray in Jesus Precious Name, Amen.
+We want to be sure that everything we do - Seniors centre, Youth and Young Adults, ESL, Sunday School - upholds the Name of Jesus in Whose Great Name we pray all these things, Amen.
 
+And now MarJo will bring us our second reading today. 
