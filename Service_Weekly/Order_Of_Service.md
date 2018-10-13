@@ -2,39 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, Aug 27th., 2017
-### Barry Oakes
+### Order of Service Sunday, Oct 14th., 2018
+### Mook Lee / Barry Oakes
 
-**Welcome / Call to Worship**  (John 12:35-36) (Barry)
-
-**Hymn**  For The Cause
+**Welcome / Call to Worship**  (Barry)
 
 **Opening Prayer**
 
-**MAF** Dad joke comp (video)
+**Praise**  By Faith
 
 **Announcements** (Margaret)
 
 **Operation Christmas Child** (Gaye)
 
-**Bible reading 1:** Matthew 5:13-16 (page 684) (Gaye)
+**Bible reading 1:** Romans 12:1-8 (page 803) (Gaye)
 
-**Hymn** Psalm 62
+**New City Catechism** Q.41 (Barry)
 
-**ACL on marriage plebiscite** (video)
+**Praise** O Lord, My Rock and My Redeemer (Offering)
 
-**Prayer for the church and the world** (John)
+**Prayer for the church and the world** (John A)
 
-**Bible reading 2:** Psalm 139 (page 444) (Kum Seng)
+**Bible reading 2:** Matthew 7:13-27 (page 685) (MarJo)
 
-**Hymn** [Rej 383] The Lord Made Man the Scriptures Tell - Tune 'Warrington' (Rej 144)
+**Praise** My Hope is Built
 
-**Sermon:** "When is it right to end a life?" (Barry)
+**Sermon:**  "What are we thinking? What are we doing?" (Mook)
 
-**Hymn** This Life I Live
+**Praise** All to Jesus I Surrender
 
-**Q & A**
-
-**Benediction** (Barry)
-
-**Exit**
+**Benediction** 

@@ -2,19 +2,17 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, September 2nd., 2018
-### Barry Oakes
+### Ashburton Presbyterian Church Sunday, October 14th., 2018
+### Mook Lee
 
 ### Sermon outline:
 
-* "LOVING THE CHURCH"    (Romans 16)
+* "WHAT ARE WE THINKING? WHAT ARE WE DOING?" (Matthew 7:13-27)
 
 * Introduction
 
-1\. Love for the church
+1\. Hear but don't obey?
 
-2\. Love protects
+2\. Hear and obey?
 
-3\. God's love, our foundation
-
-
+3\. Conclusion
