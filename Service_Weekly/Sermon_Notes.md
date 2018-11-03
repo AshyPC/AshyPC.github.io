@@ -10,6 +10,8 @@ title: Sermon Notes
 
 ### Sermon outline:
 
+
+
 * "Keeping Trust"  (Matthew 25:14-30)
 
 * Introduction
