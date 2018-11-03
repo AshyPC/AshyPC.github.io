@@ -2,33 +2,35 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, Oct 14th., 2018
-### Mook Lee / Barry Oakes
+### Order of Service Communion Sunday, Nov 4th., 2018
+### Barry Oakes
 
 **Welcome / Call to Worship**  (Barry)
 
 **Opening Prayer**
 
-**Praise**  By Faith
+**Praise**  *Jesus Shall Reign*
 
 **Announcements** (Margaret)
 
-**Operation Christmas Child** (Gaye)
+**Bible reading 1:** 1 Peter 4:7-11 (page 859)  (Sandra)
 
-**Bible reading 1:** Romans 12:1-8 (page 803) (Gaye)
+**New City Catechism** Q.44 (Barry)
 
-**New City Catechism** Q.41 (Barry)
-
-**Praise** O Lord, My Rock and My Redeemer (Offering)
+**Praise** *All Glory Be to Christ* (Offering) 
 
 **Prayer for the church and the world** (John A)
 
-**Bible reading 2:** Matthew 7:13-27 (page 685) (MarJo)
+**Bible reading 2:** Matthew 25:14-30 (page 702)  (Eric)
 
-**Praise** My Hope is Built
+**Praise** *Blessed assurance, Jesus Is Mine*
 
-**Sermon:**  "What are we thinking? What are we doing?" (Mook)
+**Sermon:**  "Keeping Trust" (Barry)
 
-**Praise** All to Jesus I Surrender
+**Praise** *All I Have Is Christ*
+
+**The Lord's Supper**
+
+**Praise** *How Great Thou Art* 
 
 **Benediction** 

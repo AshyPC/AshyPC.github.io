@@ -2,17 +2,22 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, October 14th., 2018
-### Mook Lee
+### Ashburton Presbyterian Church 
+
+### Barry Oakes
+
+##Sunday, November 4th., 2018
 
 ### Sermon outline:
 
-* "WHAT ARE WE THINKING? WHAT ARE WE DOING?" (Matthew 7:13-27)
+* "Keeping Trust"  (Matthew 25:14-30)
 
 * Introduction
 
-1\. Hear but don't obey?
+1\. The principles of stewardship
 
-2\. Hear and obey?
+2\. It is about money
 
-3\. Conclusion
+3\. It's also about everything
+
+4\. Conclusion
