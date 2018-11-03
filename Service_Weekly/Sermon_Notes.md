@@ -6,7 +6,7 @@ title: Sermon Notes
 
 ### Barry Oakes
 
-###Sunday, November 4th., 2018
+### Sunday, November 4th., 2018
 
 ### Sermon outline:
 
