@@ -6,7 +6,7 @@ title: Sermon Notes
 
 ### Barry Oakes
 
-### Sunday, November 4th., 2018
+### Sunday, November 25th., 2018
 
 ### Sermon outline:
 
@@ -16,10 +16,12 @@ title: Sermon Notes
 
 * Introduction
 
-1\. The principles of stewardship
+1\. The heart of rebellion
 
-2\. It is about money
+2\. Sin gone rabid
 
-3\. It's also about everything
+3\. Sin's devastation
 
-4\. Conclusion
+4\. A Father's grace to sinners
+
+Conclusion

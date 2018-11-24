@@ -4,31 +4,30 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-## 4th November 2018
+## 25th November 2018
 
-__Jeremiah 32:40__ 
-_I will make an everlasting covenant with them: I will never stop doing good to them, and I will inspire them to fear Me, so that they will never turn away from Me._
+__Hebrews 6:10-11__ 
+_God is not unjust; he will not forget your work and the love you have shown him as you have helped his people and continue to help them. We want each of you to show this same diligence to the very end, so that what you hope for may be fully realized._
 
-God speaking through Jeremiah
-
-Let us remember that God is good - all the time, and that we can therefore come to Him with confidence:
 
 ### Thanks to God
-Father God, we thank You that You are good and do good to Your people. We thank You that You know all things and yet You have set Your love upon us despite our weaknesses, our failure to live as we ought in the Kingdom. We thank You that You do not forsake us but remain true to Your promises to us.
+O Lord our God, we thank You that You are both Just and Merciful. We thank You that You made a world that was perfect, but even when it was spoiled by Adam's sin You persevered with Your plan from the beginning and it will be carried out to the end. 
 
-We thank You that because of Jesus only we can come into Your Presence. Because of His perfect sacrifice on the Cross, and His victorious resurrection from the dead, which we will celebrate today. We thank You that the Holy Spirit brings His life to us and we are thus inspired, so that we can show the world what it is to glorify You alone.
+We thank You that Jesus came to rescue us even though we were rebels who did not want to return to You, our Maker. We thank You that Jesus persevered and faced the death we deserved. His perfect sacrifice and His victorious resurrection has enabled us to return to You, to receive Your Mercy and amazingly to be adopted into a heavenly family with the assurance of being with You forever.
 
-We thank You that Your covenant is everlasting, that Jesus now reigns and will reign forever, and we ask for Your strength to remain faithful in return, never turning away from You.
+We see in ourselves the old nature holding us back, and we thank You for sending the Holy Spirit, Who is with us daily to change us to be more and more like Jesus. We thank You Holy Spirit for Your constant Presence. 
 
 ### The World 
-We pray for our world which remains hostile to You and to Your people. We lift up to You the families and friends of those killed in the Tree of Life synagogue in Pittsburgh. We pray also for true peace for the nation of Israel and its capital, Jerusalem, the City of the Great King.
+We understand that we are citizens of both earth and heaven, and so we pray for our State of Victoria where yesterday most voted in the election. The results will please some and not others but we pray for the incoming government to act wisely, with integrity and transparency for the good of the whole State. 
 
 ### The Church
-While we thank You that we remain mostly undisturbed, we pray for Your people around the world who suffer for the Name of Jesus. There are so many places where it is dangerous to be together as we are today, and we pray for perseverance and courage for those members of the Body of Christ.
+We thank You that the Church is separate from politics but we thank You that we enjoy peaceful ways of selecting our governments. However, the church is operating within this world and we pray for Your people to remain free to uphold the Word and live out the Gospel in peace. There are many other places where it is unsafe to be a believer, and we pray for perseverance and courage for those members of the Body of Christ also.
 
 ### Ashburton
-We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us. We pray for Your blessing upon our various ministries and we seek Your strength and courage to do the work of the Kingdom. We thank You that we can partake of the means of grace in the Supper, in prayer and in the reading and preaching of Your Word. We pray for those of our number who cannot be with us today. For those travelling, we pray for safe journeys and for those ill or injured we pray that Your healing hand would enable a swift recovery.
+We continue to pray, as members of Ashburton Presbyterian, for this area where You have placed us. We pray for Your blessing upon our various ministries and we seek Your strength and courage to do the work of the Kingdom. We look forward to the Carol Service as a means of meeting people and sharing the love of Jesus as we focus on His first coming in this Christmas season. 
 
-We pray for boldness in speaking of Your love, and for strength to do what is right at all times,  so that our words and actions together attest to the greatness of Your grace and mercy, and so that we may honour the Name of Jesus, for it is in His Great Name we pray all these things, Amen.
+We also want to pray for those who cannot be with us today. For those travelling, we pray for safe journeys and for those ill or injured we pray that Your healing hand would enable a swift recovery.
 
-And now Eric will bring us our next reading today from the Gospel of Matthew. 
+We pray for boldness in speaking of Your love, and for strength to do what is right at all times,  so that we can give an effective witness for the sure hope we hold for the future. May all that we do bring honour to the Name of Jesus, for it is in His Great Name we pray all these things, Amen.
+
+And now MarJo will bring us our next reading today from the Gospel of Luke. 
