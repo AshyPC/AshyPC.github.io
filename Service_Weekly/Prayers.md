@@ -17,7 +17,7 @@ We thank You that Jesus came to rescue us by accepting on our behalf the death w
 
 His perfect sacrifice and His victorious resurrection has enabled us to receive Your Mercy, and allow us today to come into Your Presence, to remember what He has done and to celebrate this foretaste of the Marriage Feast of the Lamb which is still to come.
 
-We thank You Father that the Holy Spirit is with us in this service and in remains our Comforter and Guide daily to change us to be more and more like Jesus. 
+We thank You Father that the Holy Spirit is with us in this service and remains our Comforter and Guide daily to change us to be more and more like Jesus. 
 
 ### The World 
 We thank You Holy Spirit for the hope You plant in our hearts and the love You give us for others. Without these we would despair at every action of a cruel world under the hand of a defeated enemy who still seeks to turn men and women away from You.
