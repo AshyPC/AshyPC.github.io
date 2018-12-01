@@ -6,22 +6,21 @@ title: Sermon Notes
 
 ### Barry Oakes
 
-### Sunday, November 25th., 2018
+### Sunday, December 2nd, 2018
 
 ### Sermon outline:
 
 
 
-* "Keeping Trust"  (Matthew 25:14-30)
+* "The Delusion of a Passive Rebel" (Luke 15:11-32)
 
 * Introduction
 
-1\. The heart of rebellion
+1\. The passive rebel
 
-2\. Sin gone rabid
+2\. Elder brother churches
 
-3\. Sin's devastation
+3\. Me? An elder brother?
 
-4\. A Father's grace to sinners
+4\. The real ending... and abundant grace
 
-Conclusion

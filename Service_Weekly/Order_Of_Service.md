@@ -2,31 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Communion Sunday, Nov 4th., 2018
+### Order of Service Communion Sunday, Dec 2nd, 2018
 ### Barry Oakes
 
-**Welcome / Call to Worship** Ps 103:1-13 (Barry)
+**Welcome / Call to Worship** (Eph 1:20b-23) (Barry)
 
-**Praise**  *10,000 Reasons*
-
-**Praise**  *Yet Not I But Through Christ In Me*
+**Praise**  *Join All the Glorious Names*
 
 **Announcements** (Margaret)
 
-**Bible reading 1:** Luke 15:1-10 (page 740) (Richard)
+**Bible reading 1:** Romans 3:9-24 (page 797) (Nam)
 
-**New City Catechism** Q.47 (Barry)
+**New City Catechism** Q.48 (Barry)
 
-**Praise** *Rock of Ages* (Offering) 
+**Praise** *Come Thou Fount* (Offering) 
 
 **Prayer for the church and the world** (John)
 
-**Bible reading 2:** Luke 15:11-32 (page 740) (MarJo)
+**Bible reading 2:** Luke 15:11-32 (page 740) (Theodore)
 
-**Praise** *Oh, the Mercy of God*
+**Praise** *Sovereign Grace O'er Sin Abounding*
 
-**Sermon:**  "Grace to the Lost" (Barry)
+**Sermon:**  "The Delusion of a Passive Rebel" (Barry)
 
-**Praise** *Search Me, O God*
+**Praise** *How Deep the Father's Love*
+
+**The Lord's Supper**
+
+**Praise** *This I Believe*
 
 **Benediction** 
