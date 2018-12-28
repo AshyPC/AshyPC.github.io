@@ -6,21 +6,20 @@ title: Sermon Notes
 
 ### Barry Oakes
 
-### Sunday, December 2nd, 2018
+### Sunday, December 30th, 2018
 
 ### Sermon outline:
 
 
 
-* "The Delusion of a Passive Rebel" (Luke 15:11-32)
+* "A Clash of Kingdoms" (Matthew 2:13-23)
 
 * Introduction
 
-1\. The passive rebel
+1\. Not a silent night
 
-2\. Elder brother churches
+2\. The dragon behind the king
 
-3\. Me? An elder brother?
+3\. Living with the certainty that God rules
 
-4\. The real ending... and abundant grace
-
+4\. Conclusion
