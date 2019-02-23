@@ -2,39 +2,31 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, Aug 27th., 2017
+### Order of Service Communion Sunday, Dec 30th, 2018
 ### Barry Oakes
 
-**Welcome / Call to Worship**  (John 12:35-36) (Barry)
+**Welcome / Call to Worship**  (Barry)
 
-**Hymn**  For The Cause
+**Praise**  *A Mighty Fortress is Our God*
 
-**Opening Prayer**
-
-**MAF** Dad joke comp (video)
+**Praise**  *O Lord, My Rock and My Redeemer*
 
 **Announcements** (Margaret)
 
-**Operation Christmas Child** (Gaye)
+**Bible reading 1:** Revelation 12:1-6 (page 873) (Gaye)
 
-**Bible reading 1:** Matthew 5:13-16 (page 684) (Gaye)
+**New City Catechism** Q.52 (Barry)
 
-**Hymn** Psalm 62
+**Praise** *Praise My Soul the King of Heaven* (Offering) 
 
-**ACL on marriage plebiscite** (video)
+**Prayer for the church and the world** (John A)
 
-**Prayer for the church and the world** (John)
+**Bible reading 2:** Matthew 2:13-23 (page 682) (MarJo)
 
-**Bible reading 2:** Psalm 139 (page 444) (Kum Seng)
+**Praise** *All My Ways are Known to You*
 
-**Hymn** [Rej 383] The Lord Made Man the Scriptures Tell - Tune 'Warrington' (Rej 144)
+**Sermon:**  "A Clash of Kingdoms" (Barry)
 
-**Sermon:** "When is it right to end a life?" (Barry)
+**Praise** *When Trials Come*
 
-**Hymn** This Life I Live
-
-**Q & A**
-
-**Benediction** (Barry)
-
-**Exit**
+**Benediction** 

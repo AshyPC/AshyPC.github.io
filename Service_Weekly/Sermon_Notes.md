@@ -2,19 +2,24 @@
 layout: oos
 title: Sermon Notes
 ---
-### Ashburton Presbyterian Church Sunday, July 23rd., 2017
+### Ashburton Presbyterian Church 
+
 ### Barry Oakes
+
+### Sunday, December 30th, 2018
 
 ### Sermon outline:
 
-* "GOD'S SCANDALOUS GRACE"    (2 Samuel 12)
+
+
+* "A Clash of Kingdoms" (Matthew 2:13-23)
 
 * Introduction
 
-1\. It's a slow fade
+1\. Not a silent night
 
-2\. Nathan's case and David's guilt
+2\. The dragon behind the king
 
-3\. God's scandalous grace
+3\. Living with the certainty that God rules
 
-* Conclusion
+4\. Conclusion
