@@ -14,8 +14,6 @@ Heavenly Father, we thank You that we can come into Your Presence today, but tha
 
 We remember during this season the fact that Jesus came to rescue us by accepting on our behalf the penalty which we deserved. By conquering death, He cancelled the power of sin so that we can receive His righteous life in exchange and so grow to be the people You meant us to be. 
 
-We thank You for Your grace and mercy in giving us that New Life on account of Jesus' obedience and not according to our own righteousness. We thank You for the Presence of the Holy Spirit, Who  daily enables us to conquer temptation and live holy lives. We thank You also that You are there to minister Your forgiveness when we confess our failures and resume our walk with You, fixing our eyes upon Jesus, to become more and more like Him. 
-
 ### The World 
 For this world, Lord, we pray for a realisation that there is no answer to the perplexities of modern life apart from Your Heavenly provision. We see the tragedy in New Zealand and learn something of how bad sin is but then we look at the Cross to learn how You have dealt with it, so that we do not have to fall for temptations to take matters into our own hands.
 
