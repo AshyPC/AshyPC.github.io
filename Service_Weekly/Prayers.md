@@ -4,29 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-## 24th March 2019
+## 7th April 2019
 
-John 11:25__ _...I am the Resurrection and the Life..._
-
+Ruth 1:16__ _Ruth said, "Do not urge me to leave you or turn back from following you; for where you go, I will go, and where you lodge, I will lodge. Your people shall be my people, and your God, my God."_
 
 ### Thanks to God
-Heavenly Father, we thank You that we can come into Your Presence today, but that is only because of Jesus, the Resurrection and the Life. We thank You that His death was not the end but that His resurrection demonstrated that Life is greater than death, that Your righteousness is greater than our sinfulness and that Your grace is beyond our understanding.
-
-We remember during this season the fact that Jesus came to rescue us by accepting on our behalf the penalty which we deserved. By conquering death, He cancelled the power of sin so that we can receive His righteous life in exchange and so grow to be the people You meant us to be. 
+Heavenly Father, we thank You for Your Presence with us today, because of Jesus' Life, Death and Resurrection. We thank You that today we recognise our unity at the Lord's Table. We pray that it would be the means for strengthening the bonds of fellowship, and that we would remain faithful to Your calling in this congregation, especially seeing the loyalty and faithfulness of Ruth towards Naomi and the God of Israel. 
 
 ### The World 
-For this world, Lord, we pray for a realisation that there is no answer to the perplexities of modern life apart from Your Heavenly provision. We see the tragedy in New Zealand and learn something of how bad sin is but then we look at the Cross to learn how You have dealt with it, so that we do not have to fall for temptations to take matters into our own hands.
-
-We pray for our nation and for the new government in NSW, that our governments would govern and lead wisely. We pray for the wisdom of Your Word to guide the thinking of ministers, parliamentarians and public servants alike. We pray that they understand that they work for the good of the people of this nation, and not for themselves. We pray that the freedoms we enjoy - to gather freely, to uphold and preach what we believe - will be recognised and preserved for the good of all. 
+In this world, Lord, we see a lot of division and separation. Whether it is sport, politics, religion or nationality, there are many who seek to foster differences and divisions, setting one against another for personal advantage. Sometimes it leads to the kind of terrible violence we saw in New Zealand, at other times it is mere sporting rivalry. We pray for a realisation that there is a new and living way through Jesus, and we thank You that there is still Good News being spread around this world, against the bad news which is too often shown on our TVs and in our newspapers.
 
 ### The Church
-We pray for Your Church to shake off its sleepiness and wake up to the great task of proclaiming Your Truth clearly. We thank You for the strong teaching and vigorous training of our Theological College, and we pray for the approaching Graduation Ceremony. We thank You for those students moving out to parishes to begin their preaching ministries, and we pray that You would raise up more workers to commit to training for the ministry.
-
-We especially want to pray for Keith and Jenny Bell facing a new difficulty, as another of their daughters undergoes treatment for cancer. Uphold them and all the Bell family we pray; keep them strong in their faith, and may they cling to You more firmly during this time.
+We pray for Your Church to demonstrate that differences do not need to become separation or division. We pray also that the Church can be a living example showing that sameness is not unity but that unity in the faith fosters loyal fellowship. We thank You for the example of Ruth who left an old life behind to adopt a new life within the Covenant people of Israel.
 
 ### Ashburton
-We pray for Barry as he preaches today, and thank You for his work in prayer and preparation. We pray that we too may come prepared to take in Your Word, ready to hear and quick to submit as the Holy Spirit prompts us towards greater sanctification.
+We thank You for the success of the Family Fun Day yesterday. Thank You for the excitement of the children and for the many conversations which we had with our visitors. We pray for those who came, whether from the surrounding area or from far away: may You continue to move in their lives via the Holy Spirit, and may they come to a true understanding of the Cross, that there is True Life in only One - Jesus Christ - and that they may also share in that true life in the same way as we who are already a part of the Body. We thank You also for the hard work of all the helpers, for Mook in his organising and leadership, and we appreciate the extra hour of rest overnight.
 
-We pray that we can leave this place ready with boldness to speak of Your love, and strength to do what is right at all times, knowing that we are all called to be witnesses to Your great grace and mercy wherever we go. May all that we do bring honour to the Name of Jesus, in Whose Precious Name we pray all these things, Amen.
+We pray for all those involved in ministry here - for Barry and Mook as they prepare and preach Your Word, the music group and tech team, the Sunday School teachers and helpers, the ESL and Seniors ministry teams. Guard and protect them as they prepare regularly to serve Your people and help us all to receive their ministry for the building up of the Body in unity. 
 
-And now Gaye will bring us our next reading today from the Ephesians. 
+We pray for Tim Angelico after his successful appendix operation yesterday, for his full recovery and prompt return to home and work. We pray also for others who can't be with us today - Muriel, Bruce, Diane, Eng Lin & Mae, Kum Seng and Yvonne, and others as they travel.
+
+We pray that we may leave this place today as people changed by Your Word, ready at all times to bring honour to the Name of Jesus, in Whose Precious Name we pray all these things, Amen.
+
+And now MarJo will bring us our next reading today from John's Gospel. 
