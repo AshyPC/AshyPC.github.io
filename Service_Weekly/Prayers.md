@@ -4,18 +4,25 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 11th Aug 2019 College Thanksgiving Sunday
-__Jeremiah 17:7-8__ _Blessed is the man who trusts in the Lord And whose trust is the Lord. For he will be like a tree planted by the water, that extends its roots by a stream and will not fear when the heat comes; but its leaves will be green, and it will not be anxious in a year of drought nor cease to yield fruit._
+### 15th Sep 2019 
+
+Daniel, seeing that the seventy years of punishment were nearly over, set himself to confess the sins of the nation, and implore God's mercy.
+
+__Daniel 9:7__ _"Righteousness belongs to You, O Lord, but to us open shame, as it is this day--to the men of Judah, the inhabitants of Jerusalem and all Israel, those who are nearby and those who are far away in all the countries to which You have driven them, because of their unfaithful deeds which they have committed against You._
 
 ### Thanks to God
-O Lord, we come before You today, as those who know our lost condition. We are inheritors of Adam's fallen nature. Therefore we are encouraged by Jeremiah's words as those who have put their trust only in Your great mercy and grace. 
+O Lord, we come into Your Presence today, acknowledging Your righteousness and our shame. Like Daniel, we earnestly desire that Your people be restored and that this nation would display Your righteousness in obedience to the Word of Truth.  We thank You for Your mercy and grace so that we are not consumed in judgement. We thank You that Jesus took our place, suffered and died for our sins, and rose on the third day to glory. We thank You that our enemy is defeated and that Jesus reigns from on high. 
 
 ### The World and the Church
-We thank You for the Theological College and its training work, preparing ministers and missionaries so that they may be truly effective in their calling to serve You. We pray for Peter Hastie, the College Principal, for the academic and administrative staff as they work together to achieve the goals of the College. We pray for the TEC as the Committee overseeing the College on behalf of the PCV, and we pray for similar Colleges in other States. We ask that the Holy Spirit would guard them and the teaching they deliver to the students so that all those who graduate may be fully equipped, ready preach Your Word faithfully and vigorously. We pray for Your Church to be strong in the face of opposition and pressure to compromise with the Word. 
+However, we confess the sins of our nation and our State where life is considered disposable, both for the unborn and for the elderly. We confess that we are a self-centred, materialist nation, which has turned its back on You, and substituted false religions for the true faith delivered once for all to the saints.
 
-We pray especially for the many churches which have been invaded by worldly attitudes, ideas and practices. We pray that they may be turned around by means of Godly, Biblical preaching and teaching. We all long for the church to again be known as the Pillar of Truth in this community and this nation, that it fulfill Jeremiah's image of a strong tree, nourished by Your Holy Spirit, able to withstand heat and drought and continue to bear the fruit of righteousness. 
+We pray for Your Church to be strong in the face of opposition and pressure to compromise with the Word. We see in this State many attacks upon believers, through the Parliament, against Christian schools, by distorted use of the legal system and by the direct sacking of employees who uphold Biblical standards. We see the hand of a defeated enemy who continues to wage war against God's people. We pray for those whom he uses to attack the Church - may they see what evil they are doing, and be brought to repentance by the work of the Holy Spirit. 
+
+We pray for the many churches which have been invaded by worldly attitudes and compromise. We see much division, both within and between denominations and we pray that they may be turned around so that Your church would again be known as the Pillar of Truth in this community and this nation. We pray for the open showing of the holy nation, the people set apart to Your glory.
 
 ### Ashburton
-We thank You, Lord that here we enjoy the blessings of faithful, powerful, Godly preaching. We continue to pray for Your protection and guidance for Barry and Mook, and we thank You for Matt bringing Your Word to us today. May he be led by Your Spirit, to speak firmly and clearly, may we be attentive, ready to take in Your Word and then equally ready to obey that Word of Truth which reveals the Kingdom of the One and Only Saviour, our Redeemer, In Whose Precious Name we pray, Amen.
+We thank You, Lord that here we enjoy the blessings of faithful, powerful, Godly preaching. We continue to pray for Your protection and guidance for Barry and Mook, and we pray for ourselves to be faithful and true to Your Word also. May we be ever growing in Godliness so that we are known, like Daniel, to be people of integrity, without fault at home, at work, in studies and in our communities.
 
-And now Rachel will bring our second reading for today.
+In Jesus Precious Name we pray, Amen.
+
+And now MarJo will bring our second reading for today.
