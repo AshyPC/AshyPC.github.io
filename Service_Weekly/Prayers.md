@@ -4,25 +4,23 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 15th Sep 2019 
+### 27th Oct 2019 
 
-Daniel, seeing that the seventy years of punishment were nearly over, set himself to confess the sins of the nation, and implore God's mercy.
-
-__Daniel 9:7__ _"Righteousness belongs to You, O Lord, but to us open shame, as it is this day--to the men of Judah, the inhabitants of Jerusalem and all Israel, those who are nearby and those who are far away in all the countries to which You have driven them, because of their unfaithful deeds which they have committed against You._
+__Jeremiah 17:7-8__ _Blessed is the man who trusts in the Lord and whose trust is the Lord. For he will be like a tree planted by the water, that extends its roots by a stream and will not fear when the heat comes; but its leaves will be green, and it will not be anxious in a year of drought, nor cease to yield fruit._
 
 ### Thanks to God
-O Lord, we come into Your Presence today, acknowledging Your righteousness and our shame. Like Daniel, we earnestly desire that Your people be restored and that this nation would display Your righteousness in obedience to the Word of Truth.  We thank You for Your mercy and grace so that we are not consumed in judgement. We thank You that Jesus took our place, suffered and died for our sins, and rose on the third day to glory. We thank You that our enemy is defeated and that Jesus reigns from on high. 
+Father God, we come before You today, acknowledging Your sovereignty and our dependence upon You. Like Jeremiah, we see this nation, of which we are a part, forsaking Your righteousness and abandoning the Word of Truth.  This has been happening progressively for a long time, and we thank You for Your mercy and grace so that we are not consumed in judgement. We thank You for our own situation as sinners saved by Your grace, because Jesus took our place, suffered and died for our sins, and rose on the third day. 
 
 ### The World and the Church
-However, we confess the sins of our nation and our State where life is considered disposable, both for the unborn and for the elderly. We confess that we are a self-centred, materialist nation, which has turned its back on You, and substituted false religions for the true faith delivered once for all to the saints.
+However, we confess the sins of our nation and our State where life is considered cheap, both for the unborn and for the elderly. We confess that we are a nation wanting to go its own way, a nation which has turned its back on You, and substituted false religions for the true faith delivered once for all to the saints. We see the drought as one of the consequences of rejecting the wisdom from above, and instead adopting the so-called wisdom of the present times.
 
-We pray for Your Church to be strong in the face of opposition and pressure to compromise with the Word. We see in this State many attacks upon believers, through the Parliament, against Christian schools, by distorted use of the legal system and by the direct sacking of employees who uphold Biblical standards. We see the hand of a defeated enemy who continues to wage war against God's people. We pray for those whom he uses to attack the Church - may they see what evil they are doing, and be brought to repentance by the work of the Holy Spirit. 
+We plead for our land to be restored from its drought for the only Word which can save us from spiritual darkness. We pray for Your Church to be strong in the face of opposition and pressure to compromise with that Word. We pray that the clouds of spiritual confusion and comkpromise over our governments would be dispelled by the work of the Spirit. 
 
-We pray for the many churches which have been invaded by worldly attitudes and compromise. We see much division, both within and between denominations and we pray that they may be turned around so that Your church would again be known as the Pillar of Truth in this community and this nation. We pray for the open showing of the holy nation, the people set apart to Your glory.
+We pray for the many churches which have been invaded by worldly attitudes and compromise. We pray that they may be turned around so that Your church would again be known as the Pillar of Truth in this community and this nation.
 
 ### Ashburton
-We thank You, Lord that here we enjoy the blessings of faithful, powerful, Godly preaching. We continue to pray for Your protection and guidance for Barry and Mook, and we pray for ourselves to be faithful and true to Your Word also. May we be ever growing in Godliness so that we are known, like Daniel, to be people of integrity, without fault at home, at work, in studies and in our communities.
+For the work You are doing here in Ashburton, we pray for Barry and Suzanne on leave - may they be refreshed and rested during their time away. We thank You, Lord that here we enjoy the blessings of faithful Godly preaching. We continue to pray for Your protection and guidance for Barry and Mook, and we thank You for Dr Milne expounding Your Word today. 
 
-In Jesus Precious Name we pray, Amen.
+We pray for ourselves to be faithful and true to Your Word also, to have attentive ears, a ready heart to receive and a willingness to act in accordance with the truth. May we be ever growing in Godliness so that we are known as people of integrity, without fault at home, at work, in studies and in our communities. We pray also that our unity in the Spirit would be enhanced and strengthened as we serve one another and the community around us, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
 
-And now MarJo will bring our second reading for today.
+And now Gaye McKenzie will bring our second reading for today.
