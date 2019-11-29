@@ -18,7 +18,7 @@ Sadly, in these days we see this nation and this State, of which we are a part, 
 
 So we confess the sins of our nation, our State  and our people who in pride worship the created Earth instead of recognising the patterns and cycles of life which You have established for us. We see the drought as one of the consequences of rejecting the wisdom from above, and instead adopting the so-called wisdom of the present times.
 
-We pray for the many churches which have been invaded by worldly attitudes and compromise. And we pray for ourselves too, because it is so easy to be swept along by the tide of thinking which refuses to acknowledge You. As we approach this Advent season we pray that the true importance of Christmas will be widely taught. We pray that Jesus birth be made known as the turning point of history, when God came to this Earth to seek and save the lost.
+We pray for the many churches which have been invaded by worldly attitudes and compromise. And we pray for ourselves too, because it is so easy to be swept along by the tide of thinking which refuses to acknowledge You. As we approach this Advent season we pray that the true importance of Christmas will be widely taught. We pray that Jesus birth be made known as the turning point of history, when God came to this Earth to seek and save the lost. We pray especially for our Carols Service to be a blessing to many in this community, as we present the truths of the gospel faithfully in song, and in word and deed. 
 
 ### Ashburton
 We pray for ourselves to be faithful and true to Your Word also, to see in the Lord's Supper the promise of Jesus Second Coming which is even more sure than His First Coming. 
