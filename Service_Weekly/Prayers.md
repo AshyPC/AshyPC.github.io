@@ -4,23 +4,25 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 27th Oct 2019 
+### 1st December 2019 
 
-__Jeremiah 17:7-8__ _Blessed is the man who trusts in the Lord and whose trust is the Lord. For he will be like a tree planted by the water, that extends its roots by a stream and will not fear when the heat comes; but its leaves will be green, and it will not be anxious in a year of drought, nor cease to yield fruit._
+__1 Cor 8:6__ _... for us there is but one God, the Father, from whom are all things and we exist for Him; and one Lord, Jesus Christ, by whom are all things, and we exist through Him._
 
 ### Thanks to God
-Father God, we come before You today, acknowledging Your sovereignty and our dependence upon You. Like Jeremiah, we see this nation, of which we are a part, forsaking Your righteousness and abandoning the Word of Truth.  This has been happening progressively for a long time, and we thank You for Your mercy and grace so that we are not consumed in judgement. We thank You for our own situation as sinners saved by Your grace, because Jesus took our place, suffered and died for our sins, and rose on the third day. 
+Father God, with Paul, we declare that there is one God, and we come into Your presence to acknowledge that we owe all to You. We declare also that there is but one Lord, Jesus Christ, Whom You have installed as King of Kings - the one through Whom we exist.
+
+We thank You that we are not consumed, despite our sinful natures, for You sent Jesus to redeem us and restore us to Your Presence. We can now declare ourselves members of the household of faith, but it is entirely by Your grace and through the complete obedience of Jesus that we continue to live under Your sovereignty.
 
 ### The World and the Church
-However, we confess the sins of our nation and our State where life is considered cheap, both for the unborn and for the elderly. We confess that we are a nation wanting to go its own way, a nation which has turned its back on You, and substituted false religions for the true faith delivered once for all to the saints. We see the drought as one of the consequences of rejecting the wisdom from above, and instead adopting the so-called wisdom of the present times.
+Sadly, in these days we see this nation and this State, of which we are a part, forsaking Your righteousness and abandoning the Word of Truth.  Now we see more direct attacks upon the church and a more obvious refusal to accept Your created order. Instead we see ideas contrary to Your Good and Perfect Will being promoted as if mankind is today more wise and enlightened than in times past. 
 
-We plead for our land to be restored from its drought for the only Word which can save us from spiritual darkness. We pray for Your Church to be strong in the face of opposition and pressure to compromise with that Word. We pray that the clouds of spiritual confusion and comkpromise over our governments would be dispelled by the work of the Spirit. 
+So we confess the sins of our nation, our State  and our people who in pride worship the created Earth instead of recognising the patterns and cycles of life which You have established for us. We see the drought as one of the consequences of rejecting the wisdom from above, and instead adopting the so-called wisdom of the present times.
 
-We pray for the many churches which have been invaded by worldly attitudes and compromise. We pray that they may be turned around so that Your church would again be known as the Pillar of Truth in this community and this nation.
+We pray for the many churches which have been invaded by worldly attitudes and compromise. And we pray for ourselves too, because it is so easy to be swept along by the tide of thinking which refuses to acknowledge You. As we approach this Advent season we pray that the true importance of Christmas will be widely taught. We pray that Jesus birth be made known as the turning point of history, when God came to this Earth to seek and save the lost.
 
 ### Ashburton
-For the work You are doing here in Ashburton, we pray for Barry and Suzanne on leave - may they be refreshed and rested during their time away. We thank You, Lord that here we enjoy the blessings of faithful Godly preaching. We continue to pray for Your protection and guidance for Barry and Mook, and we thank You for Dr Milne expounding Your Word today. 
+We pray for ourselves to be faithful and true to Your Word also, to see in the Lord's Supper the promise of Jesus Second Coming which is even more sure than His First Coming. 
 
-We pray for ourselves to be faithful and true to Your Word also, to have attentive ears, a ready heart to receive and a willingness to act in accordance with the truth. May we be ever growing in Godliness so that we are known as people of integrity, without fault at home, at work, in studies and in our communities. We pray also that our unity in the Spirit would be enhanced and strengthened as we serve one another and the community around us, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+May we have attentive ears, a ready heart to receive and a willingness to act in accordance with the truth. May we be ever growing in Godliness so that we are known as people of integrity, without fault at home, at work, in studies and in our communities. We pray also that our unity in the Spirit would be enhanced and strengthened as we serve one another and the community around us, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
 
-And now Gaye McKenzie will bring our second reading for today.
+And now I will hand back to Barry for our next hymn.
