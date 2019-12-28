@@ -4,25 +4,29 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 1st December 2019 
+### 29th December 2019 
 
-__1 Cor 8:6__ _... for us there is but one God, the Father, from whom are all things and we exist for Him; and one Lord, Jesus Christ, by whom are all things, and we exist through Him._
+__Rev 4:8__ _The four living creatures hovering over the throne of God do not cease to say,
+
+"Holy, holy, holy is the Lord God, the Almighty, Who was and Who is and Who is to come."_
 
 ### Thanks to God
-Father God, with Paul, we declare that there is one God, and we come into Your presence to acknowledge that we owe all to You. We declare also that there is but one Lord, Jesus Christ, Whom You have installed as King of Kings - the one through Whom we exist.
+Father God, we come into Your Presence today acknowledging that You are Holy, the Holy One, from Everlasting to Everlasting. We also declare that You are worthy of all praise, honour, glory and majesty. When we see this in Your Word and reflect on the year closing, we are in awe at Your great grace shown to us, who are still so far from Your Holiness. You call us to be holy as You are holy, yet You have chosen to accept us in the Beloved. We thank You Jesus, as we remember Your first coming in this season, and we bow before You, looking forward to Your Second Coming as the King of Kings.
 
-We thank You that we are not consumed, despite our sinful natures, for You sent Jesus to redeem us and restore us to Your Presence. We can now declare ourselves members of the household of faith, but it is entirely by Your grace and through the complete obedience of Jesus that we continue to live under Your sovereignty.
+We thank You that although we were lost, You sent Jesus to find us, despite our sinful natures, and to redeem us and restore us to Your Presence. We can now declare ourselves members of the household of faith, but it is entirely by Your grace and through the complete obedience of Jesus that we continue to live under Your sovereignty.
 
 ### The World and the Church
-Sadly, in these days we see this nation and this State, of which we are a part, forsaking Your righteousness and abandoning the Word of Truth.  Now we see more direct attacks upon the church and a more obvious refusal to accept Your created order. Instead we see ideas contrary to Your Good and Perfect Will being promoted as if mankind is today more wise and enlightened than in times past. 
+As we review this past year, we are both saddened and encouraged, for we see that there is still much evidence of sin in our nation and more calamity still affecting many parts of this land. We pray again for relief for drought-affected areas, and for the quenching of the fires which still burn in many places. As we pray for the physical conditions, we also pray for the spiritual condition of our State and nation. We pray for our elected Parliamentarians, the Governor and Governor-General and all who servein publc office. Grant them wisdom in all their dealings, in teh issues which they must address, and we pray too for the preservation of our freedoms.
 
-So we confess the sins of our nation, our State  and our people who in pride worship the created Earth instead of recognising the patterns and cycles of life which You have established for us. We see the drought as one of the consequences of rejecting the wisdom from above, and instead adopting the so-called wisdom of the present times.
+We thank You for the good things we have seen also, especially as the Christmas season closes. We pray for seeds sown in people's hearts as they were reminded in the various carols services of the real events which took place in Bethlehem.
 
-We pray for the many churches which have been invaded by worldly attitudes and compromise. And we pray for ourselves too, because it is so easy to be swept along by the tide of thinking which refuses to acknowledge You. As we approach this Advent season we pray that the true importance of Christmas will be widely taught. We pray that Jesus birth be made known as the turning point of history, when God came to this Earth to seek and save the lost. We pray especially for our Carols Service to be a blessing to many in this community, as we present the truths of the gospel faithfully in song, and in word and deed. 
+We thank You for the work of the church and especially our own denomination this year. We pray for the many pulpits where Your Word has been preached boldly and faithfully, and ask that by Your grace that may continue even more in the coming year.
 
 ### Ashburton
-We pray for ourselves to be faithful and true to Your Word also, to see in the Lord's Supper the promise of Jesus Second Coming which is even more sure than His First Coming. 
+We pray for ourselves to be faithful and true to Your Word also, as Barry and Mook preach through the coming year. 
 
-May we have attentive ears, a ready heart to receive and a willingness to act in accordance with the truth. May we be ever growing in Godliness so that we are known as people of integrity, without fault at home, at work, in studies and in our communities. We pray also that our unity in the Spirit would be enhanced and strengthened as we serve one another and the community around us, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+May we have attentive ears, a ready heart to receive and a willingness to act in accordance with the truth. May we be ever growing in holiness so that we are known as people of integrity, and may we also grow in our love and fellowship one with another here. We pray that our unity in the Spirit would be enhanced and strengthened as we serve one another and the community around us, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
 
-And now I will hand back to Barry for our next hymn.
+And now I will hand over to Seng who will bring our nextreading from God's Word.
+
+ 
