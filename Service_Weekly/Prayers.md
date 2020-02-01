@@ -4,24 +4,28 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 12th January 2020 
+### 2nd February 2020 
 
-__Psalms 8:3-5__ _When I consider Your heavens, the work of Your fingers, The moon and the stars, which You have ordained; What is man that You take thought of him, And the son of man that You care for him? Yet You have made him a little lower than God, And You crown him with glory and majesty!_
+__Psalms 116:12-13__ _What shall I render to the Lord For all His benefits toward me?
+I shall lift up the cup of salvation And call upon the name of the Lord._
 
 ### Thanks to God
-Father God, we come before Youtoday in worship and praise. We declare that You are worthy of all our praise but we also admit that we are weak and feeble in what we bring to You.
+Father God, we thank You that the Good News of Your Gospel was brought to this continent with the First Fleet, and this passage was the text for the first sermon preached to soldiers, sailors and prisoners alike. We give thanks that Your Word is still preached faithfully across this continent week by week, and still the message is to "call upon the Name of the Lord". 
+We confess that there is yet such a need for repentance and salvation because this nation is far from You. We will see again when we celebrate the Lord's supper what it cost to bring the free gift of Your gracious salvation to us.
 
-When we see in Your Word how You have made us just a little lower than Yourself, and still crown us with glory and honour, we are in awe at Your great grace shown to us. You call us to be holy as You are holy, but because of Adam's sin we cannot do that of ourselves. We thank You that You sent Jesus to become one of us, to bridge the great chasm, to do the impossible, and restore all that was lost in the Fall. We thank You that despite our sinful natures, He has restored us to Your Presence and He is the One now crowned with Glory and Honour.
+### The Wider World ### 
+We pray today especially for the grave situation regarding the coronavirus outbreaks. We thank You that we are now receiving better information and important advice and we pray that the response will continue to match the seriousness of this epidemic.
 
-### The World and the Church
-We thank You for the relief that the rain has brought to Victoria and pray again for relief for the fire zones and drought-affected areas in other States. As the fires subside, we pray that we would not revert to our old sinful ways once the crisis passes. We remain in prayer for the spiritual condition of our State and nation. 
+We pray for strength and endurance for the medical response teams trying to deal with these outbreaks. We also pray for those afflicted and for the unknowing carriers to receive treatment as well as for the necessary preventative measures to be taken. 
 
-Whilst the main focus of news has been the fires, we pray for other areas of the Church's work. We thank You for the many ways in which the Body of Christ works out the Great Commission both in the Word by preaching and teaching, and in Deed by the various services of schools, hospitals, chaplaincy, aged care, youth work and many other specialised forms of ministry to the needs of this world. We pray that the Church will continue to minister to the needs of all as it serves obediently its Lord and Master, Jesus.
+### and the wider Church ###
+We remember also that there are spiritual diseases ravaging Your church and we pray for  persecuted fellow-believers in various places such as Nigeria, where Boko Haram continues to attack churches, in Bangladesh where Rohingya believers have been attacked by a rampaging mob, as well as in places such as Norway, Russia and Myanmar, where attacks are never front page news but where believers lose life and property to enemies of the Gospel. We pray that You would strengthen the faith of those believers and encourage them as they remain faithful to their new life in Christ.
 
 ### Ashburton
-We pray for ourselves in this field of work where You have placed us. Strengthen and encourage us to be faithful and true to Your Word also, and as we serve this community and the many people we come into contact with in our daily walk, striving to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+Here in this place, we pray for ourselves also. Strengthen and encourage us to be faithful and true to Your Word, even though we may not face the direct persecutions seen in other parts of the Church.
 
-And now I will hand over to John Lee who will bring our next reading from God's Word.
+Today our Sunday School programme recommences and we pray for the students and teachers as they gather in the hall. We pray that the students would be attentive and eager to learn, and we pray that their teachers would be led by Your Spirit as they impart the same Word as we receive here, but presented in away that the children can grasp most effectively. We pray that as parents we would support and reinforce the work of the Sunday School continuously during the week, by our words and example.  
 
- 
- 
+In everything we do, may we strive to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+
+And now I will hand back to Barry.
