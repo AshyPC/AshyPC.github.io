@@ -6,7 +6,7 @@ title: Prayers
 
 ### 15th March 2020 
 
-__Psalms 34:3?-?4?, ?7__ _O magnify the Lord with me And let us exalt His name together. I sought the Lord, and He answered me And delivered me from all my fears... The angel of the Lord encamps around those who fear Him And rescues them._
+__Psalms 34:3-4, 7__ _O magnify the Lord with me And let us exalt His name together. I sought the Lord, and He answered me And delivered me from all my fears... The angel of the Lord encamps around those who fear Him And rescues them._
 
 ### Thanks to God
 Father God, we thank You that, despite the escalating concerns over the coronavirus, and the spreading incidences of infection, we are able to continue to gather together as Your people, to worship You and to hear Your Word read and preached. 
