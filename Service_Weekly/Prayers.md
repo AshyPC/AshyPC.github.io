@@ -4,28 +4,32 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 2nd February 2020 
+### 15th March 2020 
 
-__Psalms 116:12-13__ _What shall I render to the Lord For all His benefits toward me?
-I shall lift up the cup of salvation And call upon the name of the Lord._
+__Psalms 34:3?-?4?, ?7__ _O magnify the Lord with me And let us exalt His name together. I sought the Lord, and He answered me And delivered me from all my fears... The angel of the Lord encamps around those who fear Him And rescues them._
 
 ### Thanks to God
-Father God, we thank You that the Good News of Your Gospel was brought to this continent with the First Fleet, and this passage was the text for the first sermon preached to soldiers, sailors and prisoners alike. We give thanks that Your Word is still preached faithfully across this continent week by week, and still, the message is to "call upon the Name of the Lord". 
-We confess that there is yet such a need for repentance and salvation because this nation is far from You. We will see again when we celebrate the Lord's supper what it cost to bring the free gift of Your gracious salvation to us.
+Father God, we thank You that, despite the escalating concerns over the coronavirus, and the spreading incidences of infection, we are able to continue to gather together as Your people, to worship You and to hear Your Word read and preached. 
+
+We thank You that You remain in control of the situation and are still sovereign over our lives and circumstances.
+
+We confess that there is a lot of fear in this nation, expressed in examples of panic-buying because so few truly know You and put their trust in You.
 
 ### The Wider World ### 
-We pray today especially for the grave situation regarding the coronavirus outbreaks. We thank You that we are now receiving better information and important advice and we pray that the response will continue to match the seriousness of this epidemic.
+We continue to pray today for the grave situation seen in other places. We pray for people in China, South Korea, Iran and Italy, where conditions are much more severe than we see here in Australia. We thank You for the advice we receive regularly and we pray that the response will continue to match the seriousness of this pandemic.
 
-We pray for strength and endurance for the medical response teams trying to deal with these outbreaks. We also pray for those afflicted and for the unknowing carriers to receive treatment as well as for the necessary preventative measures to be taken. 
+We pray for strength and endurance for the medical response teams dealing with these outbreaks, as well as those seeking a remedy or vaccine. We also pray for those afflicted and for the unknowing carriers to receive treatment as well as for the preventative measures to be taken.
 
 ### and the wider Church ###
-We remember also that there are spiritual diseases ravaging Your church and we pray for persecuted fellow-believers in various places such as Nigeria, where Boko Haram continues to attack churches, in Bangladesh where Rohingya believers have been attacked by a rampaging mob, as well as in places such as Norway, Russia and Myanmar, where attacks are never front-page news but where believers lose life and property to enemies of the Gospel. We pray that You would strengthen the faith of those believers and encourage them as they remain faithful to their new life in Christ.
+We pray that Your people everywhere may be diligent in following all precautionary medical advice without fear or panic so that we express our trust in You in everything we do. May we all express that same trust in You which David wrote in this Psalm, and that this trust may spread to others so that Your Church can be "salt and light" and a blessing to those who do not know You. 
 
 ### Ashburton
-Here in this place, we pray for ourselves also. Strengthen and encourage us to be faithful and true to Your Word, even though we may not face the direct persecutions seen in other parts of the Church.
+Here in this place, we pray for ourselves also. Strengthen and encourage us to be faithful and true to Your Word, even though we may not face the same direct threat seen in other parts of the world.
 
-Today our Sunday School programme recommences and we pray for the students and teachers as they gather in the hall. We pray that the students would be attentive and eager to learn, and we pray that their teachers would be led by Your Spirit as they impart the same Word as we receive here, but presented in a way that the children can grasp most effectively. We pray that as parents we would support and reinforce the work of the Sunday School continuously during the week, by our words and example.  
+We pray for wisdom for the Session, Board and other leaders as we all await further advice. We pray that the ESL classes and Seniors ministry may continue even as we take all necessary extra precautions. 
 
-In everything we do, may we strive to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+Guard us as You guarded Your pilgrim people we pray.  
 
-And now I will hand back to Barry.
+In everything we do, whether in good times or in difficult times such as these, may we strive to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
+
+And now it is time for our second Bible reading for today.
