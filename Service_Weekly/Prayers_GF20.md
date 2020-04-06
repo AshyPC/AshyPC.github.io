@@ -17,11 +17,11 @@ Because of Your great love for us we, who have followed in Adam's sin are now ab
 
 Jesus has once and for all taken the punishment that was ours, removed the guilt which we bore and given us in exchange His perfect righteousness so that we can rejoice in Your Presence. 
 
+### Boldness to Declare
 Living in Australia we acknowledge that we are comfortable and safe, and take so much of Your blessing for granted. Our hearts are dulled and we have forgotten the greatness of Your love towards us.
 
 Awaken our hearts again, stir us up to see how great a salvation Jesus has won for us, so that we cannot help but speak of the wonderful things of God to our friends and neighbours, our families and work colleagues. 
 
-### Boldness to Declare
 May we have the boldness shown by the early believers who demonstrated their love by their actions. May everything that we do and say express Your love to others. May we always strive to be a blessing, especially in difficult times such as we face now with the coronavirus restrictions in place.
 
 ### Chaplaincy
