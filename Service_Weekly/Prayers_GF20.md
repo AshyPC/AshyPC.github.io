@@ -21,8 +21,10 @@ Living in Australia we acknowledge that we are comfortable and safe, and take so
 
 Awaken our hearts again, stir us up to see how great a salvation Jesus has won for us, so that we cannot help but speak of the wonderful things of God to our friends and neighbours, our families and work colleagues. 
 
+### Boldness to Declare
 May we have the boldness shown by the early believers who demonstrated their love by their actions. May everything that we do and say express Your love to others. May we always strive to be a blessing, especially in difficult times such as we face now with the coronavirus restrictions in place.
 
+### Chaplaincy
 As we give to support the work of the Chaplaincy Committee today we also pray for the Committee and all the chaplains, full time and part time who give of themselves to serve in prisons, the military, police and emergency services and in hospitals.
 
 We especially remember Suzanne who serves at the Royal Children's Hospital, and we pray for the chaplains supporting front line medical staff during this coronavirus period.
