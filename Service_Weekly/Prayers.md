@@ -4,32 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 15th March 2020 
+### 17th May 2020 
 
-__Psalms 34:3-4, 7__ _O magnify the Lord with me And let us exalt His name together. I sought the Lord, and He answered me And delivered me from all my fears... The angel of the Lord encamps around those who fear Him And rescues them._
+__Psalms 62:8__ _Trust in Him at all times, O people; Pour out your heart before Him; God is a refuge for us._
 
 ### Thanks to God
-Father God, we thank You that, despite the escalating concerns over the coronavirus, and the spreading incidences of infection, we are able to continue to gather together as Your people, to worship You and to hear Your Word read and preached. 
+Father God, we thank You that You are sovereign and nothing is beyond Your control. We thank You that we can put our trust in You even when we have not been able to gather in worship but have had to "meet" with the help of modern technology. We thank You that we are still able to sing Your praises and hear Your Word read and preached. 
 
-We thank You that You remain in control of the situation and are still sovereign over our lives and circumstances.
-
-We confess that there is a lot of fear in this nation, expressed in examples of panic-buying because so few truly know You and put their trust in You.
+We confess that there is a lot of fear in this nation and that the severe restrictions have done little to allay those fears, even while the impact of the coronavirus has been minimized. We thank You that so few lives have been lost to the virus and the main impact seems to be behind us.
 
 ### The Wider World ### 
-We continue to pray today for the grave situation seen in other places. We pray for people in China, South Korea, Iran and Italy, where conditions are much more severe than we see here in Australia. We thank You for the advice we receive regularly and we pray that the response will continue to match the seriousness of this pandemic.
+We pray again today for continued efforts to reduce the impact of the virus in other places. We also pray for great wisdom in leadership as countries see the effect on their hospital systems and medical staff who minister to patients. 
 
-We pray for strength and endurance for the medical response teams dealing with these outbreaks, as well as those seeking a remedy or vaccine. We also pray for those afflicted and for the unknowing carriers to receive treatment as well as for the preventative measures to be taken.
+We thank You that moves are now afoot to ease the restrictions in Australia. We pray that our governments may reverse the emergency powers steadily and allow life to return to its more usual form. We pray for the many people who have been out of work to be able to return as soon as possible. We know that You have created us to work rather than to be idle.
 
 ### and the wider Church ###
-We pray that Your people everywhere may be diligent in following all precautionary medical advice without fear or panic so that we express our trust in You in everything we do. May we all express that same trust in You which David wrote in this Psalm, and that this trust may spread to others so that Your Church can be "salt and light" and a blessing to those who do not know You. 
+We pray that Your people everywhere may be bold and yet wise as our freedom of movement is restored so that we express our trust in You in everything we do. May we be beacons of light within our communities, living according to the Truth You have revealed to us in Your Word.
 
 ### Ashburton
-Here in this place, we pray for ourselves also. Strengthen and encourage us to be faithful and true to Your Word, even though we may not face the same direct threat seen in other parts of the world.
+Here in Ashburton, we pray for wisdom for the Session, Board and other leaders as they plan ahead for the restoration of our various ministries.
 
-We pray for wisdom for the Session, Board and other leaders as we all await further advice. We pray that the ESL classes and Seniors ministry may continue even as we take all necessary extra precautions. 
-
-Guard us as You guarded Your pilgrim people we pray.  
+Until then we continue to uphold Barry, Mook, the musicians and others who take part in our video services so that we are still able to hear Your Word read and preached. And we ask for Your encouragement in our own times of reading Your Word and praying for each other so that when we are able to meet again our fellowship may be enriched and stronger despite this time of separation.
 
 In everything we do, whether in good times or in difficult times such as these, may we strive to make known Jesus Great and Precious Name, in which we pray all these things, Amen.
-
-And now it is time for our second Bible reading for today.
