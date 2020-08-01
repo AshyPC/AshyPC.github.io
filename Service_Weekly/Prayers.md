@@ -4,36 +4,28 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 21st June 2020 
+### 2nd August 2020 
 
-__Psalms 77:1__ _I cried out to God for help; I cried out to God to hear me._
+__Psalms 89:34__ _I will not violate my covenant or alter what my lips have uttered._
 
 ### Thanks to God
-Father God, we thank You that You are sovereign and nothing is beyond Your control. We thank You that You are the God Who hears us, the One Who has rescued us from the depths of our sin.
-We thank You that we can cry out to You at this time when we have not been able to gather in worship and, from tomorrow, we face further restrictions in our own homes. but have had to "meet" with the help of modern technology. We thank You that we are still able to sing Your praises and hear Your Word read and preached. 
+O Lord our God, we thank You that You are faithful You keep Your covenants and fulfil Your promises. We thank You that You rescued us from the depths of our sin, as You promised to Adam and Eve in the beginning.
 
-We confess that there is a lot of fear within this State as the number of reported Covid cases jumped recently. We pray for our leaders and their medical advisers, and that the restrictions may soon be eased. We thank You that so few lives have been lost to the virus in Victoria and Australia generally.
+We thank You that we can still gather in worship with the help of modern technology and that we are still able to sing Your praises and hear Your Word read and preached. 
+
+We thank You for the various means You have provided for us to guard our health. As we use all the means You give us, we still look to You as the true source of our spiritual and physical well-being.
 
 ### The Wider World ### 
-We pray again today for continued efforts to reduce the impact of the virus in other places. We also pray for great wisdom in leadership as countries grapple with the upsurge in violent protests. This is not a time for compounding the effects of a medical emergency with street riots and lawlessness.
-
-We continue to pray that our governments may reverse their emergency powers steadily and allow life to return to normal. We give thanks for the lifting of some restrictions already, and look forward to easier times ahead, even if that is not to happen immediately.
-
+We recognize the seriousness of conditions in Victoria as the number of reported Covid cases has escalated dramatically and that there are fresh outbreaks in other States as well. We pray for our leaders and their medical advisers as they grapple with this great surge of cases. May their efforts soon yield success so that the more severe restrictions can be rolled back.
+ 
 ### and the wider Church ###
-We pray that Your people everywhere may be bold and yet wise as our freedom of movement is restored so that we express our trust in You in everything we do.
+In the wider church, we pray for one of our missionary families in Papua New Guinea - the Mathys. We give thanks that PNG has not suffered much from the virus so far, and pray that it wouldremain safe. Meanwhile the Wycliffe base at Ukarumpa has been affected by the various preventative measures put in place. We pray that things may soon return to normal so that Bible translation wok in the region can resume.
 
-Even while our focus is on one thing, we know that Your church marches on, and Your work in the world does not slacken. We thank You for the Commission of Assembly meeting in this past week and for the weighty decisions made in a spirit of unity. May all the decisions be blessed as they seek to further the continuation of gospel ministry by the PCV.
+We particularly want to pray for the staff and patients of Kirkbrae Aged Care where an outbreak has occurred and some patients have been evacuated to hospital. Grant the management team and medical staff strength and endurance as they deal with this crisis whilst still giving their patients the utmost in care and compassion. We give thanks that not all patients have been affected, and that other parts of the Kirkbrae site are also free of the virus. We pray for their continued protection whilst the management and staff work to care for those who are affected.  
 
 ### Ashburton
-Here in Ashburton, we pray for wisdom for the Session, the Board and other leaders as they plan ahead for the restoration of our various ministries, even while restrictions continue for the time being.
+Here in Ashburton, we pray for Callum and Stephanie, as Steph has tested positive, and they are in self-isolation. We thank You that Callum can continue working from home whilst caring for Steph. We pray for speedy recovery and for protection for others in the congregation.
 
-We give thanks for answered prayer as Rachel Oakes has found accommodation and a church in Sydney and has commenced her full-time work. We continue to pray for her as she builds new Godly relationships with both church members and work colleagues.
-We pray also for Suzanne's chaplaincy work at the Royal Children's Hospital, made more difficult by the current restrictions.
+We continue to uphold Barry, Mook, the musicians and others who prepare our video services so that we are still able to take part in worship remotely. We ask for Your help and encouragement in our own times of reading Your Word and praying for each other. May we build good practices of spiritual discipline in reading You Word, praying for each other and supporting each other. May You draw us closer to Yourself daily.
 
-We remember with sadness Murial French, who was received into glory recently. We give thanks that she is at peace now and pray for her family and friends in the present circumstances.
-
-We continue to uphold Barry, Mook, the musicians and others who take part in our video services so that we are still able to take part in worship remotely, and hear Your Word read and preached. We ask for Your encouragement in our own times of reading Your Word and praying for each other so that when we are able to meet again our fellowship may be enriched and stronger despite this time of separation.
-
-Whilst we continue in a restricted way to "meet together" online, we pray that You would be drawing us closer to Yourself daily. May we receive the Word planted in our hearts, and may our desires turn heaven-wards more and more.
-
-In everything we do, may we strive to make known the Great and Precious Name of Our Lord, Jesus Christ, for Whose glory we pray all these things, Amen.
+In everything we do, may we strive to make known the sure hope we have in Our Lord, Jesus Christ, for Whose glory we pray all these things, Amen.
