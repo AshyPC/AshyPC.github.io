@@ -4,7 +4,7 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 22nd October 2020 
+### 22nd November 2020 
 
 __Psalms 130:1-2__ _YOut of the depths I have cried to You, O Lord. Lord, hear my voice! Let Your ears be attentive to the voice of my supplications._
 
