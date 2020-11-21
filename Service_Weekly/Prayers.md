@@ -26,7 +26,7 @@ We thank You that conditions in Victoria are improving as the number of reported
 In the wider church, we pray for missionaries and their families in countries without the same standard of medical and hospital care. We pray for the Mathys family in Papua New Guinea. May they and all at the Ukarumpa Wycliffe base be safe and may they resume Bible translation and related work.
 
 ### Ashburton
-Here in Ashburton, we give thanks that we remain generally healthy but remember that there are other matters of health and well-being to pray for. We give thanks for Margaret's recovery, and for the excellent medical care available to her. 
+Here in Ashburton, we give thanks that Margaret Sanders is home but we pray for her next appointment. May the medical staff understand the cause of her condition and can provide the best treatment. Meanwhile we pray strength for Margaret as she rests until she can resume her normal activities.
 
 We continue to pray for our students as they progress through the VCE exam period. Please enable Shi Yar and Thea to present themselves at their best. May they have confidence as they perservere in these exams.
 
