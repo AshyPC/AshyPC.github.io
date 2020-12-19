@@ -4,32 +4,30 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 22nd November 2020 
+### 20th December 2020 
 
-__Psalms 130:1-2__ _YOut of the depths I have cried to You, O Lord. Lord, hear my voice! Let Your ears be attentive to the voice of my supplications._
+__Psalms 140:12-13__ _I know that the Lord will maintain the cause of the afflicted And justice for the poor. Surely the righteous will give thanks to Your Name; The upright will dwell in Your Presence._
 
 ### Thanks to God
-O Lord our God, You are high and lifted up. You created all that was good in the beginning. Yet the Creation was plunged into the futility caused by Adam's sin, and today we live in an imperfect world, where sin and sickness are never far from us.
+O Lord our God, we thank You  that we can come into Your Presence in this place in greater numbers than before. In the beginning, You created all, it was very good and You made man the pinnacle of Your Creation, to worship You and remain in Your Presence. Yet because of Adam's sin, we live in an imperfect world, which needs a Perfect Saviour.
 
-We confess that, like sheep, we have gone astray and turned away from You, the true source of Life. We live still under the limitations of Covid restrictions and all our efforts to overcome the impact of the virus are man-centred.
+Each year at this season, we remember that You did not leave this world stranded and under the control of the devil. We thank You that You sent Jesus to do what was impossible for us. We thank You that He came quietly, as a helpless member of the human race, growing as we do, facing all the temptations we do, and yet remaining without sin and living the Perfect Life of obedience to Your Will.
 
-However, we thank You that You rescued us from the depths of our sin by sending Jesus to take our place. We thank You that by Your glorious grace, You have dealt with the basic cause: our sin against You. You delivered us by raising Jesus from the dead. By the same power which created the world, You transferred us from the kingdom of darkness into the kingdom of Your Son.
+We celebrate the Christmas season with joy, but we realise that His destiny was the Easter Cross, and the Empty Tomb, because He came to die in our place. rescued us from the depths of our sin by 
 
-By implanting Your Holy Spirit You have given us the righteous life of Jesus, and You have adopted us into the heavenly Family.
-
-We thank You that we can still worship with the help of technology and that we are still able to sing Your praises in our separated places. By giving You the first day of the week we signify that we give You the first priority over all our plans, over everything in our lives.
+In place of our sinful nature, You have given us the righteous life of Jesus, so that now we are able to give thanks to Your Name. Now, we can be called upright and dwell in Your Presence
 
 ### The Wider World ... ### 
-We thank You that conditions in Victoria are improving as the number of reported Covid cases falls steadily each day. We thank You that the State has gone 23 days without a new case and we continue to pray for our leaders and their medical advisers. We look forward to the scaling back of restrictions, possibly as early as tonight. We are encouraged by the news we hear of early success with vaccines, and pray for further progress with various treatments.
+We thank You that restricitons in Victoria are easing as the number of reported Covid cases remains low. We continue to pray for our leaders and their medical advisers. We look forward to further easing of restrictions in future, and continue to pray for progress with research into various available treatments.
 
 ### ... and the wider Church ###
-In the wider church, we pray for missionaries and their families in countries without the same standard of medical and hospital care. We pray for the Mathys family in Papua New Guinea. May they and all at the Ukarumpa Wycliffe base be safe and may they resume Bible translation and related work.
+In the wider church, we pray for persecuted believers, whose Christmas may be anything but joyful. We particularly pray for believers in Nigeria where attacks are relentless. As a Commonwealth country, we pray for other Commonwealth leaders to find ways to support official Nigerian efforts to deal with the militants. We remember also refugee believers who have fled from Iran now barely surviving in Turkey, Bosnia and Serbia.
 
 ### Ashburton
-Here in Ashburton, we give thanks that Margaret Sanders is home but we pray for her next appointment. May the medical staff understand the cause of her condition and can provide the best treatment. Meanwhile we pray strength for Margaret as she rests until she can resume her normal activities.
+Here in Ashburton, we give thanks for Margaret Sanders progress but we pray for the medical staff as they seek to understand the cause of her condition and plan for the best treatment. We pray also for those who can't be with us as yet - Flora, Nolene, Theodore and Margaret Loo.
 
-We continue to pray for our students as they progress through the VCE exam period. Please enable Shi Yar and Thea to present themselves at their best. May they have confidence as they perservere in these exams.
+We also continue to support Aash and Divia and family here, and Aash's sister and mother in India as they face Christmas without Aash's Dad. We thank You for his life and ministry and rest in the knowledge that he is now at peace in Your presence.
 
-We uphold Barry, Mook and all the team preparing our video services. We also pray for the Elders and the Board as they plan for restoration of services in person, and all that needs to be done for that to happen.
+We uphold Barry, Mook and all the team preparing our services. We also give thanks for the Elders, the Board managers and everyone rostered on to the cleaning tasks after the service.
 
 We strive to endure all things, including the restrictions, for the sake of the Kingdom and for the glory of the King of Kings, Amen.
