@@ -13,7 +13,7 @@ O Lord our God, we thank You  that we can come into Your Presence in this place 
 
 Each year at this season, we remember that You did not leave this world stranded and under the control of the devil. We thank You that You sent Jesus to do what was impossible for us. We thank You that He came quietly, as a helpless member of the human race, growing as we do, facing all the temptations we do, and yet remaining without sin and living the Perfect Life of obedience to Your Will.
 
-We celebrate the Christmas season with joy, but we realise that His destiny was the Easter Cross, and the Empty Tomb, because He came to die in our place. rescued us from the depths of our sin by 
+We celebrate the Christmas season with joy, but we realise that His destiny was the Easter Cross, and the Empty Tomb, because He came to die in our place. 
 
 In place of our sinful nature, You have given us the righteous life of Jesus, so that now we are able to give thanks to Your Name. Now, we can be called upright and dwell in Your Presence
 
