@@ -4,30 +4,29 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 20th December 2020 
+### 24th January 2021 
 
-__Psalms 140:12-13__ _I know that the Lord will maintain the cause of the afflicted And justice for the poor. Surely the righteous will give thanks to Your Name; The upright will dwell in Your Presence._
+__2 Cor 3:18__ _And we all, who with unveiled faces contemplate the Lord's glory, are being transformed into his image with ever-increasing glory, which comes from the Lord, who is the Spirit._
 
 ### Thanks to God
-O Lord our God, we thank You  that we can come into Your Presence in this place in greater numbers than before. In the beginning, You created all, it was very good and You made man the pinnacle of Your Creation, to worship You and remain in Your Presence. Yet because of Adam's sin, we live in an imperfect world, which needs a Perfect Saviour.
+O Lord our God, we thank You  that we can come into Your Presence today with greater confidence than before. In the beginning, You created this world and declared that it was "very good." You gave man, the pinnacle of Your Creation, the task of caring for the world so that all Creation could worship You. Yet because of sin, we live in an imperfect world, which needs a Perfect Saviour.
 
-Each year at this season, we remember that You did not leave this world stranded and under the control of the devil. We thank You that You sent Jesus to do what was impossible for us. We thank You that He came quietly, as a helpless member of the human race, growing as we do, facing all the temptations we do, and yet remaining without sin and living the Perfect Life of obedience to Your Will.
-
-We celebrate the Christmas season with joy, but we realise that His destiny was the Easter Cross, and the Empty Tomb, because He came to die in our place. 
-
-In place of our sinful nature, You have given us the righteous life of Jesus, so that now we are able to give thanks to Your Name. Now, we can be called upright and dwell in Your Presence
+We thank You that You sent Jesus as that Perfect Saviour, to do what was impossible for us. We thank You that He came and bridged the immense gap that separated us from You. We thank You that His sacrifice was what was needed to break down the wall of hostility so that we could be reconciled back to You, and so that the Creation could be restored to its former glory. We do not see that yet but we look forward to the New Heavens and the New Earth to come when Jesus returns.
 
 ### The Wider World ... ### 
-We thank You that restricitons in Victoria are easing as the number of reported Covid cases remains low. We continue to pray for our leaders and their medical advisers. We look forward to further easing of restrictions in future, and continue to pray for progress with research into various available treatments.
+We thank You that restrictions in Victoria have been eased again. We remain hopeful that there will come a time when we need not be concerned about masks and isolation, and extra-special preventative measures. We continue to pray for our leaders and their medical advisers, and for progress with research into various available treatments.
+
+We remember that there are other things to pray about as we come into some hot weather and greater risk of bushfires. We pray for our communities in fire-prone areas to be prepared and for all the emergency services to be alert, fully equipped to deal with any outbreaks.
 
 ### ... and the wider Church ###
-In the wider church, we pray for persecuted believers, whose Christmas may be anything but joyful. We particularly pray for believers in Nigeria where attacks are relentless. As a Commonwealth country, we pray for other Commonwealth leaders to find ways to support official Nigerian efforts to deal with the militants. We remember also refugee believers who have fled from Iran now barely surviving in Turkey, Bosnia and Serbia.
+In the wider church, we pray for believers facing a freezing winter and widespread Covid outbreaks. We particularly pray for believers in Armenia where war conditions prevail and hospitalised Covid patients have been displaced by war casualties. Keep us alert to the needs of Your people in other places.
 
 ### Ashburton
-Here in Ashburton, we give thanks for Margaret Sanders progress but we pray for the medical staff as they seek to understand the cause of her condition and plan for the best treatment. We pray also for those who can't be with us as yet - Flora, Nolene, Theodore and Margaret Loo.
+Here in Ashburton, we give thanks for Sandra and Newton finding a place to live while their home is rebuilt. We pray for quick progress and excellent work to restore what was lost in the fire. 
+We pray also for Barry and Suzanne on their break - refresh them Lord so that they may continue in the calling You have placed on their lives in this part of the Kingdom.
 
-We also continue to support Aash and Divia and family here, and Aash's sister and mother in India as they face Christmas without Aash's Dad. We thank You for his life and ministry and rest in the knowledge that he is now at peace in Your presence.
+We are acutely aware, Lord that the Covid restrictions have gone on much longer than we all thought, and we see how they have affected the working of the body of Christ in this place. As we have been isolated at home we saw the dangers of "watching" church happen on our screens instead of being a part of the service together. You have saved us to serve, both our fellow believers and the wider community. It is harder to support and encourage one another as Your Word says when we wear masks veiling our faces. We can't even see each others' smiles!  So we pray for further easing of restrictions, that we can strengthen our fellowship, rebuild our unity and work together as a united body, building the Kingdom of God as You enable us by Your Spirit.
 
-We uphold Barry, Mook and all the team preparing our services. We also give thanks for the Elders, the Board managers and everyone rostered on to the cleaning tasks after the service.
+We pray for Mook as he preaches Your Word today, and we pray for all those taking part in our services. 
 
-We strive to endure all things, including the restrictions, for the sake of the Kingdom and for the glory of the King of Kings, Amen.
+As You enable us, we strive to endure all things for the sake of the Kingdom and for the glory of the King of Kings, Amen.
