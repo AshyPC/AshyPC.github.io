@@ -4,29 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 24th January 2021 
+### 31st January 2021
 
-__2 Cor 3:18__ _And we all, who with unveiled faces contemplate the Lord's glory, are being transformed into his image with ever-increasing glory, which comes from the Lord, who is the Spirit._
+__Psalm 24:7-8__ _Lift up your heads, you gates; be lifted up, you ancient doors, that the King of glory may come in.  Who is this King of glory? The Lord strong and mighty, the Lord mighty in battle._
 
 ### Thanks to God
-O Lord our God, we thank You  that we can come into Your Presence today with greater confidence than before. In the beginning, You created this world and declared that it was "very good." You gave man, the pinnacle of Your Creation, the task of caring for the world so that all Creation could worship You. Yet because of sin, we live in an imperfect world, which needs a Perfect Saviour.
-
-We thank You that You sent Jesus as that Perfect Saviour, to do what was impossible for us. We thank You that He came and bridged the immense gap that separated us from You. We thank You that His sacrifice was what was needed to break down the wall of hostility so that we could be reconciled back to You, and so that the Creation could be restored to its former glory. We do not see that yet but we look forward to the New Heavens and the New Earth to come when Jesus returns.
+O Lord our God, we thank You that, although we are separated today, we can come into Your Presence remotely. Knowing that we live in an imperfect, sin-affected world, which needs a Perfect Saviour, We thank You that You are still with us wherever we are. Being together is better than being apart but we pray for our service today to still be a means of lifting up the Name of Jesus.
 
 ### The Wider World ... ### 
-We thank You that restrictions in Victoria have been eased again. We remain hopeful that there will come a time when we need not be concerned about masks and isolation, and extra-special preventative measures. We continue to pray for our leaders and their medical advisers, and for progress with research into various available treatments.
+We thank You that Jesus is the King of Glory Whom the whole world seeks. We know that too many seek wrongly, thinking that the so-called "answer to life" can be found in this world, when in reality, the King of Glory is enthroned in the heavens, and will return again at the time You have appointed for the end of this earthly history.
 
-We remember that there are other things to pray about as we come into some hot weather and greater risk of bushfires. We pray for our communities in fire-prone areas to be prepared and for all the emergency services to be alert, fully equipped to deal with any outbreaks.
+We thank You that the Covid-19 virus has receded even further. We continue to pray for our governments to remove the emergency measures, and to restore the freedoms we knew from times past.
+
+Whilst we have been focused on local happenings, we have not heard much about events elsewhere. We pray for communities in Sulawesi, Indonesia, which suffered from a large earthquake two weeks ago. We recognise the immense power of such natural forces and remember that You are in control, even if we can only see chaos and destruction. We pray for the continuing rescue efforts, for the distribution of aid and for the restoration of law and order in the earthquake zone.
 
 ### ... and the wider Church ###
-In the wider church, we pray for believers facing a freezing winter and widespread Covid outbreaks. We particularly pray for believers in Armenia where war conditions prevail and hospitalised Covid patients have been displaced by war casualties. Keep us alert to the needs of Your people in other places.
+In the midst of this we also pray for believers in that zone, where many are homeless and where churches have also collapsed. We pray also for Barnabas Fund workers who are in the forefront of aid efforts there.
 
 ### Ashburton
-Here in Ashburton, we give thanks for Sandra and Newton finding a place to live while their home is rebuilt. We pray for quick progress and excellent work to restore what was lost in the fire. 
-We pray also for Barry and Suzanne on their break - refresh them Lord so that they may continue in the calling You have placed on their lives in this part of the Kingdom.
+Here in Ashburton, we pray for health needs within our number. We thank You for Mook recovering and pray that You strengthen him for the preaching of Your Word today. We also pray for Talia, Jethro and Amy still recovering from the heavy colds they have suffered in this past week. We also pray for Margaret Sanders, now taking stronger medication for trigeminal neuralgia. We pray again for Barry and Suzanne on their break - they give so much of themselves in the calling You have placed on their lives, so we pray that You would refill them and refresh them by Your Spirit.
 
-We are acutely aware, Lord that the Covid restrictions have gone on much longer than we all thought, and we see how they have affected the working of the body of Christ in this place. As we have been isolated at home we saw the dangers of "watching" church happen on our screens instead of being a part of the service together. You have saved us to serve, both our fellow believers and the wider community. It is harder to support and encourage one another as Your Word says when we wear masks veiling our faces. We can't even see each others' smiles!  So we pray for further easing of restrictions, that we can strengthen our fellowship, rebuild our unity and work together as a united body, building the Kingdom of God as You enable us by Your Spirit.
+Despite this being an online service today, we pray that we can strengthen our fellowship, rebuild our unity and work to build the Kingdom of God as You enable us by Your Spirit.
 
-We pray for Mook as he preaches Your Word today, and we pray for all those taking part in our services. 
-
-As You enable us, we strive to endure all things for the sake of the Kingdom and for the glory of the King of Kings, Amen.
+We strive in the strength You give us, for the sake of the Kingdom, to see the glory of the King of Kings made manifest in this world, Amen.
