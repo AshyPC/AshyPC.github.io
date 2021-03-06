@@ -4,49 +4,40 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 7th February 2021
+### 7th March 2021
 
-__2 Chronicles 14:11__ _Lift up your heads, you gates; be lifted up, you ancient doors, that the King of glory may come in.  Who is this King of glory? The Lord strong and mighty, the Lord mighty in battleThen Asa prayed, "Lord, there is no one besides You to help in the battle between the powerful and those who have no strength; so help us, O Lord our God, for we trust in You, and in Your Name have come against this multitude. O Lord , You are our God; let not man prevail against You."_
+__Psalm 59:16__ _But I will sing of your strength; I will sing aloud of your steadfast love in the morning. For you have been to me a fortress and a refuge in the day of my distress._
+
+While David was beset by enemies seeking his life, he was still able to sing of God’s protection. Let us likewise come to our loving God Who guards His people.
 
 ### Thanks to God
-O Lord our God, we thank You that we are able to meet together again. We come into Your Presence with thanksgiving and into Your courts with praise. You have drawn us together as Your people in this place, more than a gathering of individuals, for You have made us into the Body of Christ. You have knitted us together in love, and strengthened the bonds of fellowship between us. As we celebrate the Lord's Supper later in the service we pray that You would continue to grow us together - supporting each other and encouraging each other to love and good deeds.
+O Heavenly Father, we thank You that we are able to meet again on this Lord’s Day to hear Your Word read and preached, to sing praises to Your Name, to share fellowship one with another and to celebrate the Lord’s Supper. We remember the Perfect sacrifice of Jesus, made to secure our redemption, and to turn us from rebels into saints. We also look forward to the return of the King of Kings and the great Marriage Feast of the Lamb which is to come.
 
-You did this while we were rebels against Your Word, offending You with our sin. We were darkness, but now we are light; we were enemies but now we are adopted sons and daughters in the family of God; we were dead but now are alive as branches of the True Vine. How great is Your grace and mercy to us who deserve no mercy at all.
-
-We thank You that Jesus is the One Who brought this about by His sacrifice on the Cross on our behalf. He is the Perfect Lamb Who was slain in our place, so that we could go free. Having been raised up to life again, He is seated in the heavens as King of Kings until all is subdued under His righteous rule.
-
-On a day which You have appointed, we look forward to His return to make manifest His position as the King of Glory ruling over all of Creation. Until then, we live and work for the sake of the kingdom, for we are saved not for our own sake but to serve, and to see the Kingdom expand, to reach the uttermost parts of the Earth, so that all men may know Who Jesus is.
+We thank You that Your Church is made of living stones – we who were dead in sin, but whom You made alive by Your sovereign Grace, upon whom You bestowed the very faith we needed in order to believe the Good News of Salvation, rich and free but provided at infinite cost. We thank You that it was not because of any good in us that we are now Your people but only because of Your choice. And because it is all of You, we can trust You to hold us in Your hands until the very end.
 
 ### The Wider World...... and the wider Church ### 
-We recognise  that the Covid-19 situation has become even more complicated as Western Australia ceases its lockdown but Victoria has another outbreak. We continue to pray for effective quarantine measures and treatments so that we may again enjoy the freedoms we knew from times past.
+In this wide world, Lord, we see much that needs the healing touch of Jesus, for both body and soul. We thank You for agencies such as Barnabas Fund which reports on troubles elsewhere. We pray again for their work in Myanmar among the Chin and Karen peoples currently suffering at the hands of the military regime.
 
-We are greatly saddened that the Victorian government has passed new laws which aim to prohibit so-called conversion therapies but which directly attack the church in its work of prayer and counselling. We pray that the church will rise up against the work of the activists behind these measures, so that the impact of this law will be defeated. We pray that the church can freely continue to counsel, pray and apply Biblical truths to help people confronting complex dilemmas of life.
+As we live our lives here in submission to Your Word, Lord, we pray for our governments, for our nation and our State of Victoria. Disorder seems to be so prevalent and we see few signs of true leadership. You instituted government to commend good and to punish evil, to protect families and allow for the freedom to preach the gospel.
 
-Nothing is beyond Your control, and nothing escapes Your notice. In these dark times we face an enemy who appears to be overwhelming. We do not like what we see but like king Asa, we trust in our God Who rules all from heaven. We pray that You will bring glory to Your Name even in this.
+So much of what we see reported goes against those purposes so we pray that Your church would stand firm in these troubled times, that we might be witnesses in word and deed to the truths of Your Word, and to declare that actions contrary to Your Word will result in harm to the people of our nation and State.
+
+Nothing is beyond Your control, and nothing escapes Your notice. As we work for the blessing of the place in which we live, we also remember that politics and government will not bring about true peace which can come only from the Prince of Peace, and the outcome of current events is in Your hands.
 
 ### Ashburton
-Here in Ashburton, we pray for needs within our number. We thank You for Newton's recovery, and continue to pray that Sandra and Newton can continue their lives with minimal disruption whilst their home is restored. We also continue to uphold Margaret Sanders, now taking stronger medication for trigeminal neuralgia. We pray also for students resuming school - some moving up into tertiary study. We pray that the stresses of last year may be left behind as they work towards their goals and as they seek to honour You in their studies.
+Here in Ashburton, we pray for needs within our number. We continue to uphold Margaret Sanders, taking stronger medication for trigeminal neuralgia. We ask You to grant wisdom and insight to her doctor and specialists as they seek to prescribe the best treatment. 
 
-We pray for Barry as he commences a new preaching series. May we all understand more of Your grace and favour as we submit to Your Word in the books of Ezra and Nehemiah.
+We pray for Barry as he preaches Your Word. We thank You for his high calling to rightly handle the Word of Truth. We pray for our own understanding as we listen and absorb the living Word. May it go deep into our hearts to change us by the work of the Holy Spirit, to make us more into the likeness of Jesus each day. As we study Your Word in community groups we pray for opportunities to live it out, and to care for one another in the grace that You supply.
 
-
-Knowing that the weapons of our warfare are not worldly but mighty through God, we pray for the work of the Kingdom, to see the glory of the Lord cover the earth as the waters cover the seas, Amen.
-
+Knowing that we may make our plans but You guide our ways, we pray that the work of the Kingdom may prosper as Your Word extends outward from this place, In Jesus Name, Amen.
 
 
 
 
-We come now to acknowledge God's goodness to us in material ways by returning to Him our freewill offerings.
 
-We appreciate our visitors present and online, and stress that there is no obligation upon you. This is for the members of the local congregation who give in support of the work here and elsewhere.
+We come now to the reading of God’s Word.
 
-We encourage online giving by bank transfer - details are available in the church bulletin and on our website. But if you haven't done that, the duty managers will now wait on you for your offerings.
+The reading is today’s passage from which Barry will preach shortly. Follow with me as we read Ezra chapter 6 verses 13 to 22.
 
 
-Let us pray:
-
-Father God, we thank you that we live in a prosperous country and our needs are readily supplied. We recognise that all these blessings are from Your hand and by Your grace to us.
-
-We pray that our possessions will not own us, but that we will hold all things as trustees and stewards on Your behalf, so that all we have and all we are may be dedicated to the work of the Kingdom and in true service to the King of Kings.
-
-Bless these offerings, we pray. May they be managed wisely and well so that they achieve all that You purpose in this work. In Jesus Precious Name we pray, Amen.
+Just before Barry preaches, let us stand to express our joy in the words of our next hymn “Join All the Glorious Names.”
