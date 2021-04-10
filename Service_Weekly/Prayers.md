@@ -4,29 +4,33 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 28th March 2021
+### 11th April 2021
 
-__2 Tim 2:13__ _...if we are faithless, He remains faithful, for He cannot disown himself._
-
-This comes at the end of a “trustworthy saying” which Paul quoted to Timothy in his second letter.
+__Ps 94:14‭-‬15__ _For the Lord will not abandon His people, Nor will He forsake His inheritance.
+For judgement will again be righteous, And all the upright in heart will follow it._
 
 ### Thanks to God
-Heavenly Father, we thank You that we are free to meet again on this Lord’s Day to hear Your Word read and preached, to sing Your praises, and to share fellowship one with another.
+Heavenly Father, we thank You that You remain ever-faithful to Your covenant and You do not abandon Your people, despite their weakness and outright rebelliousness. We thank You that You have made us into Your people in this place and at this time.
 
-We remember on this Palm Sunday that Jesus made a triumphal entry to the city of Jerusalem. He came, not as the military conquerors, but on a donkey, meek and lowly, as foretold by the prophet Zechariah. He was hailed by the crowd as the Messiah, the restorer of Israel. Yet, less than a week later, He would be rejected by a fickle crowd, stirred up by their leaders to demand the release of a murderer.
+We thank You that You sent Jesus on a unique mission – to win back Your people from the hands of the enemy. We thank You that He remained faithful to that mission, to endure the Cross on our behalf, and so become the Perfect sacrifice which we needed in order to be rescued from our sin.
 
-But He remained faithful to His mission, to endure the Cross on our behalf, and so become the Perfect sacrifice we needed in order to be rescued from our sin.
+We thank You that You raised Him up on the third day, fulfilling Your promise to provide a Redeemer and Champion greater than King David, so much greater that He broke down the wall of hostility between the Jewish nation and the rest of the world. As a result, we who were once not a people could become sons and daughters of the living God.
 
-We confess that we would be no more faithful than those in the crowd, for we know too well our weaknesses and our sinful hearts. We are still prone to wander, Lord. Nevertheless, we look forward to the return of the Messiah, coming not on a donkey but as the King of Kings, leading His army of the redeemed on a white charger, victorious over sin and death.
+### The Wider World
+Lord, You express in Your Word special concern for widows and orphans, and today we pray for Her Majesty Queen Elizabeth, already orphaned and now widowed by the death of Prince Philip, Duke of Edinburgh on Friday. May Her Majesty’s faith in You remain strong during this time of loss and grieving. We give thanks that some of Prince Philip’s wartime service was spent in the Pacific theatre, defending Australia.
 
-### The Wider World...... and the wider Church ### 
-In this wide world, Lord, we do not see a welcoming crowd – rather we see much opposition. We continue to pray for a world seeking comfort and entertainment in this life only. We pray for those who actively oppose the Church and want to remove the Name of Jesus completely. We pray for release for those whom You draw to Yourself. May we as members of Your Church be willing witnesses to Your glory and faithful ambassadors of the Kingdom of Heaven and our King of Kings.
-
-As we live our lives here in submission to Your Word, Lord, we pray for our governments, for our nation and our State of Victoria. We give thanks for further easing of the Covid restrictions and for the fact that there have been no new cases for some time. We also pray for people in NSW and Queensland affected by the flooding rains. We pray for emergency relief, and for the restoration of what has been swept away.
+### ... and the wider Church
+We pray also for Your people in Myanmar, where Karen believers have been forced to hide in the jungle for safety. We pray for the work of Barnabas Fund as they continue to bring life-sustaining relief wherever they can reach.
 
 ### Ashburton
-Here in Ashburton we pray for ourselves in the service of the Kingdom. May we be faithful rather than faithless. We pray that our fellowship may grow stronger as we meet in community groups, as we live our lives more and more in conformity to Your Word. We know we won’t be fully perfected until Jesus returns but we seek the Holy Spirit to work Your grace within us daily.
+Here in Ashburton we pray for Margaret and Barbara as they make progress in overcoming their health problems. We pray for wisdom and insight for their doctors so that they can employ the most effective treatments available.
 
-We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen and absorb the living Word. May that living Word go deep into our hearts to change us by the work of the Holy Spirit, to make us more into the likeness of Jesus each day.
+We pray for ourselves in the service of the Kingdom. We pray for the Session as they seek to understand Your vision for our congregation, so that we may serve in unity, with clarity and focus as we witness to Your grace in our community.
+
+We pray that our fellowship may grow stronger as we meet in Hospitality Lunches next week, as we live our lives more and more in conformity to Your Word. We know we won’t be fully perfected until Jesus returns but we seek the Holy Spirit to work Your grace within us daily.
+
+We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us from the inside out, to make us more like Jesus each day.
 
 Knowing that we may make our plans but You guide our ways, we pray that the work of the Kingdom may prosper as Your Word extends outward from this place, In Jesus Name, Amen.
+
+
