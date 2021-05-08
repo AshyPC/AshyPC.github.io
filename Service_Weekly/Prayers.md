@@ -4,33 +4,33 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 11th April 2021
+### 9th May 2021 (Mothers Day)
 
-__Ps 94:14‭-‬15__ _For the Lord will not abandon His people, Nor will He forsake His inheritance.
-For judgement will again be righteous, And all the upright in heart will follow it._
+__Ps 118:5‭-6__ _Out of my distress I called on the Lord; the Lord answered me and set me free.
+ The Lord is on my side; I will not fear. What can man do to me?_
 
 ### Thanks to God
-Heavenly Father, we thank You that You remain ever-faithful to Your covenant and You do not abandon Your people, despite their weakness and outright rebelliousness. We thank You that You have made us into Your people in this place and at this time.
+Dear Heavenly Father, we thank You that You are on our side and You do not abandon Your people, despite our many failings. We thank You for the blessings of common grace which You pour out on all people.
 
-We thank You that You sent Jesus on a unique mission – to win back Your people from the hands of the enemy. We thank You that He remained faithful to that mission, to endure the Cross on our behalf, and so become the Perfect sacrifice which we needed in order to be rescued from our sin.
+But we especially thank You that You sent Jesus on a rescue mission – to save us out of our distress. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-We thank You that You raised Him up on the third day, fulfilling Your promise to provide a Redeemer and Champion greater than King David, so much greater that He broke down the wall of hostility between the Jewish nation and the rest of the world. As a result, we who were once not a people could become sons and daughters of the living God.
+We thank You that You raised Him up on the third day, defeating death and sin, demonstrating that sin is an intruder upon what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns visibly at the end of this era. Thereafter, we Your redeemed people, and Your restored Creation will show forth Your glory without limit, forever and ever.
 
 ### The Wider World
-Lord, You express in Your Word special concern for widows and orphans, and today we pray for Her Majesty Queen Elizabeth, already orphaned and now widowed by the death of Prince Philip, Duke of Edinburgh on Friday. May Her Majesty’s faith in You remain strong during this time of loss and grieving. We give thanks that some of Prince Philip’s wartime service was spent in the Pacific theatre, defending Australia.
+On this Sunday which many call Mothers Day, we thank You for our mothers, whether with us or not. We thank You for their love for us, and the care they have given us. We pray that they would continue to be living witnesses to Your love and care for Your people.
+
+We continue to pray for the nation and the people of India, where the Covid19 virus has taken such a toll. We pray for the national and State governments as they seek to manage the crisis and keep their health systems functioning. We pray that You would strengthen and support the health workers coping with the huge numbers of infected people, and we pray for the Christian aid workers who are trying to support the people, especially in rural areas where health facilities are not at the same standard as in the cities.
 
 ### ... and the wider Church
-We pray also for Your people in Myanmar, where Karen believers have been forced to hide in the jungle for safety. We pray for the work of Barnabas Fund as they continue to bring life-sustaining relief wherever they can reach.
+We bring before You also the work of Samaritan’s Purse Operation Christmas Child. We pray that the shoebox appeal will result in great blessings for the children, and that the cost of transport will be met in full.
 
 ### Ashburton
-Here in Ashburton we pray for Margaret and Barbara as they make progress in overcoming their health problems. We pray for wisdom and insight for their doctors so that they can employ the most effective treatments available.
+Here in Ashburton we pray for our Board of Management and give You thanks for those who have been nominated to serve. We thank You that the Board administers the property of the congregation well, and pray for continued wisdom as it carries out its work on our behalf.
 
-We pray for ourselves in the service of the Kingdom. We pray for the Session as they seek to understand Your vision for our congregation, so that we may serve in unity, with clarity and focus as we witness to Your grace in our community.
+We pray for ourselves in the service of the Kingdom. We pray that our fellowship continues to grow stronger as we meet each week, both in Sunday worship and in our community groups.
 
-We pray that our fellowship may grow stronger as we meet in Hospitality Lunches next week, as we live our lives more and more in conformity to Your Word. We know we won’t be fully perfected until Jesus returns but we seek the Holy Spirit to work Your grace within us daily.
+We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. 
 
-We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us from the inside out, to make us more like Jesus each day.
-
-Knowing that we may make our plans but You guide our ways, we pray that the work of the Kingdom may prosper as Your Word extends outward from this place, In Jesus Name, Amen.
+In Jesus Name we pray, Amen.
 
 
