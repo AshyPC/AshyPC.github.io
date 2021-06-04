@@ -3,34 +3,36 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
+## including Prayer of Confession
+### 6th June 2021
 
-### 9th May 2021 (Mothers Day)
+__Ps 143:1__ _Hear my prayer, O Lord; give ear to my pleas for mercy!
+	In Your faithfulness answer me, in Your righteousness!_
 
-__Ps 118:5‭-6__ _Out of my distress I called on the Lord; the Lord answered me and set me free.
- The Lord is on my side; I will not fear. What can man do to me?_
+We come now to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
 
-### Thanks to God
-Dear Heavenly Father, we thank You that You are on our side and You do not abandon Your people, despite our many failings. We thank You for the blessings of common grace which You pour out on all people.
+### Adoration
+God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
 
-But we especially thank You that You sent Jesus on a rescue mission – to save us out of our distress. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+### Confession
+But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have sullied the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
 
-We thank You that You raised Him up on the third day, defeating death and sin, demonstrating that sin is an intruder upon what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns visibly at the end of this era. Thereafter, we Your redeemed people, and Your restored Creation will show forth Your glory without limit, forever and ever.
+### Thanksgiving
+Yet, we thank You that You have not abandoned us to our condition but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-### The Wider World
-On this Sunday which many call Mothers Day, we thank You for our mothers, whether with us or not. We thank You for their love for us, and the care they have given us. We pray that they would continue to be living witnesses to Your love and care for Your people.
+We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
 
-We continue to pray for the nation and the people of India, where the Covid19 virus has taken such a toll. We pray for the national and State governments as they seek to manage the crisis and keep their health systems functioning. We pray that You would strengthen and support the health workers coping with the huge numbers of infected people, and we pray for the Christian aid workers who are trying to support the people, especially in rural areas where health facilities are not at the same standard as in the cities.
+### Supplication: The Wider World
+In the wider world, we continue to pray for the nation and the people of India, where the Covid19 virus is now in retreat as a result of effective measures taken by governments and the health system. We pray that their health systems will continue to function and will cope with the pressures still facing them, especially in rural areas where health facilities are not at the same standard as in the cities.
+
+Here in Victoria, we have more cases but we give thanks that there have been no fatalities and very few patients have been hospitalized. We continue to pray that our governments will employ all possible means to combat the spread of the virus.
 
 ### ... and the wider Church
-We bring before You also the work of Samaritan’s Purse Operation Christmas Child. We pray that the shoebox appeal will result in great blessings for the children, and that the cost of transport will be met in full.
+We pray also for Your people in churches throughout the lockdown area. Strengthen us, keep us faithful even when we can’t meet face to face. Your Word urges us to continue meeting wherever possible but we recognise how difficult it is to do that and comply with the restrictions imposed by the state of emergency. We give thanks that regional Victoria has been freed from the most onerous restrictions and pray that people may resume normal life as quickly as possible.
 
-### Ashburton
-Here in Ashburton we pray for our Board of Management and give You thanks for those who have been nominated to serve. We thank You that the Board administers the property of the congregation well, and pray for continued wisdom as it carries out its work on our behalf.
+### Supplication: Ashburton
+Here in Ashburton we pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. As we face those factors preventing us from meeting, we pray that we will not be overtaken by discouragement but that we will resist the impact of our isolation and determine to maintain our trust in You and our support for each other. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community groups.
 
-We pray for ourselves in the service of the Kingdom. We pray that our fellowship continues to grow stronger as we meet each week, both in Sunday worship and in our community groups.
-
-We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. 
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the world-spanning Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. 
 
 In Jesus Name we pray, Amen.
-
-
