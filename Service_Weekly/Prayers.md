@@ -23,7 +23,7 @@ Yet, we thank You that You have not abandoned us to our condition but rescued us
 We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
 
 ### Supplication: The Wider World
-In the wider world, we continue to pray for the nation and the people of India, where the Covid19 virus is now in retreat as a result of effective measures taken by governments and the health system. We pray that their health systems will continue to function and will cope with the pressures still facing them, especially in rural areas where health facilities are not at the same standard as in the cities.
+In the wider world, we continue to pray for the nation and the people of India, where the Covid19 virus is now in retreat as a result of effective measures taken by governments and the health system. We pray that their health systems will continue to function and will cope with the pressures still facing them, especially in rural areas where health facilities are not at the same standard as in the cities. We continue to pray for the distribution of aid and medical supplies.
 
 Here in Victoria, we have more cases but we give thanks that there have been no fatalities and very few patients have been hospitalized. We continue to pray that our governments will employ all possible means to combat the spread of the virus.
 
