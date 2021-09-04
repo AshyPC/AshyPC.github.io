@@ -4,32 +4,30 @@ title: Prayers
 ---
 ## Prayers for our World and the Church with Confession
 
-## 22nd August 2021 (Still locked down and curfewed)
+## 5th September 2021 (Father's Day)
 
-__Psalms 70:4__ _May all those who seek You rejoice and be glad in You!
-May those who love Your salvation say evermore, “God is great!”_
+__Lamentations 1:1__ _How lonely sits the city that was full of people! She has become like a widow who was once great among the nations! She who was a princess among the provinces has become a forced laborer!_
 
 ### Thanks to God
-O Lord our God, we thank You that You are the God of All Creation, the Only God Who is indeed great. We acknowledge that because of Adam’s fall, we have been prone to sin and had turned our back on You. Yet now we thank You that You have changed us so that  we seek You, we rejoice in You and we are glad that our lives have been turned around because You sent Jesus to save us.
+O Lord our God, we thank You that You are our faithful God, the One Who sees all, knows all and holds the future in Your hands. We meet again under lockdown conditions and lament the emptiness of our church buildings, which were meant to be full of Your people, singing Your praises.
 
-We thank You for Jesus’ promise to never leave us nor forsake us and that You sent the Holy Spirit to lead and guide us, so that we will grow in grace and Christ-likeness day by day.
+We thank You for the modern means we have available to keep in touch and to participate in different ways in worship on this Lord’s Day.
+
+We know that we live in a fallen, broken world where bad news is obvious. Yet we thank You that You sent Jesus to pay the penalty for sin, to remove our guilt, and to give us the free gift of life through His death and resurrection. We thank You for His promise to never leave us and we thank You for sending the Holy Spirit to lead and guide us, so that we can grow more like Jesus every day.
 
 ### The Wide World 
-The Covid19 virus remains the most prominent news item of our time, and we continue to pray for its containment both here in Victoria and interstate. We thank You that there are still so few fatalities, especially compared to last year, and that the total number of cases seems to be on the decline. We pray for all States to be able to control their outbreaks and for our leaders to apply Godly wisdom in all their deliberations. We pray that the full range of medical treatments would be applied to provide for maximum relief, and pray for all the research efforts to bear fruit soon.
+We continue to pray for the situation in Afghanistan, where believers who have converted from Islam are in grave danger from the resurgence of terrorism there. We pray for them and for the aid workers operating in secret now that there is no military protection, as they  struggle to bring what help they can.
 
-We also continue to pray for other nations. We give thanks for improvements in Indonesia and nations in South America. We pray for the various governments as they seek to keep their health systems functioning. We pray for those affected, and the families of those who have died.
-
-In other tragic news we have seen the swift and dramatic overthrow of the government in Afghanistan, and the resurgence of terrorism there. We pray for the people, especially those believers who are suffering persecution at the hands of terrorists.
-
-We also pray for the people of Haiti where two natural disasters have occurred. Many thousands are homeless as the result of a severe earthquake which was followed by a heavy tropical storm. We pray for rescue efforts and quick provision of shelter during the rest of the hurricane season.
+We also pray for the persecuted believers in Myanmar, where ethnic and Christian minority groups the Karen, Kachin and Chin peoples are attacked regularly by the military regime and are forced to go into hiding. They also suffer from the Covid pandemic but are denied any medical assistance.
 
 ### ... and in the wider Church
-We bring before You the work of Your church, and pray that Your people everywhere may be ready to give a gracious answer to those who ask about the hope we have in You. We pray, as we confront the isolation due to lockdowns, that You would enable us to strengthen our bonds of fellowship and overcome the separations imposed by government measures so that Your people may shine the light of the Gospel in what appears to be a dark time.
+We pray for Your Church as lockdowns are extended further, both here in Victoria and interstate. We pray that the full range of medical treatments would be applied to provide for maximum relief, and pray that Your Church would remain strong in the face of passive persecution which keeps us in hiding almost as much as believers in other places. We pray that our governments would stop trying to control or eliminate the virus, because they seek to displace You in Your sovereignty.
+
+We pray that the work of Your church might continue despite the restrictions, and that Your people may be ready to shine with the hope we have in You. We ask that You would enable us to strengthen our bonds of fellowship and demonstrate Your love and care for Your people in the way that we relate to one another.
 
 ### Ashburton
+Here in Ashburton we thank You that You sustain us day by day. As we do so, we thank You for the progress made by Margaret and Barbara. We pray for Diane as she continues to recover under her doctor’s supervision and care. We pray also for Shiun whose has had a setback in his reccovery from stroke and we uphold Aahs’s mum in India, who is now recovering. We pray for her continued progress and thank You for her family’s support and encouragement.
 
-Here in Ashburton we thank You that You have sustained us with so little impact from the virus. We thank You for the excellent medical facilities available around us here. We pray for the work of Revitalization. We pray also for the rebuilding of our bonds of fellowship one with another. Help us all to find ways to support each other in our separated homes. As we do so, we thank You for the progress made by Margaret, Barbara, Diane and Shiun as they continue to recover.
-
-We pray for Mook as he preaches Your Word, and we pray for our own understanding as we listen.  Help us to see in Your Word that You are the God of real people who lived in a particular place and time, and You called them to live in full obedience to Your ways. May we also see what we need to do to bring our lives into fully conformity with Your law and Your ways.
+We pray for Barry as he preaches Your Word in our new series on Peter’s letters to the persecuted church of his time, and we pray for our own understanding as we listen. Help us to see how it relates to our own situation and what we need to do to bring our lives into fully conformity with Your law and Your ways.
 
 In Jesus Precious Name we pray all these things, Amen.
