@@ -2,7 +2,7 @@
 layout: prayers
 title: Prayers
 ---
-## Prayers for our World and the Church with Confession
+## Prayers for our World and the Church
 
 ## 5th September 2021 (Father's Day)
 
