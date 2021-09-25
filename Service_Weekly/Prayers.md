@@ -4,30 +4,30 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 5th September 2021 (Father's Day)
+## 26th September 2021 (after Grand Final Day)
 
-__Lamentations 1:1__ _How lonely sits the city that was full of people! She has become like a widow who was once great among the nations! She who was a princess among the provinces has become a forced laborer!_
+__2 Corinthians 4:17‭-‬18__ _For momentary, light affliction is producing for us an eternal weight of glory far beyond all comparison, while we look not at the things which are seen, but at the things which are not seen; for the things which are seen are temporal, but the things which are not seen are eternal._
 
 ### Thanks to God
-O Lord our God, we thank You that You are our faithful God, the One Who sees all, knows all and holds the future in Your hands. We meet again under lockdown conditions and lament the emptiness of our church buildings, which were meant to be full of Your people, singing Your praises.
+O Lord our God, we thank You that You are our faithful God, Who has called us to an eternal future in Your glorious Presence. We thank You that, although we live in this limited and limiting present day, we look forward with confidence granted by the presence of the Holy Spirit, to an eternal future, when our fellowship with You and each other will not be hindered in any way.
 
-We thank You for the modern means we have available to keep in touch and to participate in different ways in worship on this Lord’s Day.
+We thank You for the modern means we have available to keep in touch and to participate in different ways in worship, and we ask for a fresh awareness of how momentary and light are our present afflictions.
 
-We know that we live in a fallen, broken world where bad news is obvious. Yet we thank You that You sent Jesus to pay the penalty for sin, to remove our guilt, and to give us the free gift of life through His death and resurrection. We thank You for His promise to never leave us and we thank You for sending the Holy Spirit to lead and guide us, so that we can grow more like Jesus every day.
+We know that we live in a fallen,world with lots of bad news, and it is so easy to look at ourselves and become discouraged, to think that our present troubles are too big to deal with. But when we look to Jesus instead, the One Who came to pay the penalty for sin, and to give us the free gift of life, we give thanks for the Eternal perspective. His victory gives us a sure hope which overcomes our discouragements.
 
 ### The Wide World 
-We continue to pray for the situation in Afghanistan, where believers who have converted from Islam are in grave danger from the resurgence of terrorism there. We pray for them and for the aid workers operating in secret now that there is no military protection, as they  struggle to bring what help they can.
+We now have confidence to pray for this wider world where suffering abounds but does not have the final word. We continue to pray for the believers in Afghanistan, who are in grave danger from the resurgence of terrorism there.
 
-We also pray for the persecuted believers in Myanmar, where ethnic and Christian minority groups the Karen, Kachin and Chin peoples are attacked regularly by the military regime and are forced to go into hiding. They also suffer from the Covid pandemic but are denied any medical assistance.
+We also pray for the persecuted believers in Nigeria, Pakistan, India, Myanmar and elsewhere, who do not receive any recognition, who are not “newsworthy” but who are suffering far more than we have known here. Grant them grace as they share in the sufferings of Christ our Lord for the fact that they refuse to renounce their faith in Him.
 
 ### ... and in the wider Church
-We pray for Your Church as lockdowns are extended further, both here in Victoria and interstate. We pray that the full range of medical treatments would be applied to provide for maximum relief, and pray that Your Church would remain strong in the face of passive persecution which keeps us in hiding almost as much as believers in other places. We pray that our governments would stop trying to control or eliminate the virus, because they seek to displace You in Your sovereignty.
+We pray for Your Church as lockdowns continue both here in Victoria and interstate. We pray that Your Church would remain strong in the face of the limitations imposed on daily life. We are concerned and distressed to see violence at protest gatherings and pray for all those injured in the clashes.
 
-We pray that the work of Your church might continue despite the restrictions, and that Your people may be ready to shine with the hope we have in You. We ask that You would enable us to strengthen our bonds of fellowship and demonstrate Your love and care for Your people in the way that we relate to one another.
+We pray that the work of Your church might continue despite the restrictions, and that Your people may be ready to shine with the eternal hope we have in You. We ask that You would enable us to strengthen our bonds of fellowship and encourage one another. May those around us see the love of Jesus shining through us and look for that eternal weight of glory of which Paul writes.
 
 ### Ashburton
-Here in Ashburton we thank You that You sustain us day by day. As we do so, we thank You for the progress made by Margaret and Barbara. We pray for Diane as she continues to recover under her doctor’s supervision and care. We pray also for Shiun whose has had a setback in his reccovery from stroke and we uphold Aahs’s mum in India, who is now recovering. We pray for her continued progress and thank You for her family’s support and encouragement.
+Here in Ashburton we thank You that You sustain us day by day. As we do so, we thank You for the progress made by Margaret, Barbara and Diane. We pray also for Shiun recovering again from stroke and we continue to uphold Aashs’s mum in India.
 
-We pray for Barry as he preaches Your Word in our new series on Peter’s letters to the persecuted church of his time, and we pray for our own understanding as we listen. Help us to see how it relates to our own situation and what we need to do to bring our lives into fully conformity with Your law and Your ways.
+We pray for Barry as he preaches Your Word, and we pray for our own understanding as we listen. Help us to see what we need to do to live Godly lives in a world which does not acknowledge You but rather worships human endeavour in the sporting arena.
 
 In Jesus Precious Name we pray all these things, Amen.
