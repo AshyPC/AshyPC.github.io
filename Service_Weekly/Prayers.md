@@ -13,7 +13,7 @@ O Lord our God, we thank You that You are our faithful God, Who has called us to
 
 We thank You for the modern means we have available to keep in touch and to participate in different ways in worship, and we ask for a fresh awareness of how momentary and light are our present afflictions.
 
-We know that we live in a fallen,world with lots of bad news, and it is so easy to look at ourselves and become discouraged, to think that our present troubles are too big to deal with. But when we look to Jesus instead, the One Who came to pay the penalty for sin, and to give us the free gift of life, we give thanks for the Eternal perspective. His victory gives us a sure hope which overcomes our discouragements.
+We know that we live in a fallen world with lots of bad news, and it is so easy to look at ourselves and become discouraged, to think that our present troubles are too big to deal with. But when we look to Jesus instead, the One Who came to pay the penalty for sin, and to give us the free gift of life, we give thanks for the Eternal perspective. His victory gives us a sure hope which overcomes our discouragements.
 
 ### The Wide World 
 We now have confidence to pray for this wider world where suffering abounds but does not have the final word. We continue to pray for the believers in Afghanistan, who are in grave danger from the resurgence of terrorism there.
