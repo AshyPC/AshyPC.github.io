@@ -4,30 +4,35 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 7th November 2021
+## 28th November 2021
 
-__Zechariah 1:17__ _Cry out again, Thus says the Lord of hosts: ’My cities shall again overflow with prosperity, and the Lord will again comfort Zion and again choose Jerusalem.’_
+__Psalm 34:3-5__ 
+_Oh, magnify the Lord with me, and let us exalt His Name together!
+I sought the Lord, and He answered me and delivered me from all my fears.
+Those who look to Him are radiant, and their faces shall never be ashamed._
 
 ### Thanks to God
-Heavenly Father, we thank You that You are the God of all comfort, Who cares deeply for Your Creation. We thank You that You watch over Your people continually, despite all the failings of a fallen human race.
+Heavenly Father, we have come into Your Presence today to magnify Your Name and exalt You as a united body of Your redeemed people.
 
-We know that we live in a world broken by sin but redeemed by the blood of the Lamb Who was slain, Jesus our Lord. He is the Victor over sin and death so that we need not fear. Whether it is a virus we can’t see or gloomy news which seems to overwhelm us, or rulers seeking to displace the King of Kings, we thank You that You are above all and rule over all, so that we need not despair.
+We thank You that You are the God Who answers prayer, Who delivers us from all our fears.
+
+We know that in this world we can become surrounded by toubles and fears but that because Jesus won the Victory over sin and death, we need never be ashamed. We thank You that You are above all and rule over all, so that we need not despair.
 
 ### The Wide World 
-We continue to pray for the persecuted believers in this world. It is distressing to so easily list ten nations where our fellow believers are under physical persecution. We give thanks that we only suffer moderate inconveniences by comparison.
+We thank You that Jesus warned that in this world we would have trouble but we count it all joy to face trials so that our faith may be strengthened. We continue to pray for persecuted believers in other places in this world, who face far greater trials than we do here.
 
-This week we focus on Ethiopia, which heard the Gospel very early from Philip the Evangelist. Today there are many refugee camps where workers are bringing the Good News again but there is much civil unrest. We pray for the health and safety of the workers bringing both physical and spiritual aid to the refugees.
+This month we have been focusing on the work of Voice of the Martyrs, and give thanks for the faithfulness of believers in Indonesia, who have remained steadfast despite extremists mounting terrorist attacks. We give thanks that the Covid situation there has eased considerably, even while it appears to worsen in Europe as they move into winter. We continue to pray for every effort which is being made to overcome the effects of the pandemic.
 
 ### ... and in the wider Church
-We pray for Your Church as lockdown regulations are lifted here in Victoria, but new restrictions create divisions between vaccinated and unvaccinated. Meanwhile restrictions are reimposed interstate and there is still much concern over travel bans and border controls. We continue to pray that Your Church would remain strong in the face of these limitations and that we may be able to meet all together as soon as possible.
+We pray also for Your Church as lockdown regulations are lifted again here in Victoria. We give thanks that many churches are re-opening or planning to do so very soon.
+
+We pray for the rain and flood situation in NSW and Queensland, and ask Your protection over people in affected areas. We pray for safety for the Emergency Services units which will be out dealing with the damage and rescuing stranded people.
 
 ### Ashburton
-Here in Ashburton we thank You that You sustain us day by day. We look forward to holding an outdoor Carols service in December, as and when restrictions are lifted further.
+Here in Ashburton we are thankful that services can resume on site, and that our Carols on the Lawn service can proceed on the 12th. We pray for the preparations to go smoothly and that the result will be a blessing to all who attend. We also look forward to restrictions being lifted completely as vaccination targets are achieved.
 
-We pray for the Operation Christmas Child shoeboxes which are going to Cambodia this year. We thank You that we have been able to prepare 60 boxes despite the lockdowns.
+We pray for Shiun as he progresses in recovery and for Diane’s health while her treatment continues. We continue to pray for Sueie and her family as they adjust to the passing of her sister-in-law. We ask also that You would sustain her brother at this time. In times of trouble, people may realise their need of Jesus, and we pray that he would come to that point and turn to You.
 
-We continue to pray for Shiun as he progresses in recovery and for Diane’s health while her treatment continues. We bring before You Sueie and her family as they grieve the passing of her sister-in-law last week. We ask also that You would sustain her brother at this time.
+We pray for Barry as he preaches Your Word, and we face the kind of difficulties which Peter’s readers also faced in their time. As we listen we pray for wisdom and discernment, that we may live according to Your Word, taking heed of Peter’s sober warnings of the troubles we face.
 
-We pray for Barry as he preaches Your Word, and we face the kind of difficulties which Peter’s readers also faced in their time. As we listen we pray for the strength to live according to Your Word when it is no longer easy to do. Help us to see how we can raise a Godly standard, bringing forgiveness and mercy to a world which is starved for reconciliation and peace.
-
-In the Name of Jesus, the Prince of Peace we pray all these things, Amen.
+In the Name of Jesus, our Present Help in Times of Trouble, we pray all these things, Amen.
