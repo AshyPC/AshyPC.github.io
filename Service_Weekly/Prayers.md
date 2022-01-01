@@ -4,35 +4,29 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 28th November 2021
+## 2nd January 2022
 
-__Psalm 34:3-5__ 
-_Oh, magnify the Lord with me, and let us exalt His Name together!
-I sought the Lord, and He answered me and delivered me from all my fears.
-Those who look to Him are radiant, and their faces shall never be ashamed._
+__Psalm 27:1__ 
+_The Lord is my light and my salvation; whom shall I fear?
+The Lord is the stronghold of my life; of whom shall I be afraid?_
 
 ### Thanks to God
-Heavenly Father, we have come into Your Presence today to magnify Your Name and exalt You as a united body of Your redeemed people.
+Heavenly Father, we mark the passing of time on our calendars and we acknowledge You as the Lord of Time and eternity. We honour the Lord Jesus as we count up the years of His never-ending reign over us.
 
-We thank You that You are the God Who answers prayer, Who delivers us from all our fears.
+We thank You that You are our light and our salvation, the stronghold of our lives. We come before You today, the God Who answers prayer, Who is greater than all and Who delivers us from all our fears.
 
-We know that in this world we can become surrounded by toubles and fears but that because Jesus won the Victory over sin and death, we need never be ashamed. We thank You that You are above all and rule over all, so that we need not despair.
+We thank You that You have provided us with the means of grace and today we can commence a new year with a communion service. We have just concluded celebrations remembering when Jesus first came as a babe, and today we will remember His victory in the Cross and Resurrection.
 
-### The Wide World 
-We thank You that Jesus warned that in this world we would have trouble but we count it all joy to face trials so that our faith may be strengthened. We continue to pray for persecuted believers in other places in this world, who face far greater trials than we do here.
+### The Wide World... and in the wider Church
+We look about this wide world that so clearly needs to recognise Your Supreme Authority and we pray for Your continued mercy. We recall the earthquakes, the tragedies, and the ongoing troubles of Your people everywhere. We pray for protection as the Body of Christ suffers persecution in many places and courage and strength for Your people. We lift up before You believers in India, Pakistan and Nigeria in particular. May false accusations be exposed quickly and come to nothing as they are brought into the light of day.
 
-This month we have been focusing on the work of Voice of the Martyrs, and give thanks for the faithfulness of believers in Indonesia, who have remained steadfast despite extremists mounting terrorist attacks. We give thanks that the Covid situation there has eased considerably, even while it appears to worsen in Europe as they move into winter. We continue to pray for every effort which is being made to overcome the effects of the pandemic.
+We cannot escape the ever-present news of the spread of the latest variant of Covid-19. We give thanks for Your mercy as we see that it causes less serious illness although it spreads more quickly. May we be ready to acknowledge Your mercy in this latest development and Your sovereignty over the entire time this pandemic has been been spreading around the world.
 
-### ... and in the wider Church
-We pray also for Your Church as lockdown regulations are lifted again here in Victoria. We give thanks that many churches are re-opening or planning to do so very soon.
-
-We pray for the rain and flood situation in NSW and Queensland, and ask Your protection over people in affected areas. We pray for safety for the Emergency Services units which will be out dealing with the damage and rescuing stranded people.
+We pray also for clarity as our various governments introduce changes to the Covid restrictions, and we seek to be personally responsible for our own protection, as the Prime Miinister recently called for with a new approach to the situation we face.
 
 ### Ashburton
-Here in Ashburton we are thankful that services can resume on site, and that our Carols on the Lawn service can proceed on the 12th. We pray for the preparations to go smoothly and that the result will be a blessing to all who attend. We also look forward to restrictions being lifted completely as vaccination targets are achieved.
+Here in Ashburton, we pray for Mook and Talia, Jethro and Amy as they take a holiday break. Bless and refresh them, guide them and keep them safe, we pray. As restrictions are relaxed we can think about holidays once again. For all who are able to take a break we pray Your protection and for their safety in travel. We pray for those who are unwell also; for Shiun as he progresses in recovery and for Diane’s health while her treatment continues.
 
-We pray for Shiun as he progresses in recovery and for Diane’s health while her treatment continues. We continue to pray for Sueie and her family as they adjust to the passing of her sister-in-law. We ask also that You would sustain her brother at this time. In times of trouble, people may realise their need of Jesus, and we pray that he would come to that point and turn to You.
+We pray also for Nolene Andersen, giving thanks that she has attained her centenary but we pray for her health as she becomes more frail. Please uphold her family as they minister to her and bless the staff of the aged care home as they provide her with close daily care.
 
-We pray for Barry as he preaches Your Word, and we face the kind of difficulties which Peter’s readers also faced in their time. As we listen we pray for wisdom and discernment, that we may live according to Your Word, taking heed of Peter’s sober warnings of the troubles we face.
-
-In the Name of Jesus, our Present Help in Times of Trouble, we pray all these things, Amen.
+We pray for Barry as he preaches Your Word, and we face the kind of difficulties which Peter’s readers also faced in their time. As we listen we pray for wisdom and discernment, that we may live according to Your Word, growing stronger in our faith and bringing honour to the Name of Jesus, in Whose Name we pray all these things, Amen.
