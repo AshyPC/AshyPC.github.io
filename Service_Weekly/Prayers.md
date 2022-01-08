@@ -26,4 +26,6 @@ We thank You again for Your mercy as we see more evidence for the milder effects
 ### Ashburton
 Here in Ashburton, we pray for all who are able to take a break. We pray Your protection and for their safety in travel, and that wherever they go they may be a blessing, even as they rest and refresh themselves.
 
-We pray for Barry as he preaches Your Word today. As we listen we pray for wisdom and discernment, that we may live according to Your Word, grow stronger in our faith and bring honour to the Name of Jesus, the King of Kings, in Whose Name we pray all these things, Amen.
+We bring before You Kum Seng and Josh, who have come down with Covid. We thank You that Clement and Yvonne are so far unaffected but we pray for protection for the family as they proceed through the testing and isolation stages.
+
+And now we pray for Barry as he preaches Your Word today. As we listen we pray for wisdom and discernment, that we may live according to Your Word, grow stronger in our faith and bring honour to the Name of Jesus, the King of Kings, in Whose Name we pray all these things, Amen.
