@@ -4,31 +4,31 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 30th January 2022
+## 27th February 2022
 
-__Romans 12:2__ 
-_Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect._
+__Hebrews 12:1-2__ 
+_Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith..._
 
 ### Thanks to God
-O Lord, we come to You today, very much aware that we are weak and limited in so many ways. Yet You remain ever-sovereign over our circumstances. We waver but You never change, We thank You that You are ever-gracious and draw us to Yourself the True, Faithful, Purposeful and Loving God of glory.
+Heavenly Father, we come before You today, thanking You Who remain ever-sovereign over our circumstances. We thank You for the cloud of witnesses, the many faithful servants who encourage us to persevere. We recognise that we struggle under every weight, and know the sin which clings so closely, making it difficult for us to even remember that we are in a race with an eternal destiny before us. We thank You that You are ever-gracious to supply us with everything we need to achieve victory as we look to Jesus.
 
-Today and every day we honour the Lord Jesus as the King of Kings. We remember His victory on the Cross and in the Resurrection, and we give You thanks that He ascended to the Throne Room of Heaven, awaiting the right time to return as the Visible Supreme Authority over all. We thank You that He is the Source of Life to us, and our Great High Priest Who intercedes for us. And we give thanks that You have granted us His life and righteousness in place of our sin, rebellion and self-centredness.
+Today and every day we honour Him as Lord, as the King of Kings. We remember His victory on the Cross and in the Resurrection, and we give You thanks that His perfect victory has been bequeathed to us by Your adoption. We thank You that He is the Source of Life to us, and our Great High Priest Who intercedes for us, even as He leads us.
 
 ### The Wide World... and in the wider Church
-As we look about this world we again hear of threats and rumours of wars. Despite all diplomatic efforts, we see that leaders are perplexed at current events, and man cannot ultimately solve his own problems. This world needs the transforming power of the Holy Spirit. Mankind needs to bow to Your Supreme Authority, but meanwhile we continue to pray for Your grace and mercy in this broken world.
+This week we look about this world which is again at war. And we see news of an earthquake in Indonesia, plus torrential rain and floods in Australia, and still news of the Covid virus. It’s as if our Bibles have become today’s newspapers.
 
-May Your Church be seen as the model for relationships at all levels: may our congregations be places where heaven and earth meet, where the cross and the resurrection are declared as Your provision to save the lost, and where transformed people submit to the reign of the Lord Jesus in  their lives daily.
+We pray for the emerging refugee situation in the Ukraine, especially for the aid workers being mobilised to help, and for the people displaced from this new war zone. May they quickly find a safe haven away from the fighting.
 
-We continue to pray for the cleanup work after the Queensland floods and for the same cleanup after yesterday’s storm here. We give thanks for the emergency services work in bringing people to safety and restoring services.
+We continue to pray for the Queensland flood situation and for the emerging situation in Northern NSW. We give thanks for the emergency services work in bringing people to safety and restoring services. And we pray for safety for those emergency volunteers, as we hear that one rescuer was drowned while trying to save others. We pray also for Your people in the flood areas – enable them to provide aid to those who have lost homes and possessions to the torrential rains.
 
-We thank You again for Your mercy as we see the decline in Covid cases around the nation. We pray for wider availability of testing kits and for care with their use. We pray also for further easing of restrictions as cases in hospital decline and pressure on staff eases.
+We thank You again for Your mercy as we see the decline in Covid cases around the nation. We give thanks for the relaxed mask rules, and pray for further easing of restrictions as hospital cases  decline further. We pray for effective measures to deal with “long Covid” and slow recoveries which some people are going through, and we pray for our chaplaincy ministries as people turn to Yoou for comfort and guidance in confronting this tiny invader which has such a big effect.
 
 ### Missions 
 We pray for PresAID as our missions focus for January. We thank You for the support going to provide village water supply in India. We are flooded and unable to control the overflows, and yet there are so many places without safe clean water.
 
 ### Ashburton
-Here in Ashburton, we pray for students who are about to return to school or commence lessons. We pray for Your protection and safety under the Covid restrictions, and that they can apply themselves to their work with all diligence and faithfulness.
+Here in Ashburton, we pray for the commencement of our community groups soon. Enable us all to grow in fellowship, caring for one another, praying and encouraging one another as we learn more from Your Word andthen put it into practice daily.
 
-We thank You for those who have recovered from recent sickness including Kum Seng and Josh, and Diane and Shiun. We pray for their continuing recovery and rehabilitation back to full health.
+We thank You for those who have recovered from recent sickness including Shiun, and for Diane after a recent time in hospital. We pray for their continuing recovery and rehabilitation back to full health. We also remember Shon’s protective visa application and continue to seek the immigration minister’s favour in granting Shon full permission to stay in Australia.
 
-And now we pray for Mook as he preaches Your Word today. As we listen we pray for wisdom and discernment, that we may live transformed lives wherever You direct us to go in this world, and honouring the Name of Jesus, the King of Kings, in Whose Name we pray all these things, Amen.
+And now we pray for Barry as he preaches Your Word today. As we listen we pray for wisdom and discernment, knowing that we live always in the shadow of the Cross, guided by the light of the Resurrection, so that whatever we do will honour the Name of Jesus, the Author and Perfecter of our faith, in Whose Name we pray all these things, Amen.
