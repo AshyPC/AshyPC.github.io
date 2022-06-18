@@ -6,29 +6,25 @@ title: Prayers
 
 ## 22nd May 2022
 
-__Psalm 48:10-11__ 
-_As your name, O God, so your praise reaches to the ends of the earth.
-Your right hand is filled with righteousness.
-Let Mount Zion be glad!
-Let the daughters of Judah rejoice because of your judgments!_
+__Gal 3:26-29__ 
+_...for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is no male and female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise._
 
 ### Thanks to God
-Heavenly Father, we gather to give You thanks and praise today, as do so many of our brethren around the globe. We praise Your Name because You are the Righteous God Most High. Despite all we see around us of a fallen world, we thank You for Your Creation – Your beautiful handiwork shines through despite all that fallen mankind has done to blacken it. 
-
-You promised Adam and Eve that One would come to defeat Satan and redeem mankind from the curse of sin. He would crush the serpent’s head in righteous judgement upon the perpetrator of all that is evil. At exactly the right time, Jesus came on His unique mission to defeat the accuser of the brethren, to lift the impossible burden from our shoulders, and to restore us as Your children, co-heirs with Him of all that He attained by His Victory on the Cross.
-
-As we look back on Easter, the Ascension and Pentecost where the Holy Spirit came to indwell the Church we remember how complete is the victory that Jesus won, and again we rejoice!
+Heavenly Father, we gather to give You thanks and praise today, as we prepare to witness Shon’s baptism. We praise You for the eternal provision of our Lord Jesus Christ, Who gave Himself for us, so that we might have new life and a new eternal inheritance. We thank You for the fellowship of the saints and the spiritual bonds that keep us together, regardless of our ethnic background or our worldly nationality. We thank You that we are all Abraham’s offspring, heirs of the same eternal promise, made possible by the perfect work of Jesus in the Cross and the Resurrection.
 
 ### The Wide World... and in the wider Church
-In the wider world which is yet to understand that joy, we continue to pray about the war and refugee situation in the Ukraine, especially for the aid workers being mobilised to help, and for the people displaced from the war zone. May they quickly find a safe haven away from the fighting.
+In the wider world we continue to pray about the war and refugee situation in the Ukraine, which does not look like being resolved anytime soon. While the big events fill our TVs and newspapers, we also give thanks for the quiet work of organisations such as Barnabas Aid, ministering without fanfare to ensure that people do not starve in northern Kenya. We also pray for the churches which have sprung up there to gather the scattered members of the body of Christ in drought-stricken areas, enabling fellowship and teaching so that believers are nurtured in their faith.
 
-We also want to pray for our Federal election outcome, to bring righteous government to our nation, so that the Rule of Law may be respected and Godly standards may be upheld. We pray for integrity inside and outside the Parliament, in the conduct of government business and our dealings with our elected representatives.
+We also give thanks for Lazlo and Eva Mihalyi, working as missionaries in Hungary. We give thanks for their faithful, quiet service for the sake of the Kingdom. Their work may never be recognised in Birthday Honors lists but will be celebrated by the saints in heaven.
 
 ### Ashburton
-Here in Ashburton, we pray for the elders, the Board and the leadership team working on our Revitalization program, as they seek to implement the vision to see more people in our community know the love of God, His gracious forgiveness and the joy of serving Him in restored wholeness. We pray that as a congregation we take up the challenge to be the visible demonstration of the love You have for us as Your people. May we bear the imprint of Jesus so clearly that others will want to know the God we love and serve.
+__We thank You that today we will baptise Shon as a visible sign of his membership of the Body of Christ.__ 
+We thank You that he has made a long journey to Australia, seeking a new life and finding his eternal life in Christ. We thank You that baptism is an outward sign of the inward change from a soul dead in sin to him now being a New Creation in Christ Jesus, with eternal assurance of salvation. We thank You that You have been leading him all that time, and we thank You that we have been instuments in Your hand to welcome him into the Kingdom. We continue to pray for resolution of his visa application, even while we recognise his higher citizenship in the heavenly realm where Jesus reigns at Your right hand.
 
-We thank You for those who have recovered from recent sickness including Shiun, and for Diane dealing with a variety of medical concerns. We uphold her before You after she had some time in hospital last week, with persistent heart problems. Guide her doctors as they treat her with care and wisdom. We also thank You for Margaret’s medication stabilising the trigeminal neuralgia. 
+We continue to pray for the elders, the Board and the leadership team working on our Revitalization program, as they seek to implement the vision to see more people in our community won into the Kingdom and serving Him in restored wholeness.
 
-We also remember Shon’s protective visa application and continue to seek the immigration minister’s favour in granting Shon full permission to stay in Australia. We pray also for Barry and Suzanne about to take some leave, and ask for thorough refreshing for them both. Grant them safety as they travel about and keep their minds at peace as they trust in You every day.
+We thank You for those who have recovered from recent sickness including Shiun, and we pray for Diane as she continues to deal with persistent heart problems. Guide her doctors as they treat her with care and compassion.
 
-And now we pray for Barry as he preaches Your Word today. May Your Word be always fresh and alive to our hearing, knowing that we live not by bread alone. And so we pray in anticipation in the Name of Jesus the King of Kings, Who reigns over all the affairs of man, Amen.
+We pray also for Mook and Talia, Jethro and Amy about to take some leave, and ask for thorough refreshing for them all. Grant them safety when they travel and keep their minds at peace as they trust in You every day.
+
+And now we pray for Barry as he preaches Your Word today. May Your Word be always fresh and alive to our hearing, knowing that we live within Your care, regardless of our external circumstances. And so we pray in the Name of Jesus the King of Kings, Who reigns over all the affairs of man, Amen.
