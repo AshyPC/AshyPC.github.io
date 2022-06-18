@@ -4,7 +4,7 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 22nd May 2022
+## 19th June 2022
 
 __Gal 3:26-29__ 
 _...for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is no male and female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise._
