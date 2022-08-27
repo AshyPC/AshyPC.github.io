@@ -4,26 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 14th August 2022
+## 28th August 2022
 
-__2 Cor 13:11__ 
-_Finally, brothers, rejoice. Aim for restoration, comfort one another, agree with one another, live in peace; and the God of love and peace will be with you._
+__Gal 2:10__ 
+_All they asked was that we should continue to remember the poor, the very thing I had been eager to do all along._
 
 ### Thanks to God
-Heavenly Father, we thank You for Your eternal Presence with us wherever we go. We also thank You that we can come into Your Presence in this place specifically to worship together and to fellowship together as a united body of believers. As the world emerges from the shadow of the Covid virus and all its consequences, we thank You that we recognise the spiritual consequences, too. Now we seek to restore our fellowship, to comfort one another, agree with one another in peace as Paul encourages his Corinthian readers and us.
+Heavenly Father, we come into Your Presence today, acknowledging that You are the God of all Creation, yet You are also concerned for the poor, the destitute and the downtrodden. We have received grace, mercy and peace from You through the coming of Jesus, His death on the Cross and His resurrection and ascension to glory at Your right hand.
 
 We thank You that Your love and peace surround us and that the Holy Spirit lifts us up and strengthens the bonds of peace between us.
 
 ### The Wide World... and in the wider Church
-In the wider world we pray for peace also, even as we see so much turmoil and strife as the effects of sin work out in broken relationships one with another. 
+In the wider world we pray for peace also, even as we see so much turmoil and strife as  a consequence of sin. We thank You that we are blessed but we ask for the same grace, mercy and peace in Eastern Europe, where so many refugees from the Ukraine war are in a desperate situation approaching winter. We thank You for the churches there where the people minister Your love and grace to those refugees.
 
-We pray again for the restoration of peace, order and good government in Sri Lanka where Barnabus Fund works to help provide food and basic services to the people. And we cannot forget the situation in the Ukraine. We continue to pray for Lazlo and Eva Mihalyi working in Hungary to provide aid to fleeing refugees.
+We thank You for the report of how effectively our mission support for Eva and Lazlo is being used. We continue to pray for them. They are in need of more provision from Your hand, so that those who come across the border can be sheltered, clothed and fed. We pray also for protection from the coming winter as fuel prices skyrocket – making heating, which we take for granted, unaffordable for many.
+
+We pray again for the restoration of peace, order and good government in Sri Lanka where Barnabus Fund works to help provide food and basic services to the people.
 
 ### Ashburton
-We give thanks for the Church Camp last weekend. We thank You for Pete Sorenson’s encouragement to hold fast to our sure hope in the Gospel. May we now apply that teaching to our daily lives, especially in the Revitalization Program and our new Bible Study series.
+We give thanks for the Church Revitalization Program and for Rod Morris who is with us today. May we learn from his wider experience of the Body of Christ as he walks with us to see our calling, our vision take shape, so that this community may see in our lives that You are truly the God Who cares for His people. Help us to demonstrate that You draw a vast number to hear and respond to the Good News. Some may not even realize that they are in need of the Saviour, while others seek Him in so many other places and other ways.
 
-We again pray for the Revitalization program, as we look forward to Rod Morris coming to meet with us in two weeks time. Help us to be willing and active in the program, for we earnestly desire that it be a major means of the Kingdom of Heaven blessing more people, and seeing souls saved, as we submit to Your direction for our church.
+We pray for those among us who need Your healing hand, especially remembering Diane and her heart condition and Shiun’s slow recovery. We pray also for Margaret Sanders in the UK, that her visits to family will be blessed and happy and that all her travels will be safe.
 
-We pray for those among us who need Your healing hand, especially remembering Diane and Shiun. Our bodies are fearfully and wonderfully made by You but we recognise that we are frail and subject to the effects of living in a fallen world, waiting for the manifestation of the redeemed people of God.
-
-And now we pray for Barry as he preaches today. Help us to take Your Word in, and grow in our undertanding of the church and our place in Your work here. So we pray in the Name of Jesus the King of Kings, for Whose Kingdom we work in the strength You give us, Amen.
+And now we pray for Barry as he preaches today. Help us to take Your Word in, and grow in our undertanding of the church and our place in Your work here. May we be doers of Your Word and not merely hearers. This we pray in the Name of our Lord Jesus, for Whose Kingdom we work in the strength You give us, Amen.
