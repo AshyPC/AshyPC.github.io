@@ -4,44 +4,23 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 16th October 2022
+## 13th November 2022
 
-__Ps 106:20-21__ 
-_They exchanged the glory of God for the image of an ox that eats grass.
-They forgot God, their Savior, who had done great things in Egypt,
-(Psalm of repentance)_
+__Philemon 1-3__ 
+_Paul, a prisoner of Christ Jesus, and Timothy our brother, To Philemon our dear friend and fellow worker – also to Apphia our sister and Archippus our fellow soldier – and to the church that meets in your home: Grace and peace to you from God our Father and the Lord Jesus Christ._
 
 ### Thanks to God
-Heavenly Father, today we gather to praise You, Who saved Your chosen people in Egypt, and because You are our Saviour also. By sending Jesus to do Your Will, putting our penalty for sin upon Him, and granting us great mercy, in Your grace You have done great things for us. Through His death on the Cross and His resurrection, You have adopted us into Your family. We call Him our Elder Brother, yet He is our King of Kings, too.
+Father God, we gather in Your Presence in this place and no other, to praise You, Who saved us by Your merciful grace, and granted us peace with You through our Lord Jesus.
+By sending Him – the One and Only – to be a ransom for the many, by putting our penalty for sin upon Him, and granting us His righteousness, You bridged the impossible gap between earth and heaven. Through His death and resurrection, You have adopted us personally into Your family. We are known to You personally, and Jesus dares to call us friends and brethren and fellow workers in Your coming Kingdom.
 
 ### The Wide World... and in the wider Church
-In the wider world we thank You that the Covid pandemic declaration has been lifted and the emergency measures no longer apply. We pray for wisdom to know how to be Godly citizens of our nation and our State of Victoria. We also pray that Your church would be alert at all times as a people who understand the times, and know Your purposes, whatever the circumstances we live in.
+In this world we thank You for the work of Barnabas Aid in setting free prisoners of debt who were under bondage to their employers. Paul was a prisoner because of the gospel, but these workers have been set free because of the gospel. We do not experience the same financial bondage here, yet we thank You we as we paused on Remembrance Day to recall what it cost to retain our freedoms in this land. Now we pray for wisdom to know how to be Godly citizens of our nation and our State as well as heabenly citizens with an eternal hope.
 
-We thank You that we enjoy the privilege of voting for our representatives in Parliament. For the coming State election, we pray that the candidates and the parties would be truly representative, as servants of the people, but who also recognise that Your Law is their Higher Authority.
+We thank You that we can vote for our representatives, and we pray that the candidates and parties would be truly representative servants of the people, who also recognise that Your Law is their Higher Authority, and true wisdom is found in Your Word alone.
 
 ### Ashburton
-We continue to pray for the Revitalization program as we work to see our church vision take shape, so that we can be a more effective channel for Your grace and mercy to reach this community. We want others to see and know for themselves that You are truly the God Who cares for His people, the only true Saviour and source of all hope.
+In Ashburton, we thank You for Your work here and pray for the Elders, Board of Management and everyone who serves in leading and working for the sake of the gospel. We thank You for the unity which has been wrought by the Holy Spirit, so that others may see and know that Jesus is the only Saviour, and truly You are God Who cares for His people. We continue to pray for the Revitalization program, so that we can be a more effective channel for Your grace and mercy to reach this community.
 
-We pray for those among us who need Your healing hand, especially remembering Diane and her heart condition, Margaret’s neuralgia and Shiun’s slow recovery. We pray also for safe travel and a refreshing time for Barry and Suzanne on leave. May they return with renewed zeal and energy to the work here that You have called them to.
+We pray for those among us who need Your healing hand, especially remembering Diane, Russell, Jocelyn and Shiun.
 
-We pray for Mook as he preaches today. May he expound clearly Your Word so that we grow in our understanding of Jesus, us as members of His body, the church, and our place in Your work here, Amen.
-
-And now let us conclude this time of prayer with the prayer that Jesus taught His disciples:
-
-
-Our Father, Who is in heaven,
-hallowed be Your name;
-Your kingdom come;
-Your will be done,
-on earth as it is in heaven.
-
-Give us this day our daily bread.
-And forgive us our trespasses,
-as we forgive those that trespass against us.
-Lead us not into temptation;
-but deliver us from evil.
-
-For Yours is the kingdom,
-the power, and the glory,
-for ever and ever.
-Amen.
+We pray for Barry as he preaches Your Word today. May he expound it clearly so that we grow both in mind and spirit, in hearing and doing all that You  call us to do in this part of Your great and eternal Kingdom. These things we bring confidently before You, knowing that You hear us as we pray in the Name of our Lord and Saviour Jesus Christ, Amen.
