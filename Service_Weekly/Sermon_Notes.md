@@ -6,20 +6,21 @@ title: Sermon Notes
 
 ### Barry Oakes
 
-### Sunday, December 30th, 2018
+### Sunday, November 13th, 2022
 
 ### Sermon outline:
 
 
 
-* "A Clash of Kingdoms" (Matthew 2:13-23)
+* "I AM the Way, the Truth and the Life!” (John 14:6)
 
 * Introduction
 
-1\. Not a silent night
+1\. The Way
 
-2\. The dragon behind the king
+2\. The Truth
 
-3\. Living with the certainty that God rules
+3\. The Life
 
 4\. Conclusion
+ 
