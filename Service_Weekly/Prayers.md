@@ -4,7 +4,7 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 3rd December 2022
+## 4th December 2022
 
 __Jeremiah 9:24__ 
 _I am the Lord who practices steadfast love, justice, and righteousness in the earth. For in these things I delight, declares the Lord._
