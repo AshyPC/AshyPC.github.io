@@ -4,23 +4,22 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 13th November 2022
+## 3rd December 2022
 
-__Philemon 1-3__ 
-_Paul, a prisoner of Christ Jesus, and Timothy our brother, To Philemon our dear friend and fellow worker – also to Apphia our sister and Archippus our fellow soldier – and to the church that meets in your home: Grace and peace to you from God our Father and the Lord Jesus Christ._
+__Jeremiah 9:24__ 
+_I am the Lord who practices steadfast love, justice, and righteousness in the earth. For in these things I delight, declares the Lord._
 
 ### Thanks to God
-Father God, we gather in Your Presence in this place and no other, to praise You, Who saved us by Your merciful grace, and granted us peace with You through our Lord Jesus.
-By sending Him – the One and Only – to be a ransom for the many, by putting our penalty for sin upon Him, and granting us His righteousness, You bridged the impossible gap between earth and heaven. Through His death and resurrection, You have adopted us personally into Your family. We are known to You personally, and Jesus dares to call us friends and brethren and fellow workers in Your coming Kingdom.
+As we come into summer and the Advent season, we gather as Your people in this place to praise You, Who sent our Lord Jesus to this earth to be our Saviour.
+
+The One and Only Son of God was and is walking proof of Your steadfast love, justice and righteousness. Because You love us whom You made, but we turned away as the sin of Adam was passed down to us, He came to bear the just penalty for the sin of the world, to free us of an impossible burden, to grant us His righteousness. We stand before You now, guiltless only because of His Perfect sacrifice on our behalf. We pray that we may learn to delight in and practice these things which delight You, O Lord.
 
 ### The Wide World... and in the wider Church
-In this world we thank You for the work of Barnabas Aid in setting free prisoners of debt who were under bondage to their employers. Paul was a prisoner because of the gospel, but these workers have been set free because of the gospel. We do not experience the same financial bondage here, yet we thank You we as we paused on Remembrance Day to recall what it cost to retain our freedoms in this land. Now we pray for wisdom to know how to be Godly citizens of our nation and our State as well as heabenly citizens with an eternal hope.
+We pray for this world where so many turn their backs upon Jesus, so many try to defy You and dethrone You, and where others remain in darkness, never knowing that You are the only God, the One Who truly loves with the full knowledge of how utterly sinful they are, and we were.
 
-We thank You that we can vote for our representatives, and we pray that the candidates and parties would be truly representative servants of the people, who also recognise that Your Law is their Higher Authority, and true wisdom is found in Your Word alone.
+We pray for Your Church, greatly distressed in so many places around the world where persecution robs believers of peace and safety. We pray for the Church in our country where it has been sidelined and ignored because people do not seek the Truth, and would rather practice self-righteousness, hatred and injustice. We pray for people to come and fill these seats to hear of the God Who loves them with an everlasting love, and Who wants to impart a sure hope of eternal life to all Whom You call.
 
 ### Ashburton
-In Ashburton, we thank You for Your work here and pray for the Elders, Board of Management and everyone who serves in leading and working for the sake of the gospel. We thank You for the unity which has been wrought by the Holy Spirit, so that others may see and know that Jesus is the only Saviour, and truly You are God Who cares for His people. We continue to pray for the Revitalization program, so that we can be a more effective channel for Your grace and mercy to reach this community.
+We thank You for Your work here in Ashburton, and pray for the Elders and Board of Management who met yesterday to plan ahead for next year. We know that we may plan and yet You overrule so that Your sovereign purposes are always fulfilled. But we seek to be purposeful, and work within the scope of purposes You have for us as a Body of Your peopole in this area. We continue to pray for the Revitalization program. Help us to take an active part in the process, so that we can be a more effective channel for Your grace and mercy to this community.
 
-We pray for those among us who need Your healing hand, especially remembering Diane, Russell, Jocelyn and Shiun.
-
-We pray for Barry as he preaches Your Word today. May he expound it clearly so that we grow both in mind and spirit, in hearing and doing all that You  call us to do in this part of Your great and eternal Kingdom. These things we bring confidently before You, knowing that You hear us as we pray in the Name of our Lord and Saviour Jesus Christ, Amen.
+We pray for Barry as he preaches Your Word today. May he expound it clearly so that we grow both in mind and spirit, in hearing and doing all that You call us to do. We pray for ourselves too, that we be active listeners and doers of Your Word so that we bring glory to the Name of Jesus, our Lord and Saviour, Amen.
