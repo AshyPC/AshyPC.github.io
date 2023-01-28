@@ -4,26 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 23rd January 2023
-__When Joseph revealed who he was to his brothers, he said:__
-__Jeremiah 9:24__ 
-_...do not be distressed and do not be angry with yourselves for selling me here, because it was to save lives that God sent me ahead of you._
+## 29th January 2023
+
+__1 Thess 5:16-18__ 
+_Rejoice always, pray continually, give thanks in all circumstances; for this is God’s will for you in Christ Jesus._
 
 ### Thanks to God
-Heavenly Father we come into Your Presence today to give You honour and praise. We thank You that You see the end from the beginning, whereas we are limited to this world where we see time unfold one day at a time. As Joseph declared, You are the Only God, the One Who saves lives. Joseph was a forerunner of the True Saviour, one who was sent ahead of his brothers so that a people could be saved four hundred years later.
+Heavenly Father we come before You today to give You thanks and praise. We thank You that because of Your salvation, seen from the beginning, promised to Adam and Eve, fulfilled by Jesus Himself, we can rejoice always for the release we have from the guilt, the power and the penalty of sin. Whatever our situation today, Your perfect and complete redemption deals with our deepest needs.
 
-We honour You, Who sent our Lord Jesus to this earth to be our Saviour. He is not ashamed to call us His brothers and sisters. We thank You that He has fulfilled the Law perfectly, and has given us His complete righteousness in place of our sin. We walk free because He has taken the penalty, removed our guilt and cancelled the power of sin.
+Our Lord Jesus surrendered the glories of heaven to come down to this earth. When He had fulfilled that mission, He ascended to the throne again so that He could prepare a place for us in Your Presence. His sacrifice provided true righteousness in place of our degradation. We can rejoice freely because He has fulfilled the Perfect Law, which we failed to do.
 
-We thank You that we are now free to resist temptation and escape the power of sin by doing the works of righteousness You have prepared for us in advance.
+We thank You that we are now free to walk in newness of life and take part in the work You have prepared for us in advance.
 
 ### The Wide World... and in the wider Church
-We pray for this world where many turn their backs upon Jesus, many try to defy You and dethrone You, and others remain in darkness, never knowing that You are the only God, the One Who truly loves them with the full knowledge of how utterly sinful they are, and that salvation through Jesus alone is possible.
+We pray for this world where so many remain in darkness and where so much is opposed to Your will and purpose. Yet we see glimpses of the glory of Your original creation, and long for the restoration of all things, when Jesus returns.
 
-We pray for Your Church, greatly distressed in so many places around the world where persecution robs believers of peace and safety. We pray also for the work of PresAID which aims to help peoples to depend on God rather than becoming dependent on foreign countries supplying aid, seemingly forever.
+We pray for Your Church, again giving thanks for the work of the gospel which continues despite interruptions and oppression in many places around the world. We thank You for news from Calvin & Ruth Mathys, recovering after last year’s earthquake, and give thanks that Ruth is making excellent progress after surgery on her broken ankle.
 
-We pray for the Church in our country where it has been sidelined and ignored because people do not seek the Truth. Yet we know Your work continues Lord. We pray for Matt and Kate Vinicombe and family as they deal with the serious aftereffects of the road accident. We thank You for the excellent medical care Kate is receiving in the Austin Spinal Unit. We pray also for our Assembly Clerk John Wilson and his wife Paula as they grieve the loss of their daughter Emily, who passed into God’s presence after a long and difficult illness.
+We pray for the Church here also, where Your purposes are unstoppable, even if we do not see much in the way of visible “results.” We pray again for Matt and Kate Vinicombe and family as they persevere after the road accident, and we thank You for the excellent medical care Kate is receiving in the Austin Hospital.
 
 ### Ashburton
-We thank You for Your work here in Ashburton, and pray for the Elders and Board of Management as they lead us by serving. We continue to pray for the Revitalization program. Help us to take an active part in the process, so that we can be a more effective channel for Your grace and mercy to this community. We pray also for restoration of the health of Margaret, Diane, Shiun, and Russell. We also uphold Steph and Callum, as Steph is required to rest for the remainder of her pregnancy. We also pray for refreshing for Barry and Suzanne as they take a break for two weeks.
+We thank You for Your work here in Ashburton, and we continue to pray for the Revitalization program. We pray for restoration of the health of Margaret, Diane, Shiun, for Russell and Jocelyn taking a break, and for Steph and Callum, as school resumes for the new year. We also pray for refreshing for Barry and Suzanne as they continue their break for another week.
 
-We pray for Mook as he preaches Your Word today. May he expound it clearly so that we grow both in mind and spirit, in hearing and doing all that You call us to do. We pray for ourselves too, that we be active listeners and doers of Your Word so that we bring glory to the Name of Jesus, our Lord and Saviour, Amen.
+We give thanks for Mook as he preaches Your Word today. We thank You for the guidance of the Holy Spiirt in his preparation, and we pray that we too will know Your Holy Spirit guidance as we hear and obey Your teaching, so that we bring honour to the Name of Jesus, our Lord and Saviour, Amen.
