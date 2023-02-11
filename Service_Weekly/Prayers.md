@@ -4,26 +4,24 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 29th January 2023
+## 12th February 2023
 
-__1 Thess 5:16-18__ 
-_Rejoice always, pray continually, give thanks in all circumstances; for this is God’s will for you in Christ Jesus._
+__Phil 1:4-5__ 
+_In all my prayers for all of you, I always pray with joy because of your partnership in the gospel from the first day until now._
 
 ### Thanks to God
-Heavenly Father we come before You today to give You thanks and praise. We thank You that because of Your salvation, seen from the beginning, promised to Adam and Eve, fulfilled by Jesus Himself, we can rejoice always for the release we have from the guilt, the power and the penalty of sin. Whatever our situation today, Your perfect and complete redemption deals with our deepest needs.
+Heavenly Father You called us out of darkness into Your marvellous light, and so it is our joy to give You thanks and praise today. We thank You that Your salvation releases us from sin’s hold and we are free to obey Your Good Word. We thank You that we can now walk in the Spirit, in newness of life and not simply idle away our time.
 
-Our Lord Jesus surrendered the glories of heaven to come down to this earth. When He had fulfilled that mission, He ascended to the throne again so that He could prepare a place for us in Your Presence. His sacrifice provided true righteousness in place of our degradation. We can rejoice freely because He has fulfilled the Perfect Law, which we failed to do.
-
-We thank You that we are now free to walk in newness of life and take part in the work You have prepared for us in advance.
+Our Lord Jesus voluntarily surrendered the glories of heaven to come down to this earth, do what we could not do for ourselves and then ascend to the throne again. We are therefore free of the fear of death but You have also graciously appointed tasks for us to do, so that we share with You in the work of the Gospel, bringing the Kingdom of Heaven to more and more people so that a joyous multitude will bring unending praise and honour to Father, Son and Holy Spirit.
 
 ### The Wide World... and in the wider Church
-We pray for this world where so many remain in darkness and where so much is opposed to Your will and purpose. Yet we see glimpses of the glory of Your original creation, and long for the restoration of all things, when Jesus returns.
+We pray for this world where the biggest news before us is the tragic earthquakes which have taken over 20,000 lives and done so much damage in Turkey and Northern Syria. We pray for the rescue efforts to find survivors and for the massive restoration task which has to follow. We pray for aid workers in the region and surrounding countries who will be asked to cope with yet another major tragedy and thousands of displaced refugees.
 
-We pray for Your Church, again giving thanks for the work of the gospel which continues despite interruptions and oppression in many places around the world. We thank You for news from Calvin & Ruth Mathys, recovering after last year’s earthquake, and give thanks that Ruth is making excellent progress after surgery on her broken ankle.
-
-We pray for the Church here also, where Your purposes are unstoppable, even if we do not see much in the way of visible “results.” We pray again for Matt and Kate Vinicombe and family as they persevere after the road accident, and we thank You for the excellent medical care Kate is receiving in the Austin Hospital.
+We pray for Your Church, again giving thanks for the work of the gospel which continues despite interruptions and oppression in many places around the world. We thank You for news from Calvin & Ruth Mathys, recovering after last year’s New Guinea earthquake, and give thanks that Ruth is making excellent progress after surgery on her broken ankle. May our missions support this month be an encouragement to them, along with our prayers, so that they can fulfill Your calling more effectively each day.
 
 ### Ashburton
-We thank You for Your work here in Ashburton, and we continue to pray for the Revitalization program. We pray for restoration of the health of Margaret, Diane, Shiun, for Russell and Jocelyn taking a break, and for Steph and Callum, as school resumes for the new year. We also pray for refreshing for Barry and Suzanne as they continue their break for another week.
+We thank You for Your work here in Ashburton, and we continue to pray for the Revitalization program, and our Congregational Meeting today. Grant us wisdom and insight so that we can work in step with Your plans for this work. We pray also for the resumption of Community Groups: may we grow in grace and Christ-likeness as we study Your Word both in theory and in practice as we seek to be more effective in prayer.
 
-We give thanks for Mook as he preaches Your Word today. We thank You for the guidance of the Holy Spiirt in his preparation, and we pray that we too will know Your Holy Spirit guidance as we hear and obey Your teaching, so that we bring honour to the Name of Jesus, our Lord and Saviour, Amen.
+We pray for restoration of health for Margaret and Diane, Shiun, for Russell and Jocelyn, and for Steph and Callum.
+
+We give thanks for Your Word which is freely available to us, which we can read for ourselves as well as hearing it proclaimed publicly. We pray for Barry as he preaches today: giving thanks for his preparation under Your guidance. and we pray that we too will know that heavenly guidance. May we live out the truth of Your powerful response to faithful prayer, so that we bring honour to the Name of Jesus, our Lord and Saviour, Amen.
