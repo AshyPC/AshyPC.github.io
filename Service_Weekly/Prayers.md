@@ -4,24 +4,42 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 12th February 2023
+## 12th March 2023
 
-__Phil 1:4-5__ 
-_In all my prayers for all of you, I always pray with joy because of your partnership in the gospel from the first day until now._
+__Deuteronomy 32:3‭-‬4 (NASB)__ 
+_For I will proclaim the name of the Lord; ascribe greatness to our God “The Rock!” His work is perfect, for all his ways are just. A God of faithfulness and without injustice, righteous and upright is he._
 
 ### Thanks to God
-Heavenly Father You called us out of darkness into Your marvellous light, and so it is our joy to give You thanks and praise today. We thank You that Your salvation releases us from sin’s hold and we are free to obey Your Good Word. We thank You that we can now walk in the Spirit, in newness of life and not simply idle away our time.
-
-Our Lord Jesus voluntarily surrendered the glories of heaven to come down to this earth, do what we could not do for ourselves and then ascend to the throne again. We are therefore free of the fear of death but You have also graciously appointed tasks for us to do, so that we share with You in the work of the Gospel, bringing the Kingdom of Heaven to more and more people so that a joyous multitude will bring unending praise and honour to Father, Son and Holy Spirit.
+O Lord our God, You have taken us out of darkness and brought us into Your marvellous light, not because of anything we have done but because You are righteous and upright. We thank You that Your salvation is all because of Your grace in sending Jesus to take our place. We deserved judgement but You have shown us unmerited mercy. You are upright and truly just, so that sin received its due penalty. Yet we are not lost for now You have adopted us into the heavenly family, calling us Your sons and daughters and granting us even the faith to believe the Good News of the Gospel.
 
 ### The Wide World... and in the wider Church
-We pray for this world where the biggest news before us is the tragic earthquakes which have taken over 20,000 lives and done so much damage in Turkey and Northern Syria. We pray for the rescue efforts to find survivors and for the massive restoration task which has to follow. We pray for aid workers in the region and surrounding countries who will be asked to cope with yet another major tragedy and thousands of displaced refugees.
+We pray for this world and give You thanks for the places where the Gospel is known and proclaimed. We thank You for missionaries such as the Mihalyis and Sam & Dhruti Christian who have gone to distant places, but also for those who serve closer to home.
 
-We pray for Your Church, again giving thanks for the work of the gospel which continues despite interruptions and oppression in many places around the world. We thank You for news from Calvin & Ruth Mathys, recovering after last year’s New Guinea earthquake, and give thanks that Ruth is making excellent progress after surgery on her broken ankle. May our missions support this month be an encouragement to them, along with our prayers, so that they can fulfill Your calling more effectively each day.
+Lord, you have numbered our days. Teach us how to number our days. Show us how to redeem the time you have allotted so that it truly counts for eternity. We seek your wisdom to set our priorities towards eternal things and away from the things of this world.
 
 ### Ashburton
-We thank You for Your work here in Ashburton, and we continue to pray for the Revitalization program, and our Congregational Meeting today. Grant us wisdom and insight so that we can work in step with Your plans for this work. We pray also for the resumption of Community Groups: may we grow in grace and Christ-likeness as we study Your Word both in theory and in practice as we seek to be more effective in prayer.
+We thank You for Your work here in Ashburton, and we continue to pray for the progress of our Revitalization program. Please grant great wisdom and insight to Rod Morris as he walks beside us and mentors us through this process.
 
-We pray for restoration of health for Margaret and Diane, Shiun, for Russell and Jocelyn, and for Steph and Callum.
+We continue to seek You for the fulfillment ofYour purposes here in the community around us. We pray that we increasingly align ourselves with Your work here, that we may proclaim in word and deed Your love and mercy, Your faithfulness and justice and Your desire to see people come to faith within this community.
 
-We give thanks for Your Word which is freely available to us, which we can read for ourselves as well as hearing it proclaimed publicly. We pray for Barry as he preaches today: giving thanks for his preparation under Your guidance. and we pray that we too will know that heavenly guidance. May we live out the truth of Your powerful response to faithful prayer, so that we bring honour to the Name of Jesus, our Lord and Saviour, Amen.
+Among our own number we pray for restoration of health for Diane, Shiun and for Russell and Jocelyn. We also uphold Steph and Callum, and thank You for Levi’s progress. We continue to pray for his growth so that he can be released from hospital soon.
+
+We give thanks for Your Word which is freely available to us, which we can read for ourselves as well as hearing it proclaimed publicly. We pray for Grant Lawry as he preaches today: giving thanks for his preparation under Your guidance, and we pray that we too will know that heavenly guidance. May we live out the truth of Your powerful response to faithful prayer, so that we bring honour to the Name of Jesus, our Lord and Saviour, Who is also our Great High Priest before Your Throne, Amen.
+
+
+Our Father, Who is in heaven,
+hallowed be Your name;
+Your kingdom come;
+Your will be done,
+on earth as it is in heaven.
+
+Give us this day our daily bread.
+And forgive us our trespasses,
+as we forgive those that trespass against us.
+Lead us not into temptation;
+but deliver us from evil.
+
+For Yours is the kingdom,
+the power, and the glory,
+for ever and ever.
+Amen.
