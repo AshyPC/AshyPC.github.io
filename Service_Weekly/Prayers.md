@@ -4,27 +4,28 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 12th March 2023
+## 23rd April 2023
 
-__Deuteronomy 32:3‭-‬4 (NASB)__ 
-_For I will proclaim the name of the Lord; ascribe greatness to our God “The Rock!” His work is perfect, for all his ways are just. A God of faithfulness and without injustice, righteous and upright is he._
+__John 15:13__ 
+_Greater love has no one than this: to lay down one’s life for one’s friends_
 
 ### Thanks to God
-O Lord our God, You have taken us out of darkness and brought us into Your marvellous light, not because of anything we have done but because You are righteous and upright. We thank You that Your salvation is all because of Your grace in sending Jesus to take our place. We deserved judgement but You have shown us unmerited mercy. You are upright and truly just, so that sin received its due penalty. Yet we are not lost for now You have adopted us into the heavenly family, calling us Your sons and daughters and granting us even the faith to believe the Good News of the Gospel.
+O Lord our God, we come to You today, giving thanks for Your great mercies to us. You sent Jesus to take the punishment for our sin, to bear Your righteous wrath against our rejection of Your sovereign grace towards us.
+
+He demonstrated His unfathomable love by going to the Cross and then You demonstrated Your power in raising Him on the Third Day. And now the Holy Spirit has come to enable us to respond from changed hearts as we cry out “Abba, Father!”
+
+When we stray we thank You that we are not cut off forever but He draws us back to the Cross. When we sin we are reminded that we have an advocate before Your throne of grace – Jesus Christ the Righteous One. And we thank You for having adopted us into the heavenly family, calling us Your sons and daughters solely based on the perfect righteousness of Christ our Saviour.
 
 ### The Wide World... and in the wider Church
-We pray for this world and give You thanks for the places where the Gospel is known and proclaimed. We thank You for missionaries such as the Mihalyis and Sam & Dhruti Christian who have gone to distant places, but also for those who serve closer to home.
+This week there will be a focus on remembering those who served and died to defend our nation, our heritage and our freedoms. We pray for a greater understanding of the true source of our freedoms in serving You within the Kingdom of heaven, as we work within the church on earth. For, whom the Son sets free is free indeed.
 
-Lord, you have numbered our days. Teach us how to number our days. Show us how to redeem the time you have allotted so that it truly counts for eternity. We seek your wisdom to set our priorities towards eternal things and away from the things of this world.
+We pray for our military chaplains working with the armed forces, ministering to people who are being trained daily for a task they hope never to have to carry out. Yet, they are ready and willing, so that we may rest easy and enjoy the blessings preserved for us by their diligence.
 
 ### Ashburton
-We thank You for Your work here in Ashburton, and we continue to pray for the progress of our Revitalization program. Please grant great wisdom and insight to Rod Morris as he walks beside us and mentors us through this process.
+We thank You for Your work here, and we continue to pray for the progress of our Revitalization program. We pray for wisdom for the Session, the Board and in fact all of us, as we plan and work, but continue to recognise that it is Your church that Jesus is building. We therefore seek to do as He did when on this earth, and be guided by the Holy Spirit in everything we do.
 
-We continue to seek You for the fulfillment ofYour purposes here in the community around us. We pray that we increasingly align ourselves with Your work here, that we may proclaim in word and deed Your love and mercy, Your faithfulness and justice and Your desire to see people come to faith within this community.
+We give thanks for Your Word which is freely available to us, which we can read for ourselves as well as hearing it proclaimed publicly. May we never take it for granted but read it diligently and often. As Barry comes to expound Your Word to us today, we thank You for his preparation, and pray that we will receive it and live it out, so that we bring honour to the Name of Jesus, our Lord and Saviour, Amen.
 
-Among our own number we pray for restoration of health for Diane, Shiun and for Russell and Jocelyn. We also uphold Steph and Callum, and thank You for Levi’s progress. We continue to pray for his growth so that he can be released from hospital soon.
-
-We give thanks for Your Word which is freely available to us, which we can read for ourselves as well as hearing it proclaimed publicly. We pray for Grant Lawry as he preaches today: giving thanks for his preparation under Your guidance, and we pray that we too will know that heavenly guidance. May we live out the truth of Your powerful response to faithful prayer, so that we bring honour to the Name of Jesus, our Lord and Saviour, Who is also our Great High Priest before Your Throne, Amen.
 
 
 Our Father, Who is in heaven,
