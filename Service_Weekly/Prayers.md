@@ -4,32 +4,26 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 7th May 2023
+## 4th June 2023
 
-As the world has just witnessed the solemn pageantry of the coronation of King Charles III of the United Kingdom, we read this solemn warning from Psalm 2.
-
-__Psalms 2:10-11__ 
-_Therefore, you kings, be wise; be warned, you rulers of the earth.
-Serve the Lord with fear and celebrate his rule with trembling._
+__Matthew 24:42__ 
+_Therefore keep watch, because you do not know on what day your Lord will come._
 
 ### Thanks to God
-O Lord our God, we give You thanks today for Your great mercies to us. We have witnessed a singular event  - for some, the only one of this scale and ceremony in our lives – the transfer of earthly authority in the United Kingdom from the late Queen Elizabeth to the incoming King Charles. Within this Christian ceremony witnessed by millions are signs and symbols pointing to the Greater King of Kings, our Lord Jesus, Who now sits at Your right hand, ruling over all things, seen and unseen.
+O Lord our God, we give You thanks today for Your great mercies to us. Today we celebrate the Lord’s Supper as a means of grace, which helps us to remember that Jesus came humbly to this earth over 2000 years ago to redeem us, to seek and save the lost. The Supper also points us to a future time when Jesus will return visibly as King of Kings and Lord of Lords, to take full possession of the prize for His complete victory over sin and death and Satan.
 
-But before he took the Eternal Throne, Jesus laid aside His heavenly glory to humble Himself and take our lowly place, receiving the due punishment for our sin. We acknowledge today that, as descendents of Adam, we are powerless to do anything to save ourselves, and are in desperate need of such a gracious Saviour.
-
-And we thank You that, based entirely and only on His finished work on the Cross, You have adopted us into the heavenly family, calling us Your sons and daughters, and clothing us in His perfect righteousness.
+But before that happens, Jesus has warned us to keep watch so that we are not surprised or shocked at the coming Day of the Lord. We acknowledge today that, as descendents of Adam, we are prone to forget, and to assume that all of life will continue unchanged.  We are powerless to save ourselves, and are in desperate need of Your great mercy, the gracious Saviour and His finished work, and the Holy Spirit power to turn away from temptation.
 
 ### The Wide World... and in the wider Church
-We pray for King Charles, as he commits to his oaths of office, to uphold justice, protect the weak and defend the Christian faith. He was presented with the sword of government authority to uphold what is right and to punish evil, as expressed in the ceremony: a symbol of justice rather than judgement, of mercy instead of might, and trusting in the Word of God which is the sword of the Spirit.
+We pray for this world where most seem to have forgotten that there will come a Day of Judgement. So many are not on watch, and we pray for an awakening to eternal things. We pray that we would be on watch constantly, living our lives expecting Jesus to return at any moment. We pray that Your people, gathered as the Church for whom Jesus died and rose again, would also live and work with one eye towards the future return of the Bridegroom.
 
-As we pray “God Save the King!” we ask also that we would be blessed with righteous government from the Governor-General and Federal Parliament, to the State Parliament and to our local councils as they exercise delegated authority under the Crown.
 
 ### Ashburton
-We thank You for Your work here, and acknowledge that the Kingdom of God takes precedence over the kingdoms of man. We continue to pray for the progress of our Revitalization program, and pray for the Re-Vision workshop coming up in two weeks. We pray for wisdom for the Session, the Board and others attending, as we develop ways of putting our God-given vision into concrete proposals and actions.We continue to recognise that Jesus is building His church and has called us to join with Him in the task. We therefore seek to do as He did when on this earth, and be guided by the Holy Spirit in everything we do.
+We thank You for Your work here, acknowledging that the Kingdom of God takes precedence over the works of man. We continue to pray for the progress of our Revitalization program, and give thanks for the unity of purpose which our Re-Vision workshop brought to light. We pray for the congregational meeting next Saturday, as we present the God-given vision for all to grasp. We continue to recognise that Jesus is building His church and has called us to join with Him in the task. We therefore seek to do as He did when on this earth, and be guided by the Holy Spirit in everything we do.
 
-We give thanks for Your Word, the sword of the Spirit. As Barry comes to expound that Word to us today, we thank You for his preparation, and pray that we will become morediligent doers, following the example of our Servant King, Jesus, Who is also our Lord and Saviour, Amen.
+We give thanks for Your Word, the sword of the Spirit. As Barry comes to preach that Word to us today, we thank You for his preparation, and pray that we will become more diligent doers, watchful as we obey our Servant King, Jesus, Who is also our Lord and Saviour, Amen.
 
-
+And now let us conclude this time of prayer using the words Jesus taught His disciples:
 
 Our Father, Who is in heaven,
 hallowed be Your name;
