@@ -4,7 +4,7 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 2nd July 2023
+## 20th August 2023
 
 __Psalm 113:5-9__ 
 _5 Who is like the Lord our God, Who is enthroned on high,_
