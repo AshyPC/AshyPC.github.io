@@ -4,36 +4,30 @@ title: Prayers
 ---
 ## Prayers for our World and the Church
 
-## 5th November 2023
+## 19th November 2023
 
-__Psalm 143:1__ 
-_Hear my prayer, O Lord; give ear to my pleas for mercy!_
-_In Your faithfulness answer me, in Your righteousness!_
+__Micah 7:7-8__ 
+_But as for me, I will look to the Lord; I will wait for the God of my salvation;_
+	_my God will hear me._
+_Rejoice not over me, O my enemy; when I fall, I shall rise;_
+	_when I sit in darkness, the Lord will be a light to me._
 
-### Adoration
-God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
+### Thanks to God
+Sovereign God, we thank You that You hear us, not because of our righteousness, for we have none. Only because of Your grace and mercy, because Jesus came to live the Perfect Life which we could not, took the penalty which we could not pay, and gave us His spotless righteousness in exchange for our sin.
 
-### Confession
-But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have sullied the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+We thank You that because of this great and gracious exchange, we can walk free of the guilt of our sin, and in reliance upon the Holy Spirit within, we can resist or avoid temptations when they come.
 
+### The Wide World... and the Wider Church
+We thank You that Your servant Micah, guided by Your Holy Spirit, spoke of the sinfulness of mankind, using words which describe our world in this present time. Whether the siutation is of war in the Middle East or of “natural” disasters in Nepal, whether it is overbearing governments or the willing sinfulness of greedy men, we pray for a restoration, a revival of Godliness. We wait upon You, for nothing takes You by surprise, You see and know all, and You continue to work out Your purposes for this world which You created to manifest Your glory.
 
-### Thanksgiving
-Yet, we thank You that You have not abandoned us, but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+Whatever we go through, we trust that You alone enable us to rise from a fall, and You alone supply us with the Light of Your Word to defeat the darkness around us.
 
-We thank You that You raised Him up on the third day, defeating death and sin, and we thank You that we can celebrate the Lord’s Supper later in this service. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. We look forward to that sure hope which is guaranteed to us by the resurrection, and ministered to us by the Holy Spirit. 
+We pray for Your Church, the Body of Christ, to continue to proclaim the Truth as You have declared it it in Your Word. We pray for all who preach Your Word that they would do it faithfully, upholding Your Word despite every public effort we see trying to change the truth into falsehood.
 
-### Supplication: The Wider World
-In the wider world, we continue to pray for the peace of Jerusalem, for the nation and the people of Israel, where unprovoked rage has terrorised so many civilians. We have seen the reality of sin in the actions of the terrorists, who seek to destroy an entire nation. But we thank You that Your Word declares there is yet a destiny for Your Chosen People, which terrorism cannot blot out.
+### Ashburton
+We thank You for the work of grace here, and continue to pray for our Revitalization program. We recognise that Jesus is building His church and has called us to join with Him in the task. We pray for us to grow towards spiritual maturity, using the means of discipleship, prayer and fellowship.
 
-Here in Victoria, we thank You that such events are absent, but we pray for the restoration of Godly government, restrained to the role and task You have set in Your Word. We pray for more people to come to faith through the preaching of Your Word, so that they too may know the certain hope of an eternal future.
+We uphold our students as they progress through this exam season. Bless them with clear minds and confident perseverance as they apply themselves to demonstrate their learning.
 
-### ... and the wider Church
-We give thanks for Your people in churches where Your Word is faithfully preached. We pray also for those places where there is a drought of Your Word. We thank You for our College training men to preach, and pray You would call more men to take up this high calling.
-
-### Supplication: Ashburton
-Here in Ashburton we pray for the students in our number who are presently undergoing exams, that they would be able to display their learning, as a demonstreation of their abilities, not to boast but to advance to the next stage of their lives and to take up further responsibilities. May all that they do represent Your grace in their lives.
-
-We pray for Grant as he preaches Your Word today, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word.
-
-Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the world-spanning Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. In Jesus Name we pray, Amen.
+We pray also that You would restore those among us who are unwell or struggling in their circumstances, so that we may not be shaken as we look to Jesus, our Lord and Saviour, the God of our salvation,  Amen.
 
