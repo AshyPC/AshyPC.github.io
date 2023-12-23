@@ -2,39 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, November 12th, 2023
-### Barry Oakes & Barbara Day off with Covid
+### Order of Service Monday, December 25th, 2023 (Christmas Day)
+### Mook & Talia off with Covid
 
-**Welcome / Call to Worship**  (Mook)
+**Call to Worship () / Opening prayer (Barry?)
+**Announcements (Barry)
+**Praise: *O Little Town of Bethlehem*
 
-**Praise**  *O Worship the King All Glorious Above*
+**Praise**  *Mary’s Boy Child*
 
-**Announcements** (John)
-    • Congregational meeting for 19th (it will only take 5 minutes) and
-    • Postpone the picnic to 26th
-    • Christian Women’s Creative Gathering - please let Pam know
-    • Covid strikes again - Barry and Barbara
+**Bible Reading: Luke 2:8-21 (Callum)
 
-**Bible reading 1:**Hebrews 9:11-28**  (John)
+**Christmas Prayer (John A)
 
-Announce Offering (pray) and Praise
+**Bible reading: Matthew 2:1-12 (Seng)
 
-**Praise** *Praise: Yet Not I But Through Christ In Me* (Offering) 
+**Praise** *Midnight Clear (Love Song)*  (offering - tear fund)
 
-**Prayer for the church and the world** (Mook)
+**Sermon: “JOY TO THE WORLD” (Barry)
 
-**Bible reading 2:** Exodus 24 (Pam)
+**Praise: *Joy to the World*
 
-**Praise** *Reformation Song*
-
-**Sermon:**  "God’s Covenant Confirmed in the Wilderness” (TGC-23 Ligon Duncan)
-
-**Praise** *Holy Hands (Not What These Hands Have Done)*
-
-**Benediction** (Mook)
-
+**Benediction (Barry?)
 
 
 Sermon Outline
 
-“God’s Covenant Confirmed in the Wilderness” (Exodus 24)
+“JOY TO THE WORLD” (Luke 2:8-21, Matthew 2:1-12)
+
+Introduction
+
+1. Joy hurries to the source of good news and delight
+
+2. Joy must be shared
+
+3. Joy delights (celebrates)
+
+4. Joy leads to worship & giving!
+
+Conclusion
