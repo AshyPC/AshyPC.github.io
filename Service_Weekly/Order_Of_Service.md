@@ -2,42 +2,31 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Monday, December 25th, 2023 (Christmas Day)
-### Mook & Talia off with Covid
+### Order of Service Sunday, January 14th, 2024
+### Barry & Suzanne on leave
 
-**Call to Worship () / Opening prayer (Barry?)
-**Announcements (Barry)
-**Praise: *O Little Town of Bethlehem*
+**Call to Worship () / Opening prayer (Mook)
 
-**Praise**  *Mary’s Boy Child*
+**Praise: *Before the Throne*
 
-**Bible Reading: Luke 2:8-21 (Callum)
+**Announcements (Mook)
 
-**Christmas Prayer (John A)
+**Bible Reading: Philippians 2:1-11  (Rachel D)
 
-**Bible reading: Matthew 2:1-12 (Seng)
+**Praise:** *Hymn of Heaven*  (offering – PresAID)
 
-**Praise** *Midnight Clear (Love Song)*  (offering - tear fund)
+**Prayer** for the church and the world (John A)
 
-**Sermon: “JOY TO THE WORLD” (Barry)
+**Praise:** *Rock of Ages*
 
-**Praise: *Joy to the World*
+**Sermon:** “BEATITUDES: THE HELPLESS” (Mook)
 
-**Benediction (Barry?)
+**Praise: *All I Need Is Christ*
 
+**Benediction** (Mook)
 
 Sermon Outline
-
-“JOY TO THE WORLD” (Luke 2:8-21, Matthew 2:1-12)
-
+“BEATITUDES: THE HELPLESS” (Matthew 5:1-4)
 Introduction
-
-1. Joy hurries to the source of good news and delight
-
-2. Joy must be shared
-
-3. Joy delights (celebrates)
-
-4. Joy leads to worship & giving!
-
+    1. 
 Conclusion
