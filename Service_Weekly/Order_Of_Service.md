@@ -2,31 +2,45 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, January 14th, 2024
-### Barry & Suzanne on leave
+### Order of Service Sunday, January 21st, 2024
 
-**Call to Worship () / Opening prayer (Mook)
+**Call to Worship** (Psalm 23) / Opening prayer (Mook)
 
-**Praise: *Before the Throne*
+**Presbytery Moderator:** John Huynh
 
-**Announcements (Mook)
+**Praise**: *Amazing Grace*
 
-**Bible Reading: Philippians 2:1-11  (Rachel D)
+**Announcements (John A)** 
+*- Funeral Announcement*
+*-*
+*- Mission giving this month is for the PresAid Christmas Appeal (video)*
+*- Morning tea after the service*
 
-**Praise:** *Hymn of Heaven*  (offering – PresAID)
+**Prayer of Lament (Jan F)**
+
+**Bible Reading:**  John 11:17-44 (John A)
+
+**Praise:** *My God Is All I Need*
 
 **Prayer** for the church and the world (John A)
 
-**Praise:** *Rock of Ages*
+**Bible Reading:** Revelations 21:1-8 (Mook)
 
-**Sermon:** “BEATITUDES: THE HELPLESS” (Mook)
+**Praise:** *The Lord is my Salvation (Offering PresAID)*
 
-**Praise: *All I Need Is Christ*
+**Sermon:** “GOD’S HAND IN OUR MOURNING” (Mook)
+
+**Praise:** *He Will Hold Me Fast*
 
 **Benediction** (Mook)
 
 Sermon Outline
-“BEATITUDES: THE HELPLESS” (Matthew 5:1-4)
+“GOD’S HAND IN OUR MOURNING”
 Introduction
-    1. 
+
+1. He Cares
+2. We have certainty in Him
+3. It is a time to mourn
+4. Not as those who have no hope
+
 Conclusion

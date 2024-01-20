@@ -4,29 +4,25 @@ title: Prayers
 ---
 ## Prayer of Thanksgiving for Christmas Day
 
-## 14th January 2024
+## 21st January 2024
 
-__Psalm 7:17__ 
-_I will give to the Lord the thanks due to his righteousness,_
-_and I will sing praise to the name of the Lord, the Most High._
+__Psalm 61:1-2__ 
+_Hear my cry, O God; listen to my prayer_
+_From the ends of the earth I call to you, I call as my heart grows faint;_
+    _lead me to the rock that is higher than I._
 
 #Thanks to God#
-O Lord our God, we have gathered here today to worship You, to take up the words of David and give You thanks and praise because of Your righteousness. You created a world where mankind could live in joyful, productive submission to Your righteous rule, and where people could live at peace with each other. 
+O God, we cry out You, taking the words of David for ourselves to say how heavy are our hearts today. You created a world which was very good but death made a ruin and brought sadness because of loss, instead of joy in Your Presence. 
 
-Yet, because of the Fall and the curse, man is not at peace with anything and we acknowledge that we need redemption because we are sinners who cannot save ourselves.
-
-We thank You for the promised One who would come to crush the head of the serpent. We thank You that Jesus Christ the Righteous is the fulfillment of that promise, and the focus of our hope in Your perfect salvation.
+We thank You for Jesus Who is the Resurrection and the Life. We thank You for His death and resurrection which bought us back from the enemy and provided us with Your perfect salvation. We thank You for the sure hope we have because He has ascended to heaven and is seated at Your right hand, and we have the Holy Spirit with us the Comforter and Guide into all truth.
 
 #The Wide World... and the Wider Church#
-In this world at this time, we see the sinfulness of mankind, showing how great is the need for Jesus. We have been saddened by the sudden re-emergence of hatred of the people of Israel, but we are not surprised that a world which has turned away from You should also turn away from Your chosen people. We pray for the peace of Jerusalem both spiritually and temporally as the nation remains at ware with sworn enemies.
+Lord, we are at the ends of the earth – almost as far from Jerusalem as possible in both time and place. We thank You for Your Church which has upheld the truth delivered once for all to the saints, and we pray that You would continue to strengthen Your people daily as we witness to the Truth of Jesus, even in these times when the Truth is definitely out of favour in our communities.
 
-Within our own nation we pray for victims of floods interstate in Queensland and NSW. We pray for all the rescue and restoration work, and especially for churches in and around the affected areas. May they be the visible hands and feet of the body of Christ, ministering in practical ways and showing Your love to flood victims.
-
-We pray also for Your Church to continue to proclaim the Truth that Jesus is the Reason for the Season. When disasters are upon us, it is so easy to lose sight of the fact that You have extended mercy by sending Jesus to be our saviour. We pray that people will recognise the truth of what is preached, and respond in faith.
+Within our own nation we pray again about floods in Queensland and another cyclone approaching the coast. We pray for the preparations being made now to ensure as many as possible are safe. We give thanks for the previous restoration work, and again uphold churches in and around the affected areas. May they be equipped to minister in practical ways once again as the state faces more flooding.
 
 #Ashburton#
-We pray for our local community to respond to the gospel, not only through our Carols service last month but throughout this new year. We pray for more people to hear that God has provided a sure Hope, full redemption because of His steadfast love. We pray that we would welcome those who come, build relationships with them and they might know the love of God as we reach out to bless them.
+We pray for ourselves as we move into the new year so differently compared to just a couple of weeks ago. We pray for the local community to respond to the sure Hope of the gospel throughout this new year.
 
-We recognise that Jesus is building His church and has called us to join with Him in the task. We pray for us to grow towards spiritual maturity, using the means of discipleship, prayer and fellowship. We pray for those who are away, and especiually remember Barry & Suzanne on leave. Grant them spiritual rest and safe travels. We thank You for Mook and Talia and family returning from their time away also. 
+Even though Barry is no longer with us, we recognise that Jesus is still building His church and has called us to join with Him in this task. We may stumble at this setback but we trust that You will uphold us so that we do not fall completely. We pray that You would restore those among us who are unwell or struggling, so that we may not be shaken as we look to Jesus, our Lord and Saviour, the God of our salvation, Amen.
 
-We pray that You would restore those among us who are unwell or struggling in their circumstances, so that we may not be shaken as we look to Jesus, our Lord and Saviour, the God of our salvation,  Amen.
