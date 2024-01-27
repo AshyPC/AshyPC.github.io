@@ -2,45 +2,40 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, January 21st, 2024
+### Order of Service Sunday, January 28th, 2024
 
-**Call to Worship** (Psalm 23) / Opening prayer (Mook)
+**Call to Worship** (Ps 121:1-4) / Opening prayer (John A)
 
-**Presbytery Moderator:** John Huynh
-
-**Praise**: *Amazing Grace*
+**Praise:** *10,000 Reasons*
 
 **Announcements (John A)** 
-*- Funeral Announcement*
 *-*
-*- Mission giving this month is for the PresAid Christmas Appeal (video)*
+*-*
 *- Morning tea after the service*
 
-**Prayer of Lament (Jan F)**
 
-**Bible Reading:**  John 11:17-44 (John A)
+**Bible Reading:** John 3:22-36  (Rachel D)
 
-**Praise:** *My God Is All I Need*
+**Praise:** *Holy Holy Holy  (Offering)*
 
-**Prayer** for the church and the world (John A)
+**Prayer** for the church and the world (Jan)
 
-**Bible Reading:** Revelations 21:1-8 (Mook)
+**Bible Reading:** Matthew 5:1-12 (MarJo)
 
-**Praise:** *The Lord is my Salvation (Offering PresAID)*
+**Praise:** *Cornerstone [OFFERING]*
 
-**Sermon:** “GOD’S HAND IN OUR MOURNING” (Mook)
+**Sermon:** “BEATITUDES: I MUST DECREASE” (Mook)
 
-**Praise:** *He Will Hold Me Fast*
+**Praise:** *Yet Not I But Through Christ In Me*
 
 **Benediction** (Mook)
 
+
+
 Sermon Outline
-“GOD’S HAND IN OUR MOURNING”
+“BEATITUDES: I MUST DECREASE”(Matthew 5:5-6)
 Introduction
-
-1. He Cares
-2. We have certainty in Him
-3. It is a time to mourn
-4. Not as those who have no hope
-
+1. Those who are blessed
+2. Ultimate Contentment
+3. Beacon of Light
 Conclusion
