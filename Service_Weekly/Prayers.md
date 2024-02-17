@@ -2,30 +2,37 @@
 layout: prayers
 title: Prayers
 ---
-## Prayer of Thanksgiving for Christmas Day
+## Prayers for our World and the Church
+## including Prayer of Confession
 
-## 11th February 2024
+## 18th February 2024
 
-__Psalm 23:4, 8__ 
-    _4 Even though I walk through the valley of the shadow of death,_
-    _  I fear no evil, for You are with me;_
-    _  Your rod and Your staff, they comfort me._
-    _8 Surely goodness and mercy will follow me all the days of my life,_
-    _  And I will dwell in the house of the Lord forever._
+__Psalm 143:6-8__ 
+    _I stretch out my hands to You; My soul longs for You, as a parched land._
+    _Answer me quickly, O Lord, my spirit fails; Do not hide Your face from me,_
+    _Or I will become like those who go down to the pit._
+    _Let me hear Your lovingkindness in the morning; For I trust in You;_
+    _Teach me the way in which I should walk; For to You I lift up my soul._
 
-#Thanks to God#
-O Lord, we gather today, encouraged by the words of David. Whether we have walked this path before or not, we recognise that this valley is a shadow and we need fear no evil because of Your Presence with us. We take comfort from Your Presence; we trust in Your goodness and mercy, even when we pass through dark times.
+#Adoration#
+Heavenly Father we, Your children by adoption, dare to come before You only because of Your lovingkindness in the morning. From everlasting to everlasting, You alone are God Almighty, enthroned in the heavens, but also the God of all comfort Who is close by in our time of trouble.
 
-We thank You for Jesus Who is the Resurrection and the Life. We thank You for the sure hope we have because He died, rose again, ascended to heaven and is seated at Your right hand. We thank You for the promised Holy Spirit, Who is with us as the Comforter and Guide into all truth.
+#Confession
+We look back #upon our week and recognise the times when we have failed, when we have forgotten Your great grace, or failed to trust Your goodness, or wandered away from the way in which we should walk. We are ashamed of our thoughts, words and deeds and freely confess them to You now. But because You are all-loving, and graciously merciful, we do not go down to the pit, butinstead we lift up our souls to You.
 
-#The Wide World... and the Wider Church#
-Lord, we look at our world with sadness at the constant focus on bad news, of earthquakes and volcanic eruptions, of missing persons and Kings with cancer, of wars and rumours of wars.
+#Thanksgiving#
+We thank You that You have not abandoned us, but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-We pray for the safety of people in the area of the volcanic eruption, as we pray for the King undergoing treatment. We remember that in this sin-affected world, wars will fought, but we continue to pray for peace, especially the peace of Jerusalem.
+We thank You that You raised Him up on the third day, defeating death and sin, and we thank You that there will be a final end to sin when Jesus returns and institutes the new heaven and the new earth. We look forward to that sure hope which is guaranteed to us by the resurrection, and ministered to us by the Holy Spirit.
 
-Despite all the bad news we see and hear, we thank You for the Good News of salvation in Jesus, for Your Word which informs our minds and hearts, and for Your Church which has upheld the truth delivered once for all to the saints throughout history. We pray that You would continue to strengthen Your people daily as we witness to the Truth of Jesus, even in these times when the sober Truth is out of favour, while the dramatic and novel grab all the attention.
+#Supplication: The Wider World#
+In the wider world, we continue to pray for the peace of Jerusalem, for the nation and the people of Israel. We pray for less war in many places, including the Ukraine. We also pray for the persecuted church suffering around the world. We ask for comfort and courage as the people are subject to so much opposition, just for seeking to worship Jesus.
 
-#Ashburton#
-We pray for ourselves as we come to terms with the changes taking place here. We thank You for the appointment of our Interim Moderator, Rev Dr. Douglas Milne. We thank You that Jesus commanded us to remember His death and resurrection at the communion table, and we look forward to taking part in that later in this service.
+Here in Victoria, we pray for speedy restoration of power following this week’s storm, and for safety for those still without power. We pray too, for Queenslanders who have been flooded yet again. Protect them and the rescue workers during the recovery process.
 
-We thank You for the support of the Presbytery as we recognise that Jesus is still building His church and has called us to join with Him in this task. We pray that we would continue to work and witness to the Good News of Jesus. We thank You for the strength of the bonds of fellowship, and pray for our continued support and encouragement, one with another. We remember those among us who are unwell or struggling, and pray that You would restore them and sustain them, so that we may not be shaken as we look to Jesus, our Lord and Saviour, Amen.
+#... and the wider Church#
+We give thanks for Your people in churches where Your Word is faithfully preached. We pray also for those places where there is a drought of Your Word. We thank You for our College training men to preach, and pray You would call more men to take up this high calling.
+#Supplication: Ashburton#
+We pray for Rod as he preaches Your Word today, and we pray for our own understanding as we listen. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word, knowing the assurance we have in the finished work of the Cross.
+
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. In Jesus Name we pray, Amen.
