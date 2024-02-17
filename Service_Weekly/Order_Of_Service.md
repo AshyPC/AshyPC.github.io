@@ -2,7 +2,7 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, January 28th, 2024
+### Order of Service Sunday, February 18th, 2024
 
 **Call to Worship** Ps 47:5-8 / Opening prayer (John A)
 
