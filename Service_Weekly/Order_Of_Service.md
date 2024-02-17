@@ -4,29 +4,29 @@ title: Order of Service
 ---
 ### Order of Service Sunday, January 28th, 2024
 
-**Call to Worship** (Ps 122:1, 6-7) / Opening prayer (John A)
+**Call to Worship** Ps 47:5-8 / Opening prayer (John A)
 
-**Praise:** *Amazing Grace (My Chains Are Gone)*
+**Praise:** *Jesus Shall Reign (Global Hymn Sing)*
 
 **Announcements (John A)** 
-*• No communion service today*
-*• Presbytery has formally advised that Rev Douglas Milne has been appointed our Interim Moderator and he will join us next week to lead our Communion Service*
-*• Missions for February – our regular mission giving will support the Mathys family in PNG*
-*• BBQ Lunch 18th Feb after church on the lawn*
-*- Morning tea after the service*
+*• Special welcome to Rod Morris*
+*• Missions for February – our regular mission giving will go towards support for the Mathys family in PNG*
+*- a shorter Morning Tea and fellowship after the service, as we prepare for Lunch on the Lawn*
 
-**Bible Reading:** James 2:14-26 (Tim A)
+**Mission Spot:** (Mook) Mathys Family in PNG
 
-**Praise:** *And Can It Be*
+**Praise:** *Yet Not I But Through Christ In Me*
 
-**Prayer** for the church and the world (Mook)
+**Bible Reading:** Psalm 136 (MarJo)
 
-**Bible Reading:** Matthew 5:1-12 (Pam)
+**Prayer** for the church and the world (John A)
 
-**Praise:** *O The Mercy of God [OFFERING]*
+**Praise:** *It is well with my soul (OFFERING)*
 
-**Sermon:** “BEATITUDES: OUTFLOW” (Mook)
+**Bible Reading:** John 21 (Pam)
 
-**Praise:** *Search Me O God*
+**Sermon:** “ASSURANCE” (Rod Morris)
 
-**Benediction** (Mook)
+**Praise:** *Cornerstone*
+
+**Benediction** (Rod Morris)
