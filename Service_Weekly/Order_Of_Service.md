@@ -2,31 +2,31 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, February 18th, 2024
+### Order of Service Sunday, February 25th, 2024
 
-**Call to Worship** Ps 47:5-8 / Opening prayer (John A)
+**Call to Worship** Ps 125:1-2 / Opening prayer (John A)
 
-**Praise:** *Jesus Shall Reign (Global Hymn Sing)*
+**Praise:** *Before the Throne of God Above*
 
 **Announcements (John A)** 
-*• Special welcome to Rod Morris*
-*• Missions for February – our regular mission giving will go towards support for the Mathys family in PNG*
-*- a shorter Morning Tea and fellowship after the service, as we prepare for Lunch on the Lawn*
+*• Special welcome to John Huynh from Surrey Hills who will preach the Word today*
+*- Morning Tea and fellowship after the service*
+*- Formal declaration from the Presbytery*
 
-**Mission Spot:** (Mook) Mathys Family in PNG
+**Edict of Vacancy** John Huynh
 
-**Praise:** *Yet Not I But Through Christ In Me*
+**Bible Reading:** Luke 8:22-25 (John A)
 
-**Bible Reading:** Psalm 136 (MarJo)
+**Praise:** *O Lord, My Rock and My Redeemer*
 
-**Prayer** for the church and the world (John A)
+**Prayer** for the church and the world (Jan)
 
-**Praise:** *It is well with my soul (OFFERING)*
+**Bible Reading:** Psalm 4 (Rachel D)
 
-**Bible Reading:** John 21 (Pam)
+**Praise:** *Turn Your Eyes (OFFERING)*
 
-**Sermon:** “ASSURANCE” (Rod Morris)
+**Sermon:** “A GOOD NIGHT’S SLEEP” (John Huynh)
 
-**Praise:** *Cornerstone*
+**Praise:** *Rock of Ages*
 
-**Benediction** (Rod Morris)
+**Benediction**  (John Huynh)
