@@ -2,31 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, February 25th, 2024
+### Order of Service Sunday, March 3rd, 2024
 
-**Call to Worship** Ps 125:1-2 / Opening prayer (John A)
+**Call to Worship** Ps 133 / Opening prayer (John A)
 
-**Praise:** *Before the Throne of God Above*
+**Praise:** *King of Kings*
 
 **Announcements (John A)** 
-*• Special welcome to John Huynh from Surrey Hills who will preach the Word today*
+*• Special welcome to Oli Blyth from Surrey Hills who will preach the Word today and lead us in the communion service*
+*- Another special welcome to Judah Shane Lee, who was born on Thursday 28th. All went well and he arrived safely. Talia and Judah arrived home on Friday.*
 *- Morning Tea and fellowship after the service*
-*- Formal declaration from the Presbytery*
 
-**Edict of Vacancy** John Huynh
+**Bible Reading:** Luke 24:1-12  (Tim A)
 
-**Bible Reading:** Luke 8:22-25 (John A)
+**Praise:** *Every Step*
 
-**Praise:** *O Lord, My Rock and My Redeemer*
+**Prayer** for the church and the world (Mook)
 
-**Prayer** for the church and the world (Jan)
+**Bible Reading:** Luke 9:18-27 (Pam)
 
-**Bible Reading:** Psalm 4 (Rachel D)
+**Praise:** *Jerusalem (OFFERING)*
 
-**Praise:** *Turn Your Eyes (OFFERING)*
+**Sermon:** “THE EVENT YOU DON’T WANT TO MISS” (Oliver Blythe)
 
-**Sermon:** “A GOOD NIGHT’S SLEEP” (John Huynh)
+**Praise:** *Behold the Lamb*
 
-**Praise:** *Rock of Ages*
+**The Lord's Supper**
 
-**Benediction**  (John Huynh)
+**Praise:** *How Great Thou Art*
+
+**Benediction**  (Oli Blyth)
