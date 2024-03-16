@@ -9,9 +9,9 @@ title: Prayers
 
 __1 Peter 1:24-25__ 
     _“All people are like grass,_
-    _    and all their glory is like the flowers of the field;_
+    _and all their glory is like the flowers of the field;_
     _the grass withers and the flowers fall,_
-    _25     but the word of the Lord endures forever.”_
+    _but the word of the Lord endures forever.”_
 
 #Thanks to God#
 O Lord, we gather today, encouraged by the words of Isaiah, which Peter brings to our attention. We recognise that we are limited but You are infinite. We thank You that Your Word endures forever, because You are eternal. We thank You that we are born again of imperishable seed, and that You are making us anew, fully in the image of Jesus, with His righteousness, trusting in Your promise that You persevere with us despite our weaknesses.
