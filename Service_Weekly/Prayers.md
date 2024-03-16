@@ -5,34 +5,27 @@ title: Prayers
 ## Prayers for our World and the Church
 ## including Prayer of Confession
 
-## 18th February 2024
+## 17th March 2024
 
-__Psalm 143:6-8__ 
-    _I stretch out my hands to You; My soul longs for You, as a parched land._
-    _Answer me quickly, O Lord, my spirit fails; Do not hide Your face from me,_
-    _Or I will become like those who go down to the pit._
-    _Let me hear Your lovingkindness in the morning; For I trust in You;_
-    _Teach me the way in which I should walk; For to You I lift up my soul._
+__1 Peter 1:24-25__ 
+    _“All people are like grass,_
+    _    and all their glory is like the flowers of the field;_
+    _the grass withers and the flowers fall,_
+    _25     but the word of the Lord endures forever.”_
 
-#Adoration#
-Heavenly Father we, Your children by adoption, dare to come before You only because of Your lovingkindness in the morning. From everlasting to everlasting, You alone are God Almighty, enthroned in the heavens, but also the God of all comfort Who is close by in our time of trouble.
+#Thanks to God#
+O Lord, we gather today, encouraged by the words of Isaiah, which Peter brings to our attention. We recognise that we are limited but You are infinite. We thank You that Your Word endures forever, because You are eternal. We thank You that we are born again of imperishable seed, and that You are making us anew, fully in the image of Jesus, with His righteousness, trusting in Your promise that You persevere with us despite our weaknesses.
 
-#Confession
-We look back #upon our week and recognise the times when we have failed, when we have forgotten Your great grace, or failed to trust Your goodness, or wandered away from the way in which we should walk. We are ashamed of our thoughts, words and deeds and freely confess them to You now. But because You are all-loving, and graciously merciful, we do not go down to the pit, butinstead we lift up our souls to You.
+We thank You for Jesus Who lives and reigns in heaven with You, and Who intercedes for us before Your throne of grace.
 
-#Thanksgiving#
-We thank You that You have not abandoned us, but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+We thank You for the promised Holy Spirit, Who remains with us as the Eternal Comforter and Guide into all truth.
 
-We thank You that You raised Him up on the third day, defeating death and sin, and we thank You that there will be a final end to sin when Jesus returns and institutes the new heaven and the new earth. We look forward to that sure hope which is guaranteed to us by the resurrection, and ministered to us by the Holy Spirit.
+#The Wide World... and the Wider Church#
+Lord, we look at our broken world with people looking in all the wrong places for what they need, which is forgiveness from You, granted by Your grace through the finished work of Jesus on the Cross. We thank You, as we approach Easter time, for the fact that Jesus died to pay t he penalty for our sins and rose to grant us new life. We thank You that Life is greater than Death, and Your love is greater than our sin.
 
-#Supplication: The Wider World#
-In the wider world, we continue to pray for the peace of Jerusalem, for the nation and the people of Israel. We pray for less war in many places, including the Ukraine. We also pray for the persecuted church suffering around the world. We ask for comfort and courage as the people are subject to so much opposition, just for seeking to worship Jesus.
+We thank You for Your people who go where we can’t reach – and we pray today especially for Samuel and Dhruti Christian working in tense situations in India. We pray for the government to ensure freedom of religion, for believers to be protected from persecution and to protect the Christians as they work. Grant them wisdom as they plan and direct their work. 
 
-Here in Victoria, we pray for speedy restoration of power following this week’s storm, and for safety for those still without power. We pray too, for Queenslanders who have been flooded yet again. Protect them and the rescue workers during the recovery process.
+We thank You for the Good News of salvation in Jesus, for Your enduring Word which informs our minds and hearts, and for Your Church which has upheld the truth delivered once for all to the saints throughout history.
 
-#... and the wider Church#
-We give thanks for Your people in churches where Your Word is faithfully preached. We pray also for those places where there is a drought of Your Word. We thank You for our College training men to preach, and pray You would call more men to take up this high calling.
-#Supplication: Ashburton#
-We pray for Rod as he preaches Your Word today, and we pray for our own understanding as we listen. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word, knowing the assurance we have in the finished work of the Cross.
-
-Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. In Jesus Name we pray, Amen.
+#Ashburton#
+We pray for ourselves as we continue to deal with our changed situation here. We thank You for the strength of the bonds of fellowship, and pray for our continued support and encouragement, one with another. We remember those among us who are unwell or struggling, and pray that You would restore them and sustain them, so that we may not be shaken as we look to Jesus, our Lord and Saviour, Amen.

@@ -2,33 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, March 3rd, 2024
+### Order of Service Sunday, March 17th, 2024
 
-**Call to Worship** Ps 133 / Opening prayer (John A)
-
-**Praise:** *King of Kings*
+**Call to Worship** Joshua 1:7-9 / Opening prayer (John A)
 
 **Announcements (John A)** 
-*• Special welcome to Oli Blyth from Surrey Hills who will preach the Word today and lead us in the communion service*
-*- Another special welcome to Judah Shane Lee, who was born on Thursday 28th. All went well and he arrived safely. Talia and Judah arrived home on Friday.*
-*- Morning Tea and fellowship after the service*
+*• Morning Tea and fellowship after the service*
+*• Working Bee report*
+*• Church lunch next week, catered by the young people*
 
-**Bible Reading:** Luke 24:1-12  (Tim A)
+**Praise:** *In Christ Alone*
 
-**Praise:** *Every Step*
+**Mission Spot --** *Samuel and Dhruti Christian*
 
-**Prayer** for the church and the world (Mook)
+**Bible Reading:** Romans 5:1-11 (Pam)
 
-**Bible Reading:** Luke 9:18-27 (Pam)
+**Praise:** *Great is Thy Faithfulness*
 
-**Praise:** *Jerusalem (OFFERING)*
+**Sunday School** (Mook L)
 
-**Sermon:** “THE EVENT YOU DON’T WANT TO MISS” (Oliver Blythe)
+**Prayer** for the church and the world (John A)
 
-**Praise:** *Behold the Lamb*
+**Bible Reading:** 2 Kings 14 (Seng T)
 
-**The Lord's Supper**
+**Praise:** *God Moves in a mysterious way (OFFERING)*
 
-**Praise:** *How Great Thou Art*
+**Sermon:** “BEING GOOD LEARNERS” (Mook L)
 
-**Benediction**  (Oli Blyth)
+**Praise:** *All I have is Christ*
+
+**Benediction**  (Mook L)
