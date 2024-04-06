@@ -5,27 +5,27 @@ title: Prayers
 ## Prayers for our World and the Church
 ## including Prayer of Confession
 
-## 17th March 2024
+## 7th April 2024
 
-__1 Peter 1:24-25__ 
-    _“All people are like grass,_
-    _and all their glory is like the flowers of the field;_
-    _the grass withers and the flowers fall,_
-    _but the word of the Lord endures forever.”_
+__Psalm 97:11-12__ 
+    _“Light shines on the righteous and joy on the upright in heart._
+    _Rejoice in the Lord, you who are righteous, and praise his holy name._
 
 #Thanks to God#
-O Lord, we gather today, encouraged by the words of Isaiah, which Peter brings to our attention. We recognise that we are limited but You are infinite. We thank You that Your Word endures forever, because You are eternal. We thank You that we are born again of imperishable seed, and that You are making us anew, fully in the image of Jesus, with His righteousness, trusting in Your promise that You persevere with us despite our weaknesses.
+O Lord, we come before You today, lifted up by the words of the Psalmist, for You are Light and in You is no darkness. We thank You that Jesus is the Light of the world, Who is risen to bestow upon us His righteousness in place of our filthy rags of sinfulness. So we rejoice, trusting in Your promise to complete that good work in us, which began when You saved us.
 
-We thank You for Jesus Who lives and reigns in heaven with You, and Who intercedes for us before Your throne of grace.
-
-We thank You for the promised Holy Spirit, Who remains with us as the Eternal Comforter and Guide into all truth.
+We thank You for Jesus Who lives and reigns in heaven with You, and Who intercedes for us before Your throne of grace. We thank You that the Holy Spirit has come to be our comforter, our guide, and our teacher. We thank You for Your Word which is a sure foundation, the place where we find that assurance of the eternal hope we have because Jesus won the victory, and defeated the grave.
 
 #The Wide World... and the Wider Church#
-Lord, we look at our broken world with people looking in all the wrong places for what they need, which is forgiveness from You, granted by Your grace through the finished work of Jesus on the Cross. We thank You, as we approach Easter time, for the fact that Jesus died to pay t he penalty for our sins and rose to grant us new life. We thank You that Life is greater than Death, and Your love is greater than our sin.
+Lord, we look at our broken world where people ask for a sign, seek salvation in all the wrong places, not knowing that You have already provided in full via the finished work of Jesus on the Cross.
 
-We thank You for Your people who go where we can’t reach – and we pray today especially for Samuel and Dhruti Christian working in tense situations in India. We pray for the government to ensure freedom of religion, for believers to be protected from persecution and to protect the Christians as they work. Grant them wisdom as they plan and direct their work. 
+We again pray for the peace of Jerusalem, and for the safety of the nation of Israel as it defends itself in the midst of irrational hostility which has broken out around the world.
 
-We thank You for the Good News of salvation in Jesus, for Your enduring Word which informs our minds and hearts, and for Your Church which has upheld the truth delivered once for all to the saints throughout history.
+We pray for our nation, our State and our communities to turn back to You. We pray for our leaders, our governing authorities, to apply Your Word rather than mere human wisdom to the perplexing issues they confront, so that they govern wisely and well for the good progress of this wide brown land we call our home.
 
-#Ashburton#
-We pray for ourselves as we continue to deal with our changed situation here. We thank You for the strength of the bonds of fellowship, and pray for our continued support and encouragement, one with another. We remember those among us who are unwell or struggling, and pray that You would restore them and sustain them, so that we may not be shaken as we look to Jesus, our Lord and Saviour, Amen.
+We pray for our remote and indigenous communities, and we yearn for true reconciliation through the work of the Gospel, and a move of the Holy Spirit. We pray for unity in the shadow of the Cross and the light of the empty tomb. We thank You for those who are already saved according to Your Word, sharing the Good News, and holding to the true hope as they look for Jesus return, just as we are here.
+
+We thank You for Your people who go where we can’t reach – and we pray again for the work of Samaritan’s Purse. We pray for the shoeboxes to carry Your love to the children who receive them, and the message of salvation they receive through Operation Christmas Child.
+
+#Ashburton (Communion Day)#
+We pray for ourselves as we seek to reach our local community here. We thank You for the strength of the bonds of fellowship, and pray for our continued witness to those around us, where we live, study, and work. We thank You that today we celebrate the Lord’s Supper as a remembrance of Your great grace to us, so that we may reflect the light of Jesus, our Lord and Saviour, Amen.

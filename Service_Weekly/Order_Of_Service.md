@@ -4,31 +4,33 @@ title: Order of Service
 ---
 ### Order of Service Sunday, March 17th, 2024
 
-**Call to Worship** Joshua 1:7-9 / Opening prayer (John A)
+**Call to Worship** (2 Corinthians 6:16-7:1) / Opening prayer (Douglas M)
 
 **Announcements (John A)** 
 *• Morning Tea and fellowship after the service*
-*• Working Bee report*
-*• Church lunch next week, catered by the young people*
+*• *
+*• *
 
-**Praise:** *In Christ Alone*
+**Praise:** *Exalt the Lord, His praise proclaim (Rej! 13)*
 
-**Mission Spot --** *Samuel and Dhruti Christian*
+**Bible Reading:** Leviticus 16:1-28 (Rachel D)
 
-**Bible Reading:** Romans 5:1-11 (Pam)
+**Praise:** *God Be Merciful to Me (Rej! 396)*
 
-**Praise:** *Great is Thy Faithfulness*
-
-**Sunday School** (Mook L)
+**Mission Matters –** *Operation Christmas Child (Gaye McK)*
 
 **Prayer** for the church and the world (John A)
 
-**Bible Reading:** 2 Kings 14 (Seng T)
+**Praise:** *O Church Arise (offering)*
 
-**Praise:** *God Moves in a mysterious way (OFFERING)*
+**Bible Reading:** 1 John 2:1-2 (Douglas M)
 
-**Sermon:** “BEING GOOD LEARNERS” (Mook L)
+**Sermon:** “THAT YOU MAY NOT SIN… BUT IF ANYONE DOES SIN” (Douglas M)
 
-**Praise:** *All I have is Christ*
+**Praise:** *Come, risen Lord (Rej! 355)*
 
-**Benediction**  (Mook L)
+**The Lord’s Supper**
+
+**Praise:** *This Life I Live*
+
+**Benediction**  (Douglas M)
