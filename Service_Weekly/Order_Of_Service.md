@@ -2,35 +2,31 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, March 17th, 2024
+### Order of Service Sunday, April 14th, 2024
 
-**Call to Worship** (2 Corinthians 6:16-7:1) / Opening prayer (Douglas M)
+**Call to Worship** (Ps 132:6-9) / Opening prayer (John A)
+
+**Praise:** *In Christ Alone*
 
 **Announcements (John A)** 
-*• Morning Tea and fellowship after the service*
-*• *
-*• *
+    *• Today we welcome Jake Martin a student at the PTC to the platform*
+    *• Morning Tea and fellowship after the service*
+    *• Following last week’s Mission Matters on OCC, we have the video which Gaye mentioned*
+      
+**VIDEO presentation** Operation Christmas Child
 
-**Praise:** *Exalt the Lord, His praise proclaim (Rej! 13)*
+**Bible Reading:** Isaiah 53:1-12 (John A)
 
-**Bible Reading:** Leviticus 16:1-28 (Rachel D)
+**Praise:** *Man of sorrows, What a Name! (Rej! 206)*
 
-**Praise:** *God Be Merciful to Me (Rej! 396)*
+**Prayer** for the church and the world (Jan F)
 
-**Mission Matters –** *Operation Christmas Child (Gaye McK)*
+**Bible Reading:** 1 Peter 2:11-25 (Callum)
 
-**Prayer** for the church and the world (John A)
+**Praise:** *Speak, O Lord (offering)*
 
-**Praise:** *O Church Arise (offering)*
+**Sermon:** ““OUR HIGH CALLING” (Jake Martin)
 
-**Bible Reading:** 1 John 2:1-2 (Douglas M)
+**Praise:** *May the mind of Christ my Saviour (Rej! 491, alternate tune)*
 
-**Sermon:** “THAT YOU MAY NOT SIN… BUT IF ANYONE DOES SIN” (Douglas M)
-
-**Praise:** *Come, risen Lord (Rej! 355)*
-
-**The Lord’s Supper**
-
-**Praise:** *This Life I Live*
-
-**Benediction**  (Douglas M)
+**Benediction**  (Jake Martin)
