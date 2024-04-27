@@ -2,31 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, April 14th, 2024
+### Order of Service Sunday, April 28th, 2024
 
-**Call to Worship** (Ps 132:6-9) / Opening prayer (John A)
-
-**Praise:** *In Christ Alone*
+**Call to Worship** Ps 138:4-8 Opening prayer (John A)
 
 **Announcements (John A)** 
-    *• Today we welcome Jake Martin a student at the PTC to the platform*
+    *•* 
+    *•*
     *• Morning Tea and fellowship after the service*
-    *• Following last week’s Mission Matters on OCC, we have the video which Gaye mentioned*
+
+**Praise:** *King of Kings*
       
-**VIDEO presentation** Operation Christmas Child
+**Bible Reading:** Philippians 2:1-11  (Tim A)
 
-**Bible Reading:** Isaiah 53:1-12 (John A)
+**Sunday School:** *(Mook L)*
 
-**Praise:** *Man of sorrows, What a Name! (Rej! 206)*
+**Praise:** *My Worth Is Not In What I Own*
 
-**Prayer** for the church and the world (Jan F)
+**Mission Matters:** *Mt Magnet (John & MarJo)*
 
-**Bible Reading:** 1 Peter 2:11-25 (Callum)
+**Prayer** for the church and the world (John A)
 
-**Praise:** *Speak, O Lord (offering)*
+**Praise:** *I Trust In You, My Shield and My Defender (offering)*
 
-**Sermon:** ““OUR HIGH CALLING” (Jake Martin)
+**Bible Reading:** 2 Kings 15:32-16:20 (MA)
 
-**Praise:** *May the mind of Christ my Saviour (Rej! 491, alternate tune)*
+**Sermon:** “BEING SPIRITUALLY VITAL” (Mook L)
 
-**Benediction**  (Jake Martin)
+**Praise:** *Cornerstone*
+
+**Benediction**  (Mook L)
