@@ -2,33 +2,37 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, April 28th, 2024
+### Order of Service Sunday, May 12th, 2024
 
-**Call to Worship** Ps 138:4-8 Opening prayer (John A)
+**Call to Worship** Ps 118:27-29  / Opening prayer (John A)
+
+**Praise:** *Christ our hope in life and death*
 
 **Announcements (John A)** 
-    *•* 
-    *•*
+    *• 26 May, Sunday Evening Service @ 5pm*
+    *• 2 June, Sunday Mihalyi’s Visit & Church Lunch*
+    *• 2-4 August, Fri-Sun Church Camp*
+    *• Community groups study books*
     *• Morning Tea and fellowship after the service*
-
-**Praise:** *King of Kings*
       
-**Bible Reading:** Philippians 2:1-11  (Tim A)
+**Bible Reading:** 2 Kings 17:1-23 (John A)
 
 **Sunday School:** *(Mook L)*
 
-**Praise:** *My Worth Is Not In What I Own*
+**Praise:** *Only a holy God* 	New Song - Music team will introduce it with verse 1 & chorus
 
-**Mission Matters:** *Mt Magnet (John & MarJo)*
+**Mission Matters:** *Barnabas Aid (Gaye M)*
 
-**Prayer** for the church and the world (John A)
+**Prayer** for the church and the world (Jan F)
 
-**Praise:** *I Trust In You, My Shield and My Defender (offering)*
+**Bible Reading:** 2 Kings 17:24-41 (Callum H)
 
-**Bible Reading:** 2 Kings 15:32-16:20 (MA)
+**Praise:** *Come Thou Fount (OFFERING)*
 
-**Sermon:** “BEING SPIRITUALLY VITAL” (Mook L)
+**Sermon:** “WHO IS OUR GOD?” (Jake Martin)
 
-**Praise:** *Cornerstone*
+**Praise:** *I Set my Hope*
 
-**Benediction**  (Mook L)
+**Benediction**  (Jake Martin)
+
+
