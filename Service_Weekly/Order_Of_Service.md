@@ -2,37 +2,36 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, May 12th, 2024
+### Order of Service Sunday, May 19th, 2024
 
-**Call to Worship** Ps 118:27-29  / Opening prayer (John A)
+**Call to Worship** 1 Chron 16:8-12)  / Opening prayer (John A)
 
-**Praise:** *Christ our hope in life and death*
+**Praise:** *By Faith*
+
+**Bible Reading:** 2 Corinthians 12:1-10 (MarJo A)
+
+**Mission Matters:** (Gaye M)
+
+**Sunday School:** (Mook L)
+
+**Praise:* *Every Step (I can sing with my whole heart)*
 
 **Announcements (John A)** 
-    *• 26 May, Sunday Evening Service @ 5pm*
-    *• 2 June, Sunday Mihalyi’s Visit & Church Lunch*
-    *• 2-4 August, Fri-Sun Church Camp*
-    *• Community groups study books*
-    *• Morning Tea and fellowship after the service*
-      
-**Bible Reading:** 2 Kings 17:1-23 (John A)
-
-**Sunday School:** *(Mook L)*
-
-**Praise:** *Only a holy God* 	New Song - Music team will introduce it with verse 1 & chorus
-
-**Mission Matters:** *Barnabas Aid (Gaye M)*
+    • Lunch with Mihalyi’s
+    • Church camp
+    • newcomers lunch
+    • evening service 26th (next week)
+    • Morning Tea and fellowship after the service
 
 **Prayer** for the church and the world (Jan F)
 
-**Bible Reading:** 2 Kings 17:24-41 (Callum H)
+**Bible Reading:** 2 Kings 18 (Pam W)
 
-**Praise:** *Come Thou Fount (OFFERING)*
+**Praise:** *In Christ Alone (OFFERING)*
 
-**Sermon:** “WHO IS OUR GOD?” (Jake Martin)
+**Sermon:** “FACING THE GIANT IN FRONT OF US” (ML)
 
-**Praise:** *I Set my Hope*
+**Praise:** *He Will Hold Me Fast*
 
-**Benediction**  (Jake Martin)
-
+**Benediction**  (Mook)
 
