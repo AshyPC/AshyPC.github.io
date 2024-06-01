@@ -2,36 +2,38 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, May 19th, 2024
+### Order of Service Sunday, June 2nd, 2024
 
-**Call to Worship** 1 Chron 16:8-12)  / Opening prayer (John A)
+**Call to Worship** (Psalm 122:1-9) / Opening prayer (Douglas M)
 
-**Praise:** *By Faith*
+**Praise:** *How Deep The Father’s Love*
 
-**Bible Reading:** 2 Corinthians 12:1-10 (MarJo A)
-
-**Mission Matters:** (Gaye M)
+**Bible Reading:** 1 Peter 2:1-12  (Pam W)
 
 **Sunday School:** (Mook L)
 
-**Praise:* *Every Step (I can sing with my whole heart)*
+**Praise:** *My Heart Is Filled With Thankfulness*
 
 **Announcements (John A)** 
-    • Lunch with Mihalyi’s
+    • Lunch today with Mihalyi’s (WELCOME!)
     • Church camp
     • newcomers lunch
-    • evening service 26th (next week)
-    • Morning Tea and fellowship after the service
+    • newcomers service
+    • Board of Management nominations result
 
-**Prayer** for the church and the world (Jan F)
+**Prayer** for the church and the world (Mook L)
 
-**Bible Reading:** 2 Kings 18 (Pam W)
+**Praise:** *Break Now The Bread of Life (Rej! 280) (OFFERING)*
 
-**Praise:** *In Christ Alone (OFFERING)*
+**Bible Reading:** 2 Timothy 3:10-16  (MarJo A)
 
-**Sermon:** “FACING THE GIANT IN FRONT OF US” (ML)
+**Sermon:** “LET US GO ON TO MATURITY” (DM)
 
-**Praise:** *He Will Hold Me Fast*
+**Praise:** *Behold the Lamb (v1-3)*
 
-**Benediction**  (Mook)
+**The Lord’s Supper**
+
+**Praise:** *Behold the Lamb (v4)*
+
+**Benediction**  (DM)
 
