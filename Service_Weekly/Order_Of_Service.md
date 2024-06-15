@@ -2,7 +2,7 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 9th, 2024
+### Order of Service Sunday, 16th, 2024
 
 **Call to Worship** (Psalm 113) from Lectern Bible / Opening prayer (John A)
 
