@@ -4,34 +4,36 @@ title: Order of Service
 ---
 ### Order of Service Sunday, 9th, 2024
 
-**Call to Worship** (1 Chronicles 5:22) / Opening prayer (John A)
+**Call to Worship** (Psalm 113) from Lectern Bible / Opening prayer (John A)
 
-**Praise:** *Before the Throne of God Above*
+**Praise:** *Jesus Shall Reign*
 
-**Bible Reading:** Psalm 11  (Callum H)
+**Bible Reading:** Psalm 46  (Tim A)
 
 **Sunday School:** (Mook L)
 
-**Praise:** *Hallelujah for the Cross*
+**Praise:** *A Mighty Fortress*
 
 **Announcements (John A)** 
     • Community Groups – Study books available @ $15 in the foyer
-    • Working Bee next weekend - 15th June
+    • Working Bee yesterday
     • Church Camp – registration forms soon
     • Equip Women 24’s Hope for the Weary conference. See the newsletter
     • Morning Tea and fellowship after the service
-    • PCV Living as if Truth Matters 2-day forum 12-13th July
-    • Church Newcomers’ lunch – Mook to speak
+    • Board of Management nominations confirmed by Session
+        ◦ Gaye McKenzie
+        ◦ Nathan Oakes
+        ◦ Russell Edwards  (prayer)
 
-**Prayer** for the church and the world (John A)
+**Prayer** for the church and the world (Jan F)
 
-**Praise:** *In Christ Alone (OFFERING)*
+**Bible Reading:** 2 Kings 19 (Callum H)
 
-**Bible Reading:** 1 John 1:5-2:2 (Rachel D)
+**Praise:** *A Christian’s Daily Prayer (OFFERING)*
 
-**Sermon:** “WRATH AND LOVE” (Jordan O’Hara)
+**Sermon:** “PRAYING IN DESPERATE TIMES” (Mook L)
 
-**Praise:** *When I Survey The Wondrous Cross*
+**Praise:** *Your Will Be Done*
 
-**Benediction**  (Jordan O'Hara)
+**Benediction**  (Mook L)
 
