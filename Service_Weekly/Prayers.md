@@ -3,27 +3,43 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## 9th June 2024
+## including Prayer of Confession
+## 23rd June 2024
 
-__1 John 5:1-5__ 
-    _Everyone who believes that Jesus is the Christ is born of God, and everyone who loves the father loves his child as well._
-    _This is how we know that we love the children of God: by loving God and carrying out his commands._
-    _In fact, this is love for God: to keep his commands. And his commands are not burdensome,_
-    _for everyone born of God overcomes the world. This is the victory that has overcome the world, even our faith._
-    _Who is it that overcomes the world? Only the one who believes that Jesus is the Son of God._
+__Ps 61:1-2__ 
+    _Hear my cry, O God, listen to my prayer;_
+    _from the end of the earth I call to you_
+    _When my heart is overwhelmed, lead me to the rock that is higher than I_
 
-__Thanks to God__
-O Lord, we give You thanks today, taking to heart the words of John, as we seek to build our lives on the foundation of faith in Jesus, the Son of God. John wrote to a small body of believers facing a huge empire of people hostile to the strange idea of God as Man dying and rising again. Today Your church still faces a world hostile to the Truth, and we find ourselves again in the minority, on the defensive. But we thank You for this reminder that Jesus has already overcome the world, and the devil, and death itself, so that our faith can be strong despite all we see around us.
+We come now to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
 
-__The Wide World... and the Wider Church__
-We pray for this world where we see forces at work creating division instead of working for peace. We thank You for the work of Lazlo & Eva Mihalyi seeking to minister in churches which give aid to the homeless and the refugees from the fighting in Eastern Europe. We thank You for Lazlo’s successful eye operation, and we pray for his continued recovery and ongoing health, so that they may return to their work with churches and ministers, so that the preaching of the gospel can be fully restored.
+__Adoration__
+God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
 
-We again pray for our nation, our State and our communities to turn back to You. We pray for our leaders, our governing authorities to work for the good of all rather than for factions and special interests.
+__Confession__
+But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have sullied the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
 
-__Ashburton__
-We pray for ourselves as we seek to reach our local community here. We thank You for the continuing work of Revitalization, for the unity we have in our vision to see Jesus lifted up, both here and elsewhere. We pray for opportunities to witness to Your great love, and Your desire that more and more would honour Him as their Lord and Saviour. We have plenty of room for new people to come, to learn of the forgiveness of their sins at the Cross, and join us in worship.
+__Thanksgiving__
+Yet, we thank You that You have not abandoned us to our condition but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-Help us to welcome all who come, that these seats may be filled, that we can grow in faith as well as numbers so that we can send out strong believers who will carry Your Word to others in need of Your saving grace.
+We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
 
-We pray for those among us in need of Your healing touch, thinking especially of John McKenzie with his long course of treatment and Marg Sanders. We thank You for the strength of the bonds of fellowship, and pray for our continued witness to those around us, both as a congregation and one by one where we live, study, and work. In the Name of Jesus, our Lord and Saviour, Amen.
+__Supplication: The Wider World__
+In the wider world, we continue to pray for a world which has lost the understanding of justice and mercy. We see hatred, but we pray for the peace of Jerusalem. We hear of disasters or famine, but we pray for agencies like Barnabas Aid bringing relief – food, clothing and shelter. We see that some people are treated as less than human, but we pray for them to be respected as people made in the image of the God Who loves them and wants them to be saved.
 
+__... and the wider Church__
+We can be overwhelmed by the things we see and hear – of war, oppression, refugees, of Your people persecuted in Myanmar, Burkino Faso, Lebanon, and many other places. We pray for courage in the face of opposition, perseverance as they seek safety.
+
+__Supplication: Ashburton__
+Here in Ashburton we pray for Suzanne and the Oakes family, that they continue to know God’s loving presence, leading and strength as they grieve and adjust to life. We pray for ourselves to know Your goodness as we come to terms with the loss of Barry. Strengthen us to put one foot in front of the other as we continue with our daily routines. Remind us of the solid foundation we have in the Rock Who is Christ, still with us.
+
+
+We pray also for John and Gaye as John continues his weekly treatment program.  We thank You for the medical facilities we enjoy here, and for John’s progress in battling this cancer.
+
+We pray for Callum, Steph and Levi. We thank You for Levi’s progress, and ask Your wisdom for the medical team as they seek to provide him with whatever assistance is available to encourage his development.
+
+We thank You for the new Board members, and pray for both the Board and the Session as they work for the congregation under the leadership of Jesus the Great Shepherd. We pray for Douglas Milne and the elders to have Your wisdom as we go through these difficult days.
+
+May we individually take responsibility for our own spiritual growth so that we are transformed by the renewing of our minds. As we take Your living Word deep into our hearts, we pray that You would change us so that our lives are more and more in conformity to that Word. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community groups.
+
+Finally, we pray for ourselves in the service of the Kingdom. Help us, Lord, to look outward, beyond our own four walls, to the needs of others in this community. We thank You that we are a part of the work of spreading the Good News. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. In Jesus Name we pray, Amen.
