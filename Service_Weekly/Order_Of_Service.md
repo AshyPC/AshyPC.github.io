@@ -2,7 +2,7 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 23rd, 2024
+### Order of Service Sunday, 23rd June, 2024
 
 **Call to Worship** (Psalm 136:1-9)) / Opening prayer (John A)
 
