@@ -2,36 +2,34 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 23rd June, 2024
+### Order of Service Communion Sunday, 7th July, 2024
 
-**Call to Worship** (Psalm 136:1-9)) / Opening prayer (John A)
+**Call to Worship** (1 Chronicles 16:23-25) / Opening prayer (John A)
 
-**Praise:** *By Faith*
+**Praise:** *Amazing Grace (My Chains Are Gone)*
 
-**Bible Reading:** Ephesians 2:1-10  (John A)
-
-**Sunday School:** (Mook L)
-
-**Praise:** *Great is Thy Faithfulness*
-
-**Announcements (John A + Mook L)** 
+**Announcements (John A)** 
+    • We welcome Grant Lawry and his wife Ann
     • Church Camp
-    • Evening Service 30th June 5pm
-    • Equip Women 24’s *Hope for the Weary* conference. Registrations will remain open, so book now or talk to Suzanne and Pam
     • Morning Tea and fellowship after the service
-    • Board members - a short meeting/discussion during morning tea
+    • 
 
-**Prayer** for the church and the world (John A)
+**Bible Reading:** Titus 1:1-4, 2:1-3:2  (Callum H)
 
-**Bible Reading:** 2 Kings 20 (Rachel D)
+**Praise:** *Come Thou Fount*
 
-**Praise:** *Yet Not I But Through Christ In Me (OFFERING)*
+**Prayer** for the church and the world (Mook)
 
-**Praise:** *All I Have Is Christ*
+**Bible Reading:** Colossians 3:1-4 (Rachel D)
 
-**Sermon:** “IN SICKNESS AND HEALTH: AIMING FOR SPIRITUAL CONSISTENCY” (Mook L)
+**Praise:** *Only A Holy God (OFFERING)*
 
-**Praise:** *Amazing Grace*
+**Sermon:** “POWER TO LIVE THE CHRISTIAN LIFE” (Grant L)
 
-**Benediction**  (Mook L)
+**Praise:** *I Hear Your Welcome Voice (Rej 389)*
 
+**The Lord’s Supper**
+
+**Praise:** *Turn Your Eyes*
+
+**Benediction**  (Grant L)
