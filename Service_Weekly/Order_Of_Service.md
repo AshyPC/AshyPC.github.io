@@ -2,34 +2,33 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Communion Sunday, 7th July, 2024
+### Order of Service Sunday, 14th July, 2024
 
-**Call to Worship** (1 Chronicles 16:23-25) / Opening prayer (John A)
+**Call to Worship** (Psalm 126) / Opening prayer (Douglas M)
 
-**Praise:** *Amazing Grace (My Chains Are Gone)*
+**Praise:** *Reformation Hymn*
+
+**Bible Reading:** Luke 12:13-34  (Pam W)
+
+**Mission Spot:** (Gaye M)
+
+**Praise:** *How Deep The Father’s Love For Us*
 
 **Announcements (John A)** 
-    • We welcome Grant Lawry and his wife Ann
     • Church Camp
+    • Newcomers Lunch next week
     • Morning Tea and fellowship after the service
-    • 
+    
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** Titus 1:1-4, 2:1-3:2  (Callum H)
+**Bible Reading:** Revelation 18:1-14 (Callum H)
 
-**Praise:** *Come Thou Fount*
+**Praise:** *How Sure The Scriptures Are (Rej! 279) (OFFERING)*
 
-**Prayer** for the church and the world (Mook)
+**Bible Reading:** 1 John 2:15-17 (DM)
 
-**Bible Reading:** Colossians 3:1-4 (Rachel D)
+**Sermon:** “DO NOT LOVE THE WORLD” (DM)
 
-**Praise:** *Only A Holy God (OFFERING)*
+**Praise:** *Your Will Be Done*
 
-**Sermon:** “POWER TO LIVE THE CHRISTIAN LIFE” (Grant L)
-
-**Praise:** *I Hear Your Welcome Voice (Rej 389)*
-
-**The Lord’s Supper**
-
-**Praise:** *Turn Your Eyes*
-
-**Benediction**  (Grant L)
+**Benediction**  (DM)
