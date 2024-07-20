@@ -4,25 +4,24 @@ title: Sermon Notes
 ---
 ### Ashburton Presbyterian Church 
 
-### Mook Lee
+### Jason Wang
 
-### Sunday, May 19th, 2024
+### Sunday, July 21st, 2024
 
 ### Sermon outline:
 
 
 
-* "FACING THE GIANT IN FRONT OF US”   (2 Kings 18)
+* "DO NOT LOVE THE WORLD”   (John 16:16-24)
 
 * Introduction
+To have immovable joy, you need to:
 
-1\. Another David and Goliath
+1\. Believe that Jesus' resurrection is true
 
-2\. Not all troubles are removed
-
-3\. We can hobble and be stumped
-
-4\. Let God be God
+2\. Know that your salvation is sure
+    
+3\. Commune with the Father in Spirit Through Jesus
 
 Conclusion
- 
+

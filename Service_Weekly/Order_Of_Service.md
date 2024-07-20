@@ -2,33 +2,49 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 14th July, 2024
+### Order of Service Sunday, 21st July, 2024
 
-**Call to Worship** (Psalm 126) / Opening prayer (Douglas M)
+**Call to Worship** (Psalm 33:1) / Opening prayer (John A)
 
-**Praise:** *Reformation Hymn*
+**Praise:** *The Lord Is My Salvation*
 
-**Bible Reading:** Luke 12:13-34  (Pam W)
+**Bible Reading:** Isaiah 29:17-24  (Tim Angelico)
 
-**Mission Spot:** (Gaye M)
+**Sunday School:** (Mook Lee)
 
-**Praise:** *How Deep The Father’s Love For Us*
+**Praise:** *This I Believe*
 
 **Announcements (John A)** 
-    • Church Camp
-    • Newcomers Lunch next week
+    • Welcome to Jason Wang
+    • Evening Prayer service tonight 5pm
+    • Church Camp coming up
     • Morning Tea and fellowship after the service
     
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** Revelation 18:1-14 (Callum H)
+**Bible Reading:** John 16:16-24 (Rachel Davison)
 
-**Praise:** *How Sure The Scriptures Are (Rej! 279) (OFFERING)*
+**Praise:** *Come Behold The Wondrous Mystery*
 
-**Bible Reading:** 1 John 2:15-17 (DM)
+**Sermon:** “HOW TO HAVE IMMOVABLE JOY” (Jason Wang)
 
-**Sermon:** “DO NOT LOVE THE WORLD” (DM)
+**Praise:** *It Is Well With My Soul*
 
-**Praise:** *Your Will Be Done*
+**Benediction**  (Jason W)
+ 
 
-**Benediction**  (DM)
+Sermon Outline
+
+“DO NOT LOVE THE WORLD”   (John 16:16-24)
+
+Introduction
+
+To have immovable joy, you need to:
+
+1. Believe that Jesus' resurrection is true
+
+2. Know that your salvation is sure
+
+3. Commune with the Father in Spirit Through Jesus
+
+Conclusion

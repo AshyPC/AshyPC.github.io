@@ -3,43 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## including Prayer of Confession
-## 23rd June 2024
+## 21st July 2024
 
-__Ps 61:1-2__ 
-    _Hear my cry, O God, listen to my prayer;_
-    _from the end of the earth I call to you_
-    _When my heart is overwhelmed, lead me to the rock that is higher than I_
+__Psalm 33:18-20, 22__ 
+    _Behold, the eye of the Lord is on those who fear Him,_
+    _on those who hope in His steadfast love,_
+    _that He may deliver their soul from death and keep them alive in famine._
+    _Our soul waits for the Lord; He is our help and our shield._
+    _Let Your steadfast love, O Lord, be upon us, even as we hope in You._
 
-We come now to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
+__Thanks to God__
+O Lord, we give You thanks today, applying the words of David to our present situation, as we put our trust in Jesus, the Son of God.
 
-__Adoration__
-God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
+Today Your church appears small, facing a large world hostile to the Truth, and we see a famine, not of food, but of the Word of Life. But we thank You that Jesus is the Living Word, the Bread of Life, Who came down from heaven, to live as we live, yet remaining without sin.
 
-__Confession__
-But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have sullied the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+We thank You that He took the judgment that we deserved for our sin against You, paid the penalty that we could not pay, and rose again to give is His righteousness, His endless life and His Name, so that we can call ourselves “Christians” without embarrassment.
 
-__Thanksgiving__
-Yet, we thank You that You have not abandoned us to our condition but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+__The Wide World... and the Wider Church__
+We pray for this world where we see forces at work not only creating division but attempting to assassinate political candidates, instead of voting against them. We pray that such violence is not copied here, but that public issues may be debated respectfully and peacefully.
 
-We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
+We again pray for our nation, our State and our communities to turn back to You. We pray for our leaders, our governing authorities to work for the good of all rather than for factions and special interests. We pray especially for a restoration of Godliness, and widespread acknowledgement of Jesus as the Prince of Peace, Lord and Saviour.
 
-__Supplication: The Wider World__
-In the wider world, we continue to pray for a world which has lost the understanding of justice and mercy. We see hatred, but we pray for the peace of Jerusalem. We hear of disasters or famine, but we pray for agencies like Barnabas Aid bringing relief – food, clothing and shelter. We see that some people are treated as less than human, but we pray for them to be respected as people made in the image of the God Who loves them and wants them to be saved.
+We thank You for the work of Calvin and Ruth Mathys in PNG, bringing Ruth’s language skills to the task of Bible translation, and Calvin’s engineering skills to aircraft maintenance to bless all the remote communities where MAF flies. We pray also for the work of Samaritan’s Purse and the shoebox ministry of Operation Christmas Child. We pray that the cvhildren who receive shoeboxes would know the True Gift of Jesus, given by a loving Heavenly Father to redeem the world.
 
-__... and the wider Church__
-We can be overwhelmed by the things we see and hear – of war, oppression, refugees, of Your people persecuted in Myanmar, Burkino Faso, Lebanon, and many other places. We pray for courage in the face of opposition, perseverance as they seek safety.
+__Ashburton__
+We pray for ourselves as we seek to reach our local community here. May we also share the Good News of the Giver of the True Gift, the perfect Father Who loves to see people come to salvation, and be adopted into His heavenly family. We have plenty of room for new people to come, to learn of the forgiveness of their sins at the Cross, and join us in worship.
 
-__Supplication: Ashburton__
-Here in Ashburton we pray for Suzanne and the Oakes family, that they continue to know God’s loving presence, leading and strength as they grieve and adjust to life. We pray for ourselves to know Your goodness as we come to terms with the loss of Barry. Strengthen us to put one foot in front of the other as we continue with our daily routines. Remind us of the solid foundation we have in the Rock Who is Christ, still with us.
+We thank You Lord for Mook, who has taken on so much extra this year. We pray that You would strengthen him, and protect him and Talia, Jethro, Amy and Judah, as we seek Your will for a new minister to join in Your work here.
 
-
-We pray also for John and Gaye as John continues his weekly treatment program.  We thank You for the medical facilities we enjoy here, and for John’s progress in battling this cancer.
-
-We pray for Callum, Steph and Levi. We thank You for Levi’s progress, and ask Your wisdom for the medical team as they seek to provide him with whatever assistance is available to encourage his development.
-
-We thank You for the new Board members, and pray for both the Board and the Session as they work for the congregation under the leadership of Jesus the Great Shepherd. We pray for Douglas Milne and the elders to have Your wisdom as we go through these difficult days.
-
-May we individually take responsibility for our own spiritual growth so that we are transformed by the renewing of our minds. As we take Your living Word deep into our hearts, we pray that You would change us so that our lives are more and more in conformity to that Word. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community groups.
-
-Finally, we pray for ourselves in the service of the Kingdom. Help us, Lord, to look outward, beyond our own four walls, to the needs of others in this community. We thank You that we are a part of the work of spreading the Good News. May we grow to show the character of our Risen Lord so well that others will see Him rather than us. In Jesus Name we pray, Amen.
+We pray for those among us in need of Your healing touch, thinking especially of John McKenzie, Phil Langford and Margaret Sanders. We thank You for the strength of the bonds of fellowship, and pray for our continued witness to those around us, both as a congregation and one by one where we live, study, and work. In Jesus Precious Name, Amen.
