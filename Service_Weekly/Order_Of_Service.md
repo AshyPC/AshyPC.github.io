@@ -2,52 +2,51 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 28th July, 2024
+### Order of Service Sunday, 18th August, 2024
 
-**Call to Worship**  (2 Cor 5:21) / Opening prayer (John Angelico)
+**Call to Worship**  (1 Chron 16:10-12) / Opening prayer (John A)
 
 **Praise:** *And Can It Be*
 
-**Bible Reading:** Ephesians 1:3-14  (Marjo A)
+**Bible Reading:** Romans 8:1-17 (Tim A)
+
+**Mission Spot** (Gaye M)
+    • Video (wk2)
+    • Gaye’s presentation
 
 **Sunday School:** (Mook Lee)
 
-**Praise:** *God Moves In A Mysterious Way*
+**Praise:** *How Sure the Scriptures Are*
 
 **Announcements (John A)** 
-    • Church camp this weekend, are you all booked in?
-    • No service in Ashburton next week
-    • Communion service moved to the following week 11th August
-    • 
-    • Morning Tea and fellowship after the service today
     
-**Prayer for the church and the world** (Mook L)
+    • Church AGM 22nd September
+    • Early notice: Carols on the Lawn Sunday 15th December
+    • Morning Tea and fellowship after the service
+    
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** 2 Kings 21 (John A)
+**Bible Reading:** 2 Kings 22 (MarJo A)
 
-**Praise:** *All I Have Is Christ* (OFFERING)
+**Praise:** *Come All You Unfaithful* (OFFERING)
 
-**Sermon:** “DON’T TAKE SIN LIGHTLY” (ML)
+**Sermon:** “JUDGEMENT IS COMING (PART 1): HOPE FOR THE TENDER AND PENITENT HEART” (ML)
 
-**Praise:** *Yet Not I But Through Christ In Me*
+**Praise:** *What Love My God*
 
 **Benediction**  (Mook L)
  
 
-Sermon Outline
 
-“DON’T TAKE SIN LIGHTLY”   (2 Kings 21)
+**Sermon Outline**
+“HOPE FOR THE TENDER AND PENITENT HEART”   (2 Kings 22)
 
 Introduction
 
-To have immovable joy, you need to:
-
-1. Sin starts when we don’t care for God
-
-2. There is a line we don’t want to cross
-
-3. There is grace for the dying soul
-
+    1. Reminder: Those who forsake God will be forsaken
+    
+    2. Hope for those who seek the Lord
+    
+    3. Hope for the penitent heart
+    
 Conclusion
-
-
