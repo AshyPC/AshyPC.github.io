@@ -2,51 +2,50 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 18th August, 2024
+### Order of Service Sunday, 25th August, 2024
 
-**Call to Worship**  (1 Chron 16:10-12) / Opening prayer (John A)
+**Call to Worship**  (Psalm 84:1-2, 4) / Opening prayer (John A)
 
-**Praise:** *And Can It Be*
+**Praise:** *Only a Holy God*
 
-**Bible Reading:** Romans 8:1-17 (Tim A)
+**Bible Reading:** Matthew 5:1-16 (Callum H)
 
 **Mission Spot** (Gaye M)
-    • Video (wk2)
-    • Gaye’s presentation
+    • Video Bibles for the Persecuted (wk 4)
 
 **Sunday School:** (Mook Lee)
 
-**Praise:** *How Sure the Scriptures Are*
+**Praise:** *Reformation Song*
 
 **Announcements (John A)** 
     
-    • Church AGM 22nd September
-    • Early notice: Carols on the Lawn Sunday 15th December
     • Morning Tea and fellowship after the service
     
-**Prayer for the church and the world** (John A)
+**Prayer for the church and the world** (Mook L)
 
-**Bible Reading:** 2 Kings 22 (MarJo A)
+**Bible Reading:** 2 Kings 23 (Seng T)
 
-**Praise:** *Come All You Unfaithful* (OFFERING)
+**Praise:** *Show Us Christ* (OFFERING)
 
-**Sermon:** “JUDGEMENT IS COMING (PART 1): HOPE FOR THE TENDER AND PENITENT HEART” (ML)
+**Sermon:** “JUDGEMENT IS COMING (PART 2: BE THE SALT AND LIGHT OF THE EARTH” (ML)
 
-**Praise:** *What Love My God*
+**Praise:** *I Set My Hope*
 
 **Benediction**  (Mook L)
  
 
 
 **Sermon Outline**
-“HOPE FOR THE TENDER AND PENITENT HEART”   (2 Kings 22)
+“BE THE SALT AND LIGHT OF THE EARTH”   (2 Kings 23)
 
 Introduction
 
-    1. Reminder: Those who forsake God will be forsaken
+    1. Permeate and Transform
     
-    2. Hope for those who seek the Lord
+    2. Love the Word of God
     
-    3. Hope for the penitent heart
+    3. Destroy Idols
+    
+    4. Show Christ
     
 Conclusion
