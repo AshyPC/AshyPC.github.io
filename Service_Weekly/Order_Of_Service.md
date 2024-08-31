@@ -2,50 +2,49 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 25th August, 2024
+### Order of Service Sunday, 1st September, 2024
 
-**Call to Worship**  (Psalm 84:1-2, 4) / Opening prayer (John A)
+**Call to Worship**  (Psalm 84:1-7) / Opening prayer (Douglas M)
 
-**Praise:** *Only a Holy God*
+**Praise:** *How Deep The Father’s Love*
 
-**Bible Reading:** Matthew 5:1-16 (Callum H)
-
-**Mission Spot** (Gaye M)
-    • Video Bibles for the Persecuted (wk 4)
+**Bible Reading:** Matthew 25:31-46 (John A)
 
 **Sunday School:** (Mook Lee)
 
-**Praise:** *Reformation Song*
+**Praise:** *Great God, What Do I See And Hear (Rej! 259)*
 
 **Announcements (John A)** 
-    
+    • Hope Explored
     • Morning Tea and fellowship after the service
     
-**Prayer for the church and the world** (Mook L)
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** 2 Kings 23 (Seng T)
+**Bible Reading:** 1 John 2:28 - 3:3 (Rachel D)
 
-**Praise:** *Show Us Christ* (OFFERING)
+**Praise:** *Behold the Amazing Gift of Love (Rej! 426)* (OFFERING)
 
-**Sermon:** “JUDGEMENT IS COMING (PART 2: BE THE SALT AND LIGHT OF THE EARTH” (ML)
+**Sermon:**  “CONFIDENCE FOR THE DAY OF CHRIST” (DM)
 
-**Praise:** *I Set My Hope*
+**Praise:** *Come, Risen Lord (Rej! 355)*
 
-**Benediction**  (Mook L)
- 
+**The Lord’s Supper**
+
+**Praise:** *Fight the Good Fight with All Your Might (Rej! 453)*
+
+**Benediction**  (DM)
+
 
 
 **Sermon Outline**
-“BE THE SALT AND LIGHT OF THE EARTH”   (2 Kings 23)
+“CONFIDENCE FOR THE DAY OF CHRIST”   (1 John 2:28-3:3)
 
 Introduction
 
-    1. Permeate and Transform
+    1. We are practising righteousness (2:29)
     
-    2. Love the Word of God
+    2. We are God’s children (3:1)
     
-    3. Destroy Idols
-    
-    4. Show Christ
+    3. We hope to see Jesus (3:2-3)
     
 Conclusion
