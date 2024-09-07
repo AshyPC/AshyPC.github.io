@@ -3,29 +3,28 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## 18th August 2024
+## 8th September 2024
 
-__Psalm 62:7-8__ 
-    _On God rests my salvation and my glory; my mighty rock, my refuge is God._
-    _Trust in him at all times, O people; pour out your heart before Him; God is a refuge for us._
+__Psalm 50:23 & Hebrews 13:15__ 
+    _The one who offers thanksgiving as his sacrifice glorifies me; to one who orders his way rightly I will show the salvation of God!”_
+
+    _Through Him [Jesus] then let us continually offer up a sacrifice of praise to God, that is, the fruit of lips that acknowledge His name._
 
 __Thanks to God__
-O Lord, we come to You today, giving thanks that our salvation rests on You and not on ourselves, for You are the mighty Rock, our fortress. We can trust in You always, when life is smooth but even more when things are not going our way.
+O Lord, we come to You today, bringing our sacrifice of thanks to glorify Your Name. But we come not as the Psalmist bringing a lamb or a bull, but we bring praises for Jesus Who offered Himself as the perfect sacrifice for us and our sins. We thank You that our salvation rests on His once and for all RIGHT sacrifice, and not on our own good works, which count as nothing in the light of Your Perfect holiness.
 
-We confess Lord, that what we think of as smooth sailing usually means getting our own way, and in that we see our sinful pride. We thank You for Jesus Who came down from heaven, to live as we live, yet Who remained without sin, and Who went to the Cross to take away our sin.
-
-We thank You that He took the judgment that we deserved for our sin against You, paid the penalty that we could not pay, and rose again to give is His righteousness, His endless life and so that we can share in His inheritance – that of the First Born from the Dead. By Your ordaining, we now have “an interest in the Saviour’s blood.”
+We thank You that Jesus took the punishment, paid the penalty that we could not pay, and rose again to give is His righteousness, His endless life. According to Your eternal purposes we now have the Holy Spirit within, ministering His life to us, purging us of every stain and sanctifying us to be fit for heaven when He returns.
 
 __The Wide World... and the Wider Church__
-We pray for this hurting world where we see division and violence, hatred, anger and hostility. We pray that the Prince of Peace would bring the peace we long for. It is distressing to see so much violence and rioting in the nation that pioneered unarmed policing just 200 years ago.
+We pray for our news media are swamped with fearful talk of international crises, or try to distract us with entertainment and sport. We pray instead for a sober understanding and a realization that You remain in control. We remind ourselves that we are called to remain steadfast under Your care, to hold to the truth that the gospel continues to save lives as people come to faith in Jesus all over the world. 
 
-We again pray for our nation, our State and our communities to turn back to You. We pray for our leaders, our governing authorities to work for the good of nation. We pray especially for a restoration of Godliness in public life, and widespread acknowledgement of Jesus as the Prince of Peace, Lord and Saviour.
+We pray for His Majesty King Charles, with a Royal Visit sheduled for October. We respect his high office but remember that he is subject to the same human frailties as we do, and we pray for his ongoing cancer treatment. We continue to pray for our nation, our State and our communities to turn back to You, and to recocnise the True King of kings, Jesus.
 
-This month we support the work of the Bible League, especially as they work to bring Your Word to persecuted peoples. As we see the decline of visible Christian faith in our part of the world, we give You thanks that the Word of God is not restricted, and the church grows in other continents and nations. We pray for safety as they bring Your Word into places where we would fear to go.
+This month we support the work of Samaaritans Purse through Operation Christmas Child, as they work to bring Your Word to children by the gift of shoeboxes. We thank You for the True Gift of Jesus and His salvation for all who believe. 
 
 __Ashburton__
-We pray for ourselves as we seek to grow in Godliness and obedience to Your Word, so that our witness may be increasingly effective in reaching our local communities. We give thanks for newcomers whom You direct towards us. May we welcome them, and help them to put their faith fully in Jesus, and join us in worship.
+We pray for ourselves as we seek to grow in Godliness and obedience to Your Word, and we pray for all taking part in the Hope Explored series commencing today. Grant them understanding of the sure hope we share in the good news of Jesus certain return.
 
-We thank You Lord for Mook, who has taken on so much extra this year. We pray that You would strengthen him, and protect him and Talia, Jethro, Amy and Judah, as we seek Your will for a new minister to join in Your work here.
+We thank You Lord for Levi and the skilled work of the medical team monitoring his progress. We pray that, as they adapt his medication, he will enjoy better sleep and allow Steph and Callum to rest also.
 
-We thank You for the strength of the bonds of fellowship, and pray for our continued encouragement for one another here, so that we can build each other up in our most holy faith. May that encouragement give us boldness to share the good news of our gracious loving Father, both as a congregation and one by one where we live, study, and work. In Jesus Precious Name, Amen.
+We thank You for Joshua Lyddy bringing Your Word to us today. We pray that his preparation will bear fruit among us in greater boldness to share the good news of our gracious loving Father, our eternal High Priest, Jesus, and our Ever-Present Guide, the Holy Spirit. In Jesus Precious Name we ask all these things, Amen.

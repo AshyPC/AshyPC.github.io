@@ -2,49 +2,45 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 1st September, 2024
+### Order of Service Sunday, 8th September, 2024
 
-**Call to Worship**  (Psalm 84:1-7) / Opening prayer (Douglas M)
+**Call to Worship**  (Psalm 147:2-5) / Opening prayer (John A)
 
-**Praise:** *How Deep The Father’s Love*
+**Praise:** *To God Be The Glory*
 
-**Bible Reading:** Matthew 25:31-46 (John A)
+**Bible Reading:** Isaiah 64 (Pam W)
 
-**Sunday School:** (Mook Lee)
+**Mission Spot:** *Operation Christmas Child* (Gaye M)
 
-**Praise:** *Great God, What Do I See And Hear (Rej! 259)*
+**Sunday School:** (Mook L)
+
+**Praise:** *Yet Not I But Through Christ In Me*
 
 **Announcements (John A)** 
-    • Hope Explored
+    • Welcome to Joshua Lyddy
+    • Hope Explored commences today
+    • Working Bee 21st
     • Morning Tea and fellowship after the service
     
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** 1 John 2:28 - 3:3 (Rachel D)
+**Bible Reading:** 2 Timothy 1:6-12 (MarJo A)
 
-**Praise:** *Behold the Amazing Gift of Love (Rej! 426)* (OFFERING)
+**Praise:** *Holy Spirit Living Breath of God* (OFFERING)
 
-**Sermon:**  “CONFIDENCE FOR THE DAY OF CHRIST” (DM)
+**Sermon:**  “GET OFF THE SHAME TRAIN” (Joshua Lyddy)
 
-**Praise:** *Come, Risen Lord (Rej! 355)*
+**Praise:** *For the Cause*
 
-**The Lord’s Supper**
-
-**Praise:** *Fight the Good Fight with All Your Might (Rej! 453)*
-
-**Benediction**  (DM)
+**Benediction**  (Joshua L)
 
 
 
 **Sermon Outline**
-“CONFIDENCE FOR THE DAY OF CHRIST”   (1 John 2:28-3:3)
-
+“GET OFF THE SHAME TRAIN”   (2 Timothy 1:6-12)
 Introduction
-
-    1. We are practising righteousness (2:29)
-    
-    2. We are God’s children (3:1)
-    
-    3. We hope to see Jesus (3:2-3)
-    
+    1. You have received the Spirit
+    2. You have a responsibility
+    3. Remind yourself of the Gospel
+    4. Do you really know him?
 Conclusion
