@@ -2,45 +2,47 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 8th September, 2024
+### Order of Service Sunday, 15th September, 2024
 
-**Call to Worship**  (Psalm 147:2-5) / Opening prayer (John A)
+**Call to Worship**  (Psalm 84:4) / Opening prayer (John A)
 
-**Praise:** *To God Be The Glory*
+**Praise:** *10000 Reasons*
 
-**Bible Reading:** Isaiah 64 (Pam W)
-
-**Mission Spot:** *Operation Christmas Child* (Gaye M)
+**Bible Reading:** Hebrews 4 (Pam W)
 
 **Sunday School:** (Mook L)
 
-**Praise:** *Yet Not I But Through Christ In Me*
+**Praise:** *Holy Holy Holy*
 
 **Announcements (John A)** 
-    • Welcome to Joshua Lyddy
-    • Hope Explored commences today
+    • AGM next Sunday immediately after the service and before morning tea
+    • Hope Explored continues today
     • Working Bee 21st
     • Morning Tea and fellowship after the service
     
-**Prayer for the church and the world** (John A)
+**Prayer for the church and the world** (Mook L)
 
-**Bible Reading:** 2 Timothy 1:6-12 (MarJo A)
+**Bible Reading:** 2 Kings 23:31-24:20 (Tim A)
 
-**Praise:** *Holy Spirit Living Breath of God* (OFFERING)
+**Praise:** *Before the Throne of God Above* (OFFERING)
 
-**Sermon:**  “GET OFF THE SHAME TRAIN” (Joshua Lyddy)
+**Sermon:**  “GOD WAS DONE WAITING” (ML)
 
-**Praise:** *For the Cause*
+**Praise:** *Holy Hands*
 
-**Benediction**  (Joshua L)
-
+**Benediction**  (Mook L)
 
 
 **Sermon Outline**
-“GET OFF THE SHAME TRAIN”   (2 Timothy 1:6-12)
+
+“GOD WAS DONE WAITING”   (2 Kings 23:31-24:20)
+
 Introduction
-    1. You have received the Spirit
-    2. You have a responsibility
-    3. Remind yourself of the Gospel
-    4. Do you really know him?
+
+1. A rushed ending
+
+2. God’s word is living and active
+
+3. Receive grace and find mercy
+
 Conclusion
