@@ -2,47 +2,44 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 15th September, 2024
+### Order of Service Sunday, 22nd September, 2024
 
-**Call to Worship**  (Psalm 84:4) / Opening prayer (John A)
+**Call to Worship**  (1 John 5:18-21) / Opening prayer (Douglas M)
 
-**Praise:** *10000 Reasons*
+**Praise:** *All I Have is Christ*
 
-**Bible Reading:** Hebrews 4 (Pam W)
+**Bible Reading:** John 8:31-47 (Callum H)
 
-**Sunday School:** (Mook L)
+**Sunday School - Only Video:** (Mook L)
 
-**Praise:** *Holy Holy Holy*
+**Praise:** *The Kingdom of God is Justice and Joy (Rej! 320)*
 
 **Announcements (John A)** 
-    • AGM next Sunday immediately after the service and before morning tea
-    • Hope Explored continues today
-    • Working Bee 21st
-    • Morning Tea and fellowship after the service
+    • AGM immediately after the service and before morning tea
+    • Hope Explored not today, resumes next week
+    • Working Bee results
+    • Morning Tea and fellowship after the AGM
     
-**Prayer for the church and the world** (Mook L)
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** 2 Kings 23:31-24:20 (Tim A)
+**Bible Reading:** 1 John 3:4-10 (John A)
 
-**Praise:** *Before the Throne of God Above* (OFFERING)
+**Praise:** *Revive Your Church, O Lord (Rej! 298)* (OFFERING)
 
-**Sermon:**  “GOD WAS DONE WAITING” (ML)
+**Sermon:**  “CHRISTIAN RIGHTEOUSNESS” (DM)
 
-**Praise:** *Holy Hands*
+**Praise:** *Your Will Be Done*
 
-**Benediction**  (Mook L)
+**Benediction**  (DM)
 
 
 **Sermon Outline**
 
-“GOD WAS DONE WAITING”   (2 Kings 23:31-24:20)
-
+“CHRISTIAN RIGHTEOUSNESS”   (1 John 3:4-10)
 Introduction
-
-1. A rushed ending
-
-2. God’s word is living and active
-
-3. Receive grace and find mercy
-
-Conclusion
+1. What sin is and where it comes from (vv. 4, 8)
+2. Why Jesus came (vv 5, 8)
+3. The One we have seen and known (v. 6)
+4. How we are (v. 7)
+5. God’s Spirit remaining in us (v. 9)
+Conclusion (v. 10)
