@@ -4,42 +4,42 @@ title: Order of Service
 ---
 ### Order of Service Sunday, 22nd September, 2024
 
-**Call to Worship**  (1 John 5:18-21) / Opening prayer (Douglas M)
+**Call to Worship** (Isaiah 12) / Opening prayer (John A)
 
-**Praise:** *All I Have is Christ*
+**Praise:** *King of Kings*
 
-**Bible Reading:** John 8:31-47 (Callum H)
+**Bible Reading:** Ephesians 1:1-14 (Pam W)
 
 **Sunday School - Only Video:** (Mook L)
 
-**Praise:** *The Kingdom of God is Justice and Joy (Rej! 320)*
+**Praise:** *The Church’s One Foundation*
 
 **Announcements (John A)** 
-    • AGM immediately after the service and before morning tea
-    • Hope Explored not today, resumes next week
-    • Working Bee results
-    • Morning Tea and fellowship after the AGM
+    • Evening Prayer Service 5pm
+    • Mook Leave 30 Sep to 13 Oct
+    • Carols (Mook)
+    • AGM audit report is available for any who want it in print
+    • Hope Explored final session today
     
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** 1 John 3:4-10 (John A)
+**Bible Reading:** 2 Kings 25 (Tim A)
 
-**Praise:** *Revive Your Church, O Lord (Rej! 298)* (OFFERING)
+**Praise:** *Yet Not I* (OFFERING)
 
-**Sermon:**  “CHRISTIAN RIGHTEOUSNESS” (DM)
+**Sermon:**  “GLORY GONE, BUT NOT COMPLETELY DONE” (Mook L)
 
-**Praise:** *Your Will Be Done*
+**Praise:** *I Will Glory In My Redeemer*
 
-**Benediction**  (DM)
+**Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“CHRISTIAN RIGHTEOUSNESS”   (1 John 3:4-10)
+“GLORY GONE, BUT NOT COMPLETELY DONE”   (1 Kings 25)
 Introduction
-1. What sin is and where it comes from (vv. 4, 8)
-2. Why Jesus came (vv 5, 8)
-3. The One we have seen and known (v. 6)
-4. How we are (v. 7)
-5. God’s Spirit remaining in us (v. 9)
-Conclusion (v. 10)
+    1. No Glories remained
+    2. Failed Monarchy
+    3. Do not glory in the world
+    4. Glory in our Redeemer
+Conclusion
