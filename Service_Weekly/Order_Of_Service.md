@@ -2,44 +2,50 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 22nd September, 2024
+### Order of Service Sunday, 6th October, 2024
 
-**Call to Worship** (Isaiah 12) / Opening prayer (John A)
+**Call to Worship** (Ephesians 4:30-5:2) / Opening prayer (DM)
 
-**Praise:** *King of Kings*
+**Praise:** *O Lord my Rock and my Redeemer*
 
-**Bible Reading:** Ephesians 1:1-14 (Pam W)
+**Bible Reading:** Genesis 4:1-16 (Tim A)
 
-**Sunday School - Only Video:** (Mook L)
+**Sunday School - Only Video:** (John A)
 
-**Praise:** *The Church’s One Foundation*
+**Praise:** *Blest Be the Tie that Binds (Rej! 311)*
 
 **Announcements (John A)** 
-    • Evening Prayer Service 5pm
     • Mook Leave 30 Sep to 13 Oct
-    • Carols (Mook)
-    • AGM audit report is available for any who want it in print
-    • Hope Explored final session today
+    • Hope Explored 
     
-**Prayer for the church and the world** (John A)
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** 2 Kings 25 (Tim A)
+**Bible Reading:** 1 John 4:7-21 & 1 John 3:11-18 (John A)
 
-**Praise:** *Yet Not I* (OFFERING)
+**Praise:** *Brother, Let me be Your Servant (Rej! 310)* (OFFERING)
 
-**Sermon:**  “GLORY GONE, BUT NOT COMPLETELY DONE” (Mook L)
+**Sermon:**  “Cain and Jesus: Hate and Love” (DM)
 
-**Praise:** *I Will Glory In My Redeemer*
+**Praise:** *What Love My God*
 
-**Benediction**  (ML)
+**The Lord’s Supper**
+
+**Praise:** *As Sons of the Day and Daughters of Light (Rej! 313)*
+
+**Benediction**  (DM)
 
 
 **Sermon Outline**
 
-“GLORY GONE, BUT NOT COMPLETELY DONE”   (1 Kings 25)
-Introduction
-    1. No Glories remained
-    2. Failed Monarchy
-    3. Do not glory in the world
-    4. Glory in our Redeemer
-Conclusion
+“Cain and Jesus: Hate and Love”   (1 John 4:7-21 & 1 John 3:11-18 )
+Cain / Hate
+1. Comes from the devil
+2. Never comes alone
+3. Forewarns Christians of world’s hate
+4. A sign of death
+Jesus / Love
+1. Basic Christianity
+2. Jesus models love’s meaning
+3. A sign of new life
+4. A test of love
+Conclusion: v18 Just do it!
