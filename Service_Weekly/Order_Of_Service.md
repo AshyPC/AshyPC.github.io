@@ -2,50 +2,41 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 6th October, 2024
+### Order of Service Sunday, 13th October, 2024
 
-**Call to Worship** (Ephesians 4:30-5:2) / Opening prayer (DM)
+**Call to Worship** Psalm 67:1-2/ Opening prayer (John A)
 
-**Praise:** *O Lord my Rock and my Redeemer*
+**Praise:** *10,000 Reasons*
 
-**Bible Reading:** Genesis 4:1-16 (Tim A)
+**Bible Reading:** Jonah 1:17 - 2:10  (Rachel)
 
-**Sunday School - Only Video:** (John A)
+**Sunday School:** (Mook)
 
-**Praise:** *Blest Be the Tie that Binds (Rej! 311)*
+**Praise:** *Hallelujah For the Cross*
 
 **Announcements (John A)** 
-    • Mook Leave 30 Sep to 13 Oct
-    • Hope Explored 
+    • Morning Tea
+    • Assembly
     
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** 1 John 4:7-21 & 1 John 3:11-18 (John A)
+**Bible Reading:** Psalm 69 (Marjo)
 
-**Praise:** *Brother, Let me be Your Servant (Rej! 310)* (OFFERING)
+**Praise:** *Lord From Sorrows Deep I Call * (OFFERING)
 
-**Sermon:**  “Cain and Jesus: Hate and Love” (DM)
+**Sermon:**  “In Deep Trouble” (Josh Lyddy)
 
-**Praise:** *What Love My God*
+**Praise:** *The Lord is my Salvation*
 
-**The Lord’s Supper**
-
-**Praise:** *As Sons of the Day and Daughters of Light (Rej! 313)*
-
-**Benediction**  (DM)
+**Benediction**  (Josh)
 
 
 **Sermon Outline**
 
-“Cain and Jesus: Hate and Love”   (1 John 4:7-21 & 1 John 3:11-18 )
-Cain / Hate
-1. Comes from the devil
-2. Never comes alone
-3. Forewarns Christians of world’s hate
-4. A sign of death
-Jesus / Love
-1. Basic Christianity
-2. Jesus models love’s meaning
-3. A sign of new life
-4. A test of love
-Conclusion: v18 Just do it!
+“In Deep Trouble” (Psalm 69)
+Introduction
+1. God saves us despite our disobedience
+2. God allows us to experience darkness and despair that we might turn to him
+3. God's discipline is designed to bring about a change of heart
+4. God's discipline leads to new beginnings
+Conclusion
