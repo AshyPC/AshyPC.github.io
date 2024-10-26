@@ -2,57 +2,51 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 20th October, 2024
+### Order of Service Sunday, 27th October, 2024
 
-**Call to Worship** Isaiah 57:14-15/ Opening prayer (John A)
+**Call to Worship** (Jeremiah 23:5) / Opening prayer (John A)
 
-**Praise:** *To God Be The Glory*
+**Praise:** *In Christ Alone*
 
-**Bible Reading:** Isaiah 7:10-14 (MarJo A)
+**Bible Reading:** Micah 5 (John A)
 
-**Announcements (John A)**
-    • Morning Tea and fellowship after the service
-    • Church picnic today at Markham Reserve
-    • OCC Shoeboxes on display and we will pray for them (more from Gaye)
-  
 **Sunday School:** (Mook)
 
-**Praise:** *Ancient of Days*
-   
-**Prayer for the church and the world** (Mook L)
+**Praise:** *King of Kings*
+ 
+ **Announcements (John A)**
+    • Morning Tea and an additional Mission Spot IN THE HALL after the service
+    • Evening Prayer Service 5pm today: praying for missions and for the search for a minister; dinner to follow (as usual)
+  
+  
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** Revelation 21:1-8 (John A)
+**Bible Reading:** Matthew 2:1-12 (Pam W)
 
-**Praise:** *And Can It Be* (OFFERING)
+**Praise:** *O Little Town of Bethlehem* (OFFERING)
 
-**Bible Reading:** Matthew 1:18-25 (Mook L)
+**Sermon:**  “BETHLEHEM: A RULER FROM A HUMBLE TOWN ” (Mook)
 
-**Sermon:**  “GOD WITH US: WE WERE MADE TO BE WITH GOD” (Mook L)
-
-**Praise:** *O Come All Ye Faithful*
+**Praise:** *His Glory And My Good*
 
 **Benediction**  (Mook l)
 
 
 **Sermon Outline**
 
-“GOD WITH US: WE WERE MADE TO BE WITH GOD”   (Matthew 1:18-25)
+“BETHLEHEM: A RULER FROM A HUMBLE TOWN”   (Matthew 2:1-12)
 Introduction
-1. What it is meant to be
-2. What it isn’t meant to be
-3. Christ the Incarnate Saviour
-4. Christ’s blessing and our response
+ 1. Our Ruler is hope in dark days
+ 2. Our Ruler is the humble King
+ 3. Our Ruler is the Shepherd King
+ 4. Our Ruler is the Bread of Life
 Conclusion
 
 
 
-Opening Prayer (Isaiah 57:14-15)
-[14] And it shall be said, “Build up, build up, prepare the way, remove every obstruction from my people’s way.” 
-[15] For thus says the One who is high and lifted up, who inhabits eternity, whose name is Holy: “I dwell in the high and holy place, and also with him who is of a contrite and lowly spirit, to revive the spirit of the lowly, and to revive the heart of the contrite.”
-
-Heavenly Father, we thank You that You are High and Lifted Up, inhabiting Eternity. We are low and look up to You Who are Awesome in Holiness. In ourselves we cannot enter Your Presence because of sin. Yet You have made a way for us, You have removed the Obstacle to us enjoying fellowship with You.
-We thank You that Jesus showed us Your love and grace by coming from Your Presence on high and becoming one of us in our lowly state.
-We thank You that You have revived our spirits by making the Way for us to return to You, even though we were enemies who had turned away by our own sin. We confess that we are still not perfect as You are Perfect, but we submit to Your discipline and instruction, under the guidance of the Holy Spirit.
-We thank You that today we look afresh at what Your Word tells us of Jesus’ first coming, which we will soon celebrate at Christmas time. 
-We commit this appointed time to You, especially so that we may praise and worship You, Father, Son and Holy Spirit.
+Opening Prayer (Jeremiah 23:5)
+5 “The days are coming,” declares the Lord, “when I will raise up for David a righteous Branch, a King who will reign wisely and do what is just and right in the land.
+Heavenly Father, we thank You that You are the Only God – the One Who keeps His promises, and fulfills His Word. We thank You that Jeremiah could take courage that the sadness of the people of God suffering judgement in exile for their sins was to be replaced by the King Who was to come and rule wisely and justly in the land.
+We thank You for the coming of Jesus, and we prepare to celebrate His first coming which was in a quiet out-of-the-way place, as a baby born in a stable, not in a king’s palace. We have gathered today to worship, to pray and to hear and obey Your Word.
+We also look forward to His return, in power and visible majesty to take up His Kingdom and rule for ever and ever.
 In Jesus Mighty Name we pray, Amen.
