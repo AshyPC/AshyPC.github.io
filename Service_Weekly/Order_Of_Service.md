@@ -2,51 +2,53 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 27th October, 2024
+### Order of Service Sunday, 10th November, 2024
 
-**Call to Worship** (Jeremiah 23:5) / Opening prayer (John A)
+**Call to Worship** (1 Thessalonians 5:16-18) / Opening prayer (John A)
 
-**Praise:** *In Christ Alone*
+**Praise:** *Joy To The World*
 
-**Bible Reading:** Micah 5 (John A)
+**Bible Reading:** Galatians 4:1-7 (Tim A)
+
+**Announcements** (John A)
 
 **Sunday School:** (Mook)
 
-**Praise:** *King of Kings*
+**Praise:** *I Am Not My Own*
  
- **Announcements (John A)**
-    • Morning Tea and an additional Mission Spot IN THE HALL after the service
-    • Evening Prayer Service 5pm today: praying for missions and for the search for a minister; dinner to follow (as usual)
-  
-  
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (Mook L)
 
-**Bible Reading:** Matthew 2:1-12 (Pam W)
+**Bible Reading:** Luke 2:1-7 (John A)
 
-**Praise:** *O Little Town of Bethlehem* (OFFERING)
+**Praise:** *Away In A Manger* (OFFERING)
 
-**Sermon:**  “BETHLEHEM: A RULER FROM A HUMBLE TOWN ” (Mook)
+**Sermon:**  “IN HIS WAY AND TIMING” (Mook)
 
-**Praise:** *His Glory And My Good*
+**Praise:** *Your Will Be Done*
 
-**Benediction**  (Mook l)
+**Benediction**  (Mook L)
 
 
 **Sermon Outline**
 
-“BETHLEHEM: A RULER FROM A HUMBLE TOWN”   (Matthew 2:1-12)
+“IN HIS WAY AND TIMING”   (Luke 2:1-7)
 Introduction
- 1. Our Ruler is hope in dark days
- 2. Our Ruler is the humble King
- 3. Our Ruler is the Shepherd King
- 4. Our Ruler is the Bread of Life
+ 1. The Sovereignty of God
+
+ 2. In the fullness of time
+
+ 3. What can overthrow God’s plan?
+ 
 Conclusion
 
 
 
-Opening Prayer (Jeremiah 23:5)
-5 “The days are coming,” declares the Lord, “when I will raise up for David a righteous Branch, a King who will reign wisely and do what is just and right in the land.
-Heavenly Father, we thank You that You are the Only God – the One Who keeps His promises, and fulfills His Word. We thank You that Jeremiah could take courage that the sadness of the people of God suffering judgement in exile for their sins was to be replaced by the King Who was to come and rule wisely and justly in the land.
-We thank You for the coming of Jesus, and we prepare to celebrate His first coming which was in a quiet out-of-the-way place, as a baby born in a stable, not in a king’s palace. We have gathered today to worship, to pray and to hear and obey Your Word.
-We also look forward to His return, in power and visible majesty to take up His Kingdom and rule for ever and ever.
-In Jesus Mighty Name we pray, Amen.
+Opening prayer (1 Thessalonians 5:16-18)
+16 Rejoice always, pray without ceasing, give thanks in all circumstances; for this is the will of God in Christ Jesus for you. 
+Father God, we have gathered together today because we have a real reason to rejoice, for we celebrate Jesus, God the Son, Who is eternally with You, outside of time, but Who came into this world as a baby, to live as we do and then to take the penalty for our sinfulness by dying on the Cross.
+We give You thanks that death could not hold Him, for He rose to eternal life again on the third day, and has given us His righteousness, so that we may live free of the burden of sin.
+We thank You that You called us back to Yourself so that we can have real fellowship with You Who made us as relating people, not as isolated individuals.
+We thank You that we may approach the throne of grace whenever we are in need (which is all the time). Jesus our eternal High Priest speaks for us, so that we can pray and be heard.
+So we commit this time of praise, worship, prayer, reading of Your Word and fellowship with one another, so that Jesus may be lifted up and His Name be magnified among us today. In His Precious Name we pray, Amen.
+Let us now stand to Rejoice in the words of our first song:
+ Joy to the World, the Lord is Come
