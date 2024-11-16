@@ -43,3 +43,13 @@ Introduction
  
 Conclusion
 
+
+Opening Prayer (Psalm 116:12-14)
+[12] What shall I render to the Lord for all his benefits to me?
+[13] I will lift up the cup of salvation and call on the name of the Lord,
+[14] I will pay my vows to the Lord in the presence of all his people.
+O Lord our God, we thank You that we are gathered here today to worship You, Who have promised to be with us. We thank You that we see Your promise fulfilled in the birth of Jesus in a humble situation-a small town full of people busy registering in a Roman census. A birth so ordinary, yet announced by angels to chosen witnesses.
+We thank You for witnesses who did not remain silent but shared the good news far and wide, eventually reaching us, who heard and responded. We thank You that we have received the benefits of that Good News, the gospel, and have turned back to You.
+We therefore lift our voices, call upon Your Name, and seek to fulfill our commitment to declare that Jesus is is no longger a helpless babe in a manger, but truly King of kings! 
+In His Mighty Name we pray, Amen.
+[Hark The Herald Angels Sing]
