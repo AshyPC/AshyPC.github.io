@@ -3,30 +3,29 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## 13th October 2024
+## 24th November 2024
 
-__Psalm 31:24__ 
-    _Be strong, and let your heart take courage, all you who wait for the Lord!_
+__Psalm 3:3-4__ 
+    _But you, O Lord, are a shield about me, my glory, and the lifter of my head._
+    _I cried aloud to the Lord, and He answered me from His holy hill._
 
 __Thanks to God__
-O Lord, we come into Your Presence today, giving thanks that our salvation is not something we ourselves have achieved, for we are weak, changeable and lost in a world which does not want to know You. However, You are the LORD Almighty, strong to save, faithful in love, yet righteous in judgement. Because Jesus Christ the Righteous One has taken the penalty which was rightly ours, and dealt with the guilt we know within, we can be free.
-
+O Lord, we thank You that we can gather today to bring You our praises, and to acknowledge You as the “lifter of our heads.” We were bowed down by sin and our awareness of our guilt before You, but You have redeemed us and joined us with the faithful of the Old Testament. Therefore we give thanks for the gift of our salvation which Jesus won for us in the Cross and the Resurrection. We thank You that You have heard our pleas and answered us from Your Holy Hill. We thank You that Your grace has broken down the wall of separation between Jew and Gentile, so that there is one body of people giving You praise around this world.
 
 __The Wide World... and the Wider Church__
-Lord, You have called us to persist in prayer, whether we are many or few, because You are the Only God, the One Who answers prayer. 
+However, we pray for the peace of Jerusalem, and we pray against the resurgence of anti-Semitism that has appeared so suddenly around the world in recent times.
 
-We continue to pray that the Prince of Peace would bring the peace we long for. And in the meantime, we pray for the peace of Jerusalem, and for the nation of Israel, as it fights to preserve its own freedom and oppose tyranny and terrorism. We pray against the expressions of anti-Semitism we have seen displayed at demonstrations and rallies around the world, and we are distressed at Australia’s weakness in international forums.
+We also pray for members of the Body of Christ suffering persecution, even though we are mostly untouched by it here in Australia. We ask that You grant them courage to persevere and peace in their hearts as they endure to the strengthening of their faith.
 
-We again pray for our nation, our State and our communities to turn back to You. We give thanks for the many thousands who joined the March for the Babies in the city yesterday, quietly and respectfully protesting at the ongoing slaughter of so many innocent lives. We pray that Your church would declare with one voice that You are the God of life, Who has overcome death.
+We continue to pray that the Prince of Peace would bring the peace the world longs for. We continue to uphold the work of churches in eastern Europe, Hungary and Roumania, where Lazlo and Eva Mihalyi work. We also give You thanks for Tiffany and the safe arrival of baby Levi and we continue to pray for Lazlo to recover fully from his eye surgery.
+
+We again pray for our nation, our State and our communities to turn back to You. We look forward to the Carols on the Lawn as a part of our public witness to the Risen Lord we serve. We pray for as many as we can fit onto the lawn to come and hear the Good News of Great Joy, the coming of our Saviour as a babe, the reason for the holiday season.
 
 __Ashburton__
-We pray for ourselves as we seek to demonstrate Your grace in our lives through the daily routines, the ups and the downs of our lives. We thank You for Your Word which calls us to take courage, and to know that Your face shines upon us even when our human weaknesses try to bring us down to despair. Help us we pray to look up to You and remember the great salvation You have provided in Jesus.
+As well as our public witness, we pray for ourselves as we seek to demonstrate Your grace through the daily routines and normal activities of our lives. We lift up to You those who are unwell, and we especially pray for Margaret Sanders. Please guide the medical people in their treatment of her condition following her fall, taking full account of her situation. We also pray for her family as they care for her and work with the hospital staff. Help us Lord to demonstrate the depth of our fellowship as we support Margaret and her family at this time.
 
-We pray for our public witness through the Carols service in December. Help us to plan activities to demonstrate Your love working through us towards the visitors who come.
+We thank You for Your Word which calls us to take courage, and to know that Your face shines upon us even when our human frailties are ever before us. Help us we pray to look up to You and remember the great salvation You have provided in Jesus. We pray for opportunities to bless others wherever we go.
 
-We thank You Lord for Josh Lyddy and his family with us today. Grant him a clear mind and strong voice to deliver what You have given him for our edification today.
-
-And we pray for our diligent attention to Your Word, so that the world may know that only Jesus saves!
+And we give thanks for Chris Siriweera who is preaching Your Word to us today. We pray for our diligent attention, so that we may hide Your Word in our hearts, that we might not sin against You and that the world may know that only Jesus saves!
 
 In His Precious Name we pray, Amen.
-
