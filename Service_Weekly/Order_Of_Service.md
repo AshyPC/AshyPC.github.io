@@ -2,54 +2,55 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 17th November, 2024
+### Order of Service Sunday, 24th November, 2024
 
-**Call to Worship** (Psalm 116:12-14) / Opening prayer (John A)
+**Call to Worship** (Ps. 107:1-3) / Opening prayer (John A)
 
-**Praise:** *Hark The Herald Angels Sing*
+**Praise:** *Our God Is For Us*
 
-**Bible Reading:** Isaiah 9:1-7 (Seng T)
+**Bible Reading:** Revelation 21:1-8 (MarJo A)
 
 **Announcements** (John A)
-    • Special Welcome to Lazlo & Eva Mihalyi this morning
+    • Special Welcome to Chris Siriweera this morning
 
 **Sunday School:** (Mook)
 
-**Praise:** *The Lord Is My Salvation*
+**Praise:** *TO Lord My Rock and My Redeemer*
+
+**Introduction** Chris Siriweera & MDC (ML)
  
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** Luke 2:8-20 (Pam W)
+**Bible Reading:** Psalm 121 (Seng T)
 
-**Praise:** *What Child Is This?* (OFFERING)
+**Praise:** *The Lord Is My Salvation* (OFFERING)
 
-**Sermon:**  “SOMEONE NEEDS TO HEAR THE GOOD NEWS” (Mook)
+**Sermon:**  “HOW TO MAKE OUR WAY THROUGH LIFE” (Chris Siriweera)
 
-**Praise:** *Yet Not I But Through Christ In Me*
+**Praise:** *I Lift My Eyes*
 
-**Benediction**  (Mook L)
+**Benediction**  (Chris S)
 
 
 **Sermon Outline**
 
-“SOMEONE NEEDS TO HEAR THE GOOD NEWS” (Luke 2:8-20)
+“HOW TO MAKE OUR WAY THROUGH LIFE”   (Rev. 21:1-8; Psalm 121)
 Introduction
 
- 1. To whom was it announced?
-
- 2. What was the message?
-
- 3. Gloria, in excelsis deo
+ 1. God our Provider
+ 2. God our Preserver
+ 3. God our Protector
  
 Conclusion
 
 
-Opening Prayer (Psalm 116:12-14)
-[12] What shall I render to the Lord for all his benefits to me?
-[13] I will lift up the cup of salvation and call on the name of the Lord,
-[14] I will pay my vows to the Lord in the presence of all his people.
-O Lord our God, we thank You that we are gathered here today to worship You, Who have promised to be with us. We thank You that we see Your promise fulfilled in the birth of Jesus in a humble situation-a small town full of people busy registering in a Roman census. A birth so ordinary, yet announced by angels to chosen witnesses.
-We thank You for witnesses who did not remain silent but shared the good news far and wide, eventually reaching us, who heard and responded. We thank You that we have received the benefits of that Good News, the gospel, and have turned back to You.
-We therefore lift our voices, call upon Your Name, and seek to fulfill our commitment to declare that Jesus is is no longger a helpless babe in a manger, but truly King of kings! 
+Opening Prayer (Psalm 107:1-3)
+[1] Oh give thanks to the Lord, for He is good, for His steadfast love endures forever!
+[2] Let the redeemed of the Lord say so, whom He has redeemed from trouble
+[3] and gathered in from the lands, from the east and from the west, from the north and from the south.
+Heavenly Father, we thank You that You are perfectly GOOD, and Your love remains steadfast towards Your redeemed people.
+We thank You that we are a part of Your gathered people, even though we are far to the south – a long way from Jerusalem and the promised land. Yet by Your grace You have brought us near, so that we can know our greatest need and Your great salvation.
+We thank You that we can freely gather as the redeemed of the Lord, to declare Your love, Your mercy, Your wisdom and Your sovereign power.
+We ask that by Your Holy Spirit we may give You true honour as we hear and read Your Word, as we bring our petitions before You, as we submit to the teaching and preaching of Your servant Chris, and as we encourage one another in fellowship together. May we lift up the Name of Jesus and enthrone Him on our praises today.
 In His Mighty Name we pray, Amen.
-[Hark The Herald Angels Sing]
+[Our God Is For Us]
