@@ -2,44 +2,43 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 1st December, 2024
+### Order of Service Sunday, 8th December, 2024
 
-**Call to Worship** (Psalm 107:21-22) / Opening prayer (John A)
+**Call to Worship** (Psalm 36:5-9) / Opening prayer (DM)
 
-**Praise:** *Jesus Shall Reign*
+**Praise:** *When all Your mercies, O my God (Rej 47)*
 
-**Bible Reading:** Isaiah 40:1-5 (Callum H)
+**Bible Reading:** 2 Corinthians 11:1-15  (Pam W)
 
 **Announcements** (John A)
-    • Margaret S report and emeritus
+    • Carols on the Lawn next week!!
+    • Morning Tea after the service
 
-**Sunday School:** (Mook)
+**Sunday School & Presentation:** (Mook)
 
-**Praise:** *Angels from the Realms of Glory*
+**Praise:** *Come Behold the Wondrous Mystery*
 
-**Prayer for the church and the world** (Mook L)
+**Prayer for the church and the world** (Jan F)
 
-**Bible Reading:** Luke 1:26-45 (Tim A)
+**Bible Reading:** 1 John 2:18-27; 4:1-6 (John A)
 
-**Praise:** *Midnight Clear (Love Song)* (OFFERING)
+**Praise:** *Blessed Jesus at Your Word (Rej 253)* (OFFERING)
 
-**Sermon:**  “THE LEAP OF JOY” (Chris Siriweera)
+**Sermon:**  “MAKING THE GOOD CONFESSION” (DM)
 
-**Praise:** *Tell Out My Soul (Rejoice 168)*
+**Praise:** *O Church Arise*
 
-**The Lord’s Supper**
-
-**Praise:** The Power of the Cross
-
-**Benediction**  (Chris S)
+**Benediction**  (DM)
 
 
 **Sermon Outline**
 
-“THE LEAP OF JOY”   (Luke 1:26-45)
+“MAKING THE GOOD CONFESSION ”  (1 John 4:1-6)
 Introduction
 
- 1. Two Women
- 2. Two Women
+ 1. Testing the prophets
+ 2. The true Prophet Jesus Christ
+ 3. Overcoming the false prophet
+ 4. The World and the Church
 
 Conclusion
