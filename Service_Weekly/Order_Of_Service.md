@@ -2,43 +2,47 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 8th December, 2024
+### Order of Service Sunday, 15th December, 2024
 
-**Call to Worship** (Psalm 36:5-9) / Opening prayer (DM)
+**Call to Worship** (Psalm 48:1-2) / Opening prayer (John A)
 
-**Praise:** *When all Your mercies, O my God (Rej 47)*
+**Praise:** *And Can It Be*
 
-**Bible Reading:** 2 Corinthians 11:1-15  (Pam W)
+**Bible Reading:** Jeremiah 31:31-34  (Tim A)
 
 **Announcements** (John A)
-    • Carols on the Lawn next week!!
+    • Welcome to Jordan O’Hara
     • Morning Tea after the service
+    • Carols on the Lawn today!! Korean church early
 
-**Sunday School & Presentation:** (Mook)
+**Sunday School:** (Mook)
 
-**Praise:** *Come Behold the Wondrous Mystery*
+**Praise:** *Praise My Soul the King of Heaven*
 
-**Prayer for the church and the world** (Jan F)
+**Prayer for the church and the world** (John A)
 
-**Bible Reading:** 1 John 2:18-27; 4:1-6 (John A)
+**Bible Reading:** Exodus 24:1-11 (MarJo A)
 
-**Praise:** *Blessed Jesus at Your Word (Rej 253)* (OFFERING)
+**Praise:** *Before the Throne of God Above* (OFFERING)
 
-**Sermon:**  “MAKING THE GOOD CONFESSION” (DM)
+**Sermon:**  “APPROACHING THE UNAPPROACHABLE GOD” (Jordan O)
 
-**Praise:** *O Church Arise*
+**Praise:** *Only A Holy God*
 
-**Benediction**  (DM)
+**Benediction**  (JO)
 
 
 **Sermon Outline**
 
-“MAKING THE GOOD CONFESSION ”  (1 John 4:1-6)
+“APPROACHING THE UNAPPROACHABLE GOD”   (2 Kings 17)
 Introduction
-
- 1. Testing the prophets
- 2. The true Prophet Jesus Christ
- 3. Overcoming the false prophet
- 4. The World and the Church
-
+    1. Inconceivable but True
+    2. The Unapproachable God
+    3. ...who makes himself approachable for Israel
+        1. Faithfulness
+        2. Forgiveness
+        3. Fellowship
+    4. ...who makes himself approachable for us
+    5. Approaching the Unapproachable God Today
 Conclusion
+
