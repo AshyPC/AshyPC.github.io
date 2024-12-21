@@ -2,47 +2,44 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 15th December, 2024
+### Order of Service Sunday, 22nd December, 2024
 
-**Call to Worship** (Psalm 48:1-2) / Opening prayer (John A)
+**Call to Worship** (Rev 4:11) / Opening prayer (John A)
 
-**Praise:** *And Can It Be*
+**Praise:** *All Hail the Power of Jesus’ Name*
 
-**Bible Reading:** Jeremiah 31:31-34  (Tim A)
+**Bible Reading:** Mark 7:14-23 (Seng T)
 
 **Announcements** (John A)
-    • Welcome to Jordan O’Hara
-    • Morning Tea after the service
-    • Carols on the Lawn today!! Korean church early
+    • Lunch next Sunday (29th) to finish the year. Contact Gaye to know how to help
+    • Christmas Day service commences 9:30am
+    • WARNING: water leak behind the hall – path is slippery and risky
 
-**Sunday School:** (Mook)
+**Carols & Children’s Video:** (Mook)
 
-**Praise:** *Praise My Soul the King of Heaven*
+**Praise:** *Midnight Clear (Love Song)*
 
-**Prayer for the church and the world** (John A)
+**Prayer for the church and the world** (Mook)
 
-**Bible Reading:** Exodus 24:1-11 (MarJo A)
+**Bible Reading:** Ephesians 2:1-10 (Rachel D)
 
-**Praise:** *Before the Throne of God Above* (OFFERING)
+**Praise:** *Holy Holy Holy* (OFFERING)
 
-**Sermon:**  “APPROACHING THE UNAPPROACHABLE GOD” (Jordan O)
+**Bible reading:** John 1:1-5, 14-18 (ML)
 
-**Praise:** *Only A Holy God*
+**Sermon:**  “THE WORD: THE PERFECT SELF-EXPRESSION OF GOD” (Mook)
 
-**Benediction**  (JO)
+**Praise:** *Hark! The Herald Angels Sing*
+
+**Benediction**  (Mook)
 
 
 **Sermon Outline**
 
-“APPROACHING THE UNAPPROACHABLE GOD”   (2 Kings 17)
+“THE WORD: THE PERFECT SELF-EXPRESSION OF GOD”   (John 1:1, 14)
 Introduction
-    1. Inconceivable but True
-    2. The Unapproachable God
-    3. ...who makes himself approachable for Israel
-        1. Faithfulness
-        2. Forgiveness
-        3. Fellowship
-    4. ...who makes himself approachable for us
-    5. Approaching the Unapproachable God Today
+    1. The Word in creation, revelation, and salvation
+    2. The problem with our self-expression
+    3. The Word’s love and peace
 Conclusion
 
