@@ -2,44 +2,27 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 22nd December, 2024
+### Order of Service Christmas Day, 25th December, 2024
 
-**Call to Worship** (Rev 4:11) / Opening prayer (John A)
-
-**Praise:** *All Hail the Power of Jesus’ Name*
-
-**Bible Reading:** Mark 7:14-23 (Seng T)
+**Call to Worship** (Luke 2:29-32) / Opening prayer (John A)
 
 **Announcements** (John A)
-    • Lunch next Sunday (29th) to finish the year. Contact Gaye to know how to help
-    • Christmas Day service commences 9:30am
-    • WARNING: water leak behind the hall – path is slippery and risky
+    • Lunch next Sunday (29th) to finish the year. (Contact Gaye to know how to help)
+    
+**Praise:** *Angels from the Realms of Glory (Rejoice)*
 
-**Carols & Children’s Video:** (Mook)
+**Praise:** *O Holy Night*
 
-**Praise:** *Midnight Clear (Love Song)*
+**Bible Reading:** Galatians 4:1-7 (Tim A)
 
-**Prayer for the church and the world** (Mook)
+**Children’s Video:** Matthew 1 (Mook)
 
-**Bible Reading:** Ephesians 2:1-10 (Rachel D)
+**Praise:** *Mary’s Boy Child (Special offering for this month – Flemington Mission)*
 
-**Praise:** *Holy Holy Holy* (OFFERING)
+**Bible Reading:** Matthew 1:18-25 (Seng T)
 
-**Bible reading:** John 1:1-5, 14-18 (ML)
+**Sermon:**  “GIFT OF CHRISTMAS: ADOPTION” (Mook)
 
-**Sermon:**  “THE WORD: THE PERFECT SELF-EXPRESSION OF GOD” (Mook)
-
-**Praise:** *Hark! The Herald Angels Sing*
+**Praise:** *Joy to the World*
 
 **Benediction**  (Mook)
-
-
-**Sermon Outline**
-
-“THE WORD: THE PERFECT SELF-EXPRESSION OF GOD”   (John 1:1, 14)
-Introduction
-    1. The Word in creation, revelation, and salvation
-    2. The problem with our self-expression
-    3. The Word’s love and peace
-Conclusion
-
