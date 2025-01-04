@@ -2,27 +2,44 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Christmas Day, 25th December, 2024
+### Order of Service Sunday, 5th January, 2025
 
-**Call to Worship** (Luke 2:29-32) / Opening prayer (John A)
+**Call to Worship** (Ps 103:1-5 ) / Opening prayer (Douglas M)
+
+**Praise:** *Praise to the Holiest in the height (Rej! 64)*
+
+**Bible Reading:** John 13:1-17; 31-35  (Callum H)
 
 **Announcements** (John A)
-    • Lunch next Sunday (29th) to finish the year. (Contact Gaye to know how to help)
-    
-**Praise:** *Angels from the Realms of Glory (Rejoice)*
+    • New seating layout experiment for this month
+    • Morning Tea and fellowship after the service
 
-**Praise:** *O Holy Night*
+**Children’s Talk** (Mook L)
 
-**Bible Reading:** Galatians 4:1-7 (Tim A)
+**Praise:** *O Church Arise*
 
-**Children’s Video:** Matthew 1 (Mook)
+**Prayer for the church and the world**  (Mook L)
 
-**Praise:** *Mary’s Boy Child (Special offering for this month – Flemington Mission)*
+**Bible Reading:** 1 John 4:7-16 (Seng T)
 
-**Bible Reading:** Matthew 1:18-25 (Seng T)
+**Praise:** What Love My God (Offering)
 
-**Sermon:**  “GIFT OF CHRISTMAS: ADOPTION” (Mook)
+**Sermon:**  “GOD IS LOVE” (DM)
 
-**Praise:** *Joy to the World*
+**Praise:** *For the bread and for the wine (Rej! 354)*
 
-**Benediction**  (Mook)
+**The Lord’s Supper**
+
+**Praise:** *The tender love a father has (Rej! 68)*
+
+**Benediction**  (DM)
+
+
+**Sermon Outline**
+
+“GOD IS LOVE”   (1 John 4:7-16)
+Introduction
+1./ God is love
+2./ God has displayed his love
+3./ Learn to love the way God loves
+Conclusion
