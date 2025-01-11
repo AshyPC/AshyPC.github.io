@@ -3,42 +3,26 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## including Prayer of Confession
-## 15th December 2024
+## 12th January 2025
 
-__Psalm 143:1__ 
-    _Hear my prayer, O Lord; give ear to my pleas for mercy!_
-	_In Your faithfulness answer me, in Your righteousness!_
+__Matthew 1:23__ 
+    _"Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel” (which means, God with us)._
     
+[Thanks for Offering]
 
-We come now to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
+__Thanks to God__
+O Lord, we thank You that we can gather today to bring You our praises, not because we are good but because You are Good and Perfect, and You are With Us. We have put away the decorations of Christmas and moved into a new year but we continue to give thanks for the gift of our salvation because Jesus came as a helpless babe, lived the perfect life which we could not, and then won the victory over sin and death for us in the Cross and the Resurrection.
 
-__Adoration__
-God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
+__The Wide World... and the Wider Church__
+With our natural understanding, we look at this world we live in and wonder what the year has in store. We see so much trouble, division and unrest, yet we remain hopeful because You are God With Us. We continue to pray for the peace of Jerusalem, and we pray against the resurgence of anti-Semitism that remains strong around the world. We trust Your Word which declares that Israel remains Your chosen people, and we are Yours by Your grace alone.
 
-__Confession__
-But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have sullied the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+We also continue to pray that the Prince of Peace would bring the peace the world longs for, in the Middle East, Ukraine, and other trouble spots not reported in the news. In this State, where we have known large bushfires, we pray for those in California who have lost everything in the wildfires which are still raging.
 
-__Thanksgiving__
-Yet, we thank You that You have not abandoned us to our condition but rescued us from our sin. We thank You for the special grace of salvation, for the coming of Jesus as a babe, which we remember and celebrate at this season each year. 
+We again pray for our nation, our State and our communities to turn back to You. We for those who came to the Carols on the Lawn. We pray that the seeds sown will bear fruit in changed lives. We pray for our public witness to strengthen during this year, even while we seek the man of Your choosing to lead in the work here.
 
-Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+__Ashburton__
+As well as our public witness, we pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We especially pray for Margaret Sanders still recovering following her fall, and Alan Freer, in Casey hospital after two falls. We thank You for the skilled medical care he is receiving and pray for successful surgery to come. We also pray for Diane Cocking to maintain her health and thank you for the regular medical attention she receives for her heart condition.
 
-We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns in glory and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
+We thank You for Your Word which calls us to see beyond our present situation, and to fix our eyes on eternal things. Help us we pray to look up to You and remember the great salvation You have provided in Jesus. We pray for opportunities to bless others wherever we go.
 
-__Supplication: The Wider World__
-In the wider world, we continue to pray for the nations and the peoples at war, in the Ukraine and the Middle East in particular. We pray for the unreported ministries of Your people on the fringes of the war zones, aiding the refugees and other victims of the fighting. We remember Lazlo and Eva Mihalyi preparing to rejoin their team in Eastern Europe. Strengthen them and prepare them for the work You have called them to with the churches in that region.
-
-We pray also for our own nation where we are ashamed of the attacks against Jewish people and places, where we used to uphold a respectful and tolerant Australian way of life. We pray that all Australians would realise what is happening, and reject the anti-Semitism on display.
-
-__... and the wider Church__
-We pray also for Your people in churches throughout this land. Strengthen us, keep us faithful despite the changes that have overtaken us so quickly in recent times. We thank You for the preaching of Your Word and pray for Your Truth to be heard clearly, for Your wisdom to be restored to our nation in both public arenas and in private lives.
-
-
-__Supplication: Ashburton__
-Here in Ashburton we welcome and pray for Jordan as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word.
-
-Finally, we pray for ourselves in the service of the Kingdom. We look forward to the Carols on the Lawn this afternoon and pray for visitors to take in the true meaning of Christmas as we celebrate the coming of Jesus rather than the shopping and feasting which is so prominent. We thank You that we are a part of the work of spreading the Good News, and pray for similar events in other places to also bring the real Good News of Your grace and favour to people everywhere. As people think of gift-giving, we pray for a realization that You have given the greatest gift of all.
-
-In Jesus Name we pray, Amen.
-
+In His Precious Name we pray, Amen.

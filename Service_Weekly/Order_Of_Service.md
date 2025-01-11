@@ -2,44 +2,46 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 5th January, 2025
+### Order of Service Sunday, 12th January, 2025
 
-**Call to Worship** (Ps 103:1-5 ) / Opening prayer (Douglas M)
+**Call to Worship** (Psalm 84:1-5) / Opening prayer (John A)
 
-**Praise:** *Praise to the Holiest in the height (Rej! 64)*
+**Praise:** *Christian’s Daily Prayer*
 
-**Bible Reading:** John 13:1-17; 31-35  (Callum H)
+**Praise:** *How Great Thou Art*
+
+**Video:** (Mook L - short intro)
 
 **Announcements** (John A)
-    • New seating layout experiment for this month
-    • Morning Tea and fellowship after the service
+     • Morning Tea and fellowship after the service
 
-**Children’s Talk** (Mook L)
+**Sunday School** (Mook L)
 
-**Praise:** *O Church Arise*
+**Praise:** *My God Is All I Need* (Offering)
 
-**Prayer for the church and the world**  (Mook L)
+**Prayer for the church and the world**  (John A)
 
-**Bible Reading:** 1 John 4:7-16 (Seng T)
+**Bible Reading:** Philippians 1:18b-30 (Seng T)
 
 **Praise:** What Love My God (Offering)
 
-**Sermon:**  “GOD IS LOVE” (DM)
+**Sermon:**  “TO LIVE IS CHRIST, AND TO DIE IS GAIN” (Mook L)
 
-**Praise:** *For the bread and for the wine (Rej! 354)*
+**Praise:** *Christ Our Hope in Life and Death*
 
-**The Lord’s Supper**
+**Prayer for the Oakes**
 
-**Praise:** *The tender love a father has (Rej! 68)*
+**Video**
 
-**Benediction**  (DM)
+**Praise:** *I Set My Hope*
+
+**Benediction**  (Mook L)
 
 
 **Sermon Outline**
-
-“GOD IS LOVE”   (1 John 4:7-16)
+“TO LIVE IS CHRIST, AND TO DIE IS GAIN”   (Philippians 1:21)
 Introduction
-1./ God is love
-2./ God has displayed his love
-3./ Learn to love the way God loves
+    1. What is your expectation and hope?
+    2. Look forward to departing
+    3. Let your manner be worthy of the gospel
 Conclusion
