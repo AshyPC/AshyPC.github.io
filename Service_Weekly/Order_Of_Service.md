@@ -2,46 +2,49 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 26th January, 2025 Australia Day
+### Order of Service Sunday, 2nd February, 2025 Communion
 
-**Call to Worship** (Ps 117:1-2) / Opening prayer (John A)
+**Call to Worship**  (John 15:5-11) / Opening prayer (Douglas M)
 
-**Praise:** *Reformation Song*
+**Praise:** *Now Thank We All Our God (Rej! 88)*
 
-**Bible Reading** John 1:1-5 (Seng T)
+**Bible Reading** Matthew 16:13-28 (Timothy A)
 
-**Announcements** (John A, Mook L)
-    • No Evening Prayer Service Tonight (starting next month)
-    • Congregational Meeting (2 February - check your names)
-    • ML - Church Camp (17-19 October)
-    • ML - Community Groups (different setup)
-    • ML - Lunch on 9 February
-    
-**Blue Moose Review** (Jack W, Stephen A)
+**Announcements** (John A)
+    •  Congregational meeting (before morning tea?)
+    •  Alan & Jan Freer
+
     
 **Sunday School** (Mook L)
 
-**Praise:** *Ancient of Days*
+**Praise:** *What Love My God*
 
-**Prayer for the church and the world**  (Mook L)
+**Prayer for the church and the world**  (John A)
 
-**Bible Reading:** Hebrews 1:1-4 (John A)
+**Bible Reading:** 1 John 2:18-27, 1 John 4:13-16 (Pamela W)
 
-**Mission Spot special** PresAID video
+**Praise:** *The God of Abraham Praise (Rej! 26)* (Offering)
 
-**Praise:** *Turn Your Eyes* (Offering)
+**Sermon:**  “THE SPIRIT OF TRUTH” (DM)
 
-**Sermon:**  “INTRODUCTION TO HEBREWS: RUNNING THE RACE WITH ENDURANCE” (Mook L)
+**Praise:** *In Memory Of The Saviour’s Death (Rej! 360)*
 
-**Praise:** *He Leadeth Me*
+**Welcome into Membership**
 
-**Benediction**  (Mook L)
+**The Lord’s Supper**
+
+**Praise:** *Let Saints On Earth Together Sing* (Rej! 309)
+
+**Benediction**  (DM)
 
 
 **Sermon Outline**
-“RUNNING THE RACE WITH ENDURANCE”   (Hebrews 1:1-4)
+“THE SPIRIT OF TRUTH” (1 John 4:13-16)
 Introduction
-    1. The purpose of the letter
-    2. How God speaks today
-    3. Follow who is trustworthy
+Q: How can we know we belong to God?
+A: The Spirit helps us to:
+    1. Believe the Apostle’s witness
+    2. Confess Jesus is God’s Son
+    3. Know and believe God’s love for us
+    4. Believe that God is love
 Conclusion
