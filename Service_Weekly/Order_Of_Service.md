@@ -2,49 +2,41 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 2nd February, 2025 Communion
+### Order of Service Sunday, 9th February, 2025 Communion
 
-**Call to Worship**  (John 15:5-11) / Opening prayer (Douglas M)
+**Call to Worship**   ‭(1 Chronicles 16:23-25) / Opening prayer (John A)
 
-**Praise:** *Now Thank We All Our God (Rej! 88)*
+**Praise:** *Praise My Soul the King of Heaven*
 
-**Bible Reading** Matthew 16:13-28 (Timothy A)
+**Bible Reading** Acts 4:1-12 (Callum H)
 
 **Announcements** (John A)
-    •  Congregational meeting (before morning tea?)
-    •  Alan & Jan Freer
-
+    •  Welcome Mathys family
+    •  Explain more about Selection Committee
+    •  Evening Service (23rd) - Pray for selection committee, community groups, plans for the year etc.
     
 **Sunday School** (Mook L)
 
-**Praise:** *What Love My God*
+**Praise:** *Across the Lands*
 
-**Prayer for the church and the world**  (John A)
+**Prayer for the church and the world**  (Mook L)
 
-**Bible Reading:** 1 John 2:18-27, 1 John 4:13-16 (Pamela W)
+**Bible Reading:** Hebrews 1 (John A)
 
-**Praise:** *The God of Abraham Praise (Rej! 26)* (Offering)
+**Praise:** *O Lord My Rock and My Redeemer* (Offering)
 
-**Sermon:**  “THE SPIRIT OF TRUTH” (DM)
+**Sermon:**  “JESUS: SUPERIOR TO ANGELS” (Mook L)
 
-**Praise:** *In Memory Of The Saviour’s Death (Rej! 360)*
+**Praise:** *You Alone Can Rescue*
 
-**Welcome into Membership**
-
-**The Lord’s Supper**
-
-**Praise:** *Let Saints On Earth Together Sing* (Rej! 309)
-
-**Benediction**  (DM)
+**Benediction**  (Mook L)
 
 
 **Sermon Outline**
-“THE SPIRIT OF TRUTH” (1 John 4:13-16)
+“JESUS: SUPERIOR TO ANGELS”   (Hebrews 1:4-14)
 Introduction
-Q: How can we know we belong to God?
-A: The Spirit helps us to:
-    1. Believe the Apostle’s witness
-    2. Confess Jesus is God’s Son
-    3. Know and believe God’s love for us
-    4. Believe that God is love
+    1. Why are angels addressed?
+    2. Jesus' Supreme Divinity and Sovereignty
+    3. Jesus our only Mediator
 Conclusion
+
