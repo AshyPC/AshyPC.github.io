@@ -2,41 +2,41 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 9th February, 2025 Communion
+### Order of Service Sunday, 23rd February, 2025
 
-**Call to Worship**   ‭(1 Chronicles 16:23-25) / Opening prayer (John A)
+**Call to Worship**   ‭(Isaiah 26:4) / Opening prayer (John A)
 
-**Praise:** *Praise My Soul the King of Heaven*
+**Praise:** *Hallelujah for the Cross*
 
-**Bible Reading** Acts 4:1-12 (Callum H)
+**Bible Reading** Romans 3:19-31 (MarJo A)
 
 **Announcements** (John A)
-    •  Welcome Mathys family
-    •  Explain more about Selection Committee
-    •  Evening Service (23rd) - Pray for selection committee, community groups, plans for the year etc.
+    •  Evening Service tonight
+    •  Allan Freer
     
 **Sunday School** (Mook L)
 
-**Praise:** *Across the Lands*
+**Praise:** *Will Your Anchor Hold*
 
-**Prayer for the church and the world**  (Mook L)
+**Prayer for the church and the world**  (John A)
 
-**Bible Reading:** Hebrews 1 (John A)
+**Bible Reading:** Hebrews 2:1-4 (Tim A)
 
-**Praise:** *O Lord My Rock and My Redeemer* (Offering)
+**Praise:** *All I Have Is Christ* (Offering)
 
-**Sermon:**  “JESUS: SUPERIOR TO ANGELS” (Mook L)
+**Sermon:**  “ARE WE TOO CASUAL?” (Mook L)
 
-**Praise:** *You Alone Can Rescue*
+**Praise:** *He Will Hold Me Fast*
 
 **Benediction**  (Mook L)
 
 
 **Sermon Outline**
-“JESUS: SUPERIOR TO ANGELS”   (Hebrews 1:4-14)
+“ARE WE TOO CASUAL?”   (Hebrews 2:1-4)
 Introduction
-    1. Why are angels addressed?
-    2. Jesus' Supreme Divinity and Sovereignty
-    3. Jesus our only Mediator
+    1. Pay Closer Attention
+    2. Drifting Away
+    3. Tragedy of neglecting salvation
+    4. Glory of the Gospel
 Conclusion
 

@@ -3,28 +3,26 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## 2nd February 2025
+## 23rd February 2025
 
-__Isaiah 51:7-8__ 
-    _[7]  “Listen to me, you who know righteousness, the people in whose heart is my law; fear not the reproach of man, nor be dismayed at their revilings._
-    _[8]  For the moth will eat them up like a garment, and the worm will eat them like wool, but my righteousness will be forever, and my salvation to all generations.”_
+__Lamentations 3:55-58__ 
+    _“I called on your name, O Lord, from the depths of the pit; you heard my plea, ‘Do not close your ear to my cry for help!’ You came near when I called on you; you said, ‘Do not fear!’ “You have taken up my cause, O Lord; you have redeemed my life._
    
 __Thanks to God__
-O Lord, we thank You that You have planted Your law into our hearts. We can praise You, not because we are good but because You are Good and Perfect, and gracious and merciful. We thank You for the gift of our salvation because Jesus began as a helpless babe, but went on to live the perfect life which we could not, and then won the victory over sin and death for us in the Cross and the Resurrection. We thank You that He is now ascended on high and intercedes for us. We thank You for the presence of the Holy Spirit our Comforter, Guide and Teacher of all truth. We thank You for the righteousness we enjoy because Jesus has given us His righteousness and taken away our weak, sinful, self-centred-ness, which kept putting us on the throne of our lives, instead of putting You there.
+O Lord, we thank You that we can gather today to bring You our praises, not because we are good but because You answered when we called out to You. You came near when we needed to be rescued. You took up our cause and redeemed our lives by sending Jesus to Earth, to do for us what we could not. He took the penalty for our sin and nailed it to the Cross. Then You raised Him up in the Resurrection and exalted Him to the highest throne of Heaven.
 
 __The Wide World... and the Wider Church__
-In this world, we see so much of the reproach of man that it is easy to forget Your grace and instead become fearful and dismayed.
-We thank You for the reminder of the true victory of the Cross and the Resurrection, as we share in the Lord’s Supper today, and as we bless one another in fellowship of the visible Body of Christ, the Church universal, which continues to grow daily under Your guiding hand. We remain hopeful because You are God With Us, as we recall Jesus’s promise that He would not leave us as orphans.
+With our limited natural understanding, we can look at this world we live in and wonder what is happening. But we pray for this world because You see everything, and know all, and we hold on to the fact that You remain sovereignly in control. We continue to pray for the peace of Jerusalem, and give thanks for the release of hostages, even though that means distress for the families of those who died in captivity. We trust Your Word which declares that Israel remains Your chosen people, and that we are Yours by Your grace alone.
 
-We continue to pray for the peace of Jerusalem, and give thanks for the fragile ceasefire and the release of some hostages.
+We also continue to pray that the Prince of Peace would bring the peace the world longs for, in the Middle East, Ukraine, and other trouble spots not reported in the news. We pray for the work of Your people missionaries and aid agencies which are ministering to the people fleeing those conflicts.
 
-We pray for restoration of the Word of God as the dominant wisdom of our nation, for the Truth to be respected and honoured in public life and service. We pray that Your church would again be sought out as we uphold Your Word, firmly but graciously. We continue to pray for our nation, our State and our communities to turn back to You.
+We again pray for our nation, our State and our communities to turn back to You. We thank You for the peace we enjoy here, and also for the work of Your people and churches bringing care to those in need within our own borders. We pray for continued strength for the workers of the Flemington Mission, for PresAID, and for the Mathys family as they work towards their return to PNG.
 
 __Ashburton__
-As well as our public witness, we pray for ourselves as we seek to keep the unity of the faith and encourage each other. We especially pray for Alan Freer, still in hospital after a setback with his recovery from the hip replacement surgery. We thank You for the skilled medical care he is receiving and pray for his strength to make a full recovery. We pray also for Douglas and Joan, giving thanks for Joan’s recovery so far, and pray for that to continue in full measure.
+We pray for our public witness to strengthen during this year, even while we seek the man of Your choosing to lead in the work here. We ask for Your hand to be on the Selection Committee and Douglas Milne our Moderator, as they work to find that Godly one whom You are preparing.
 
-We pray for our congregational meeting to follow. Guide us into all wisdom as we set about the task of finding the man of Your choosing to lead in the work here. We pray that You would be already working in his life to prepare him for that calling to work in this part of the Vineyard.
+We pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We especially pray for Alan Freer, in Kingston Rehab, as he works to recover fuller movement in his legs after the hip replacement. 
 
-We thank You for Your Word which calls us to seek to live according to the Truth as the Holy Spirit reveals it to us from Your written Word. May we always see Your Word as more than paper and ink but as the Living oracles of the One True God, Who sustains this world by Your Word.
+We thank You for Your Word which calls us to see beyond our present situation, and to fix our eyes on eternal things. Lead us Holy Spirit to become more diligent, more obedient and more faithful every day, as You plant the Word deep into our hearts. We pray for opportunities to bless others wherever we go.
 
 In Jesus Precious Name we pray, Amen.
