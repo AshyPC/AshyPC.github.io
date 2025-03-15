@@ -3,26 +3,27 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church
-## 23rd February 2025
+## 16th March 2025
 
-__Lamentations 3:55-58__ 
-    _“I called on your name, O Lord, from the depths of the pit; you heard my plea, ‘Do not close your ear to my cry for help!’ You came near when I called on you; you said, ‘Do not fear!’ “You have taken up my cause, O Lord; you have redeemed my life._
+__Psalm 80:17-19__ 
+    _“[17] But let your hand be on the man of your right hand, the son of man whom you have made strong for yourself! [18] Then we shall not turn back from you; give us life, and we will call upon your name! [19]  Restore us, O Lord God of hosts! Let your face shine, that we may be saved!_
    
 __Thanks to God__
-O Lord, we thank You that we can gather today to bring You our praises, not because we are good but because You answered when we called out to You. You came near when we needed to be rescued. You took up our cause and redeemed our lives by sending Jesus to Earth, to do for us what we could not. He took the penalty for our sin and nailed it to the Cross. Then You raised Him up in the Resurrection and exalted Him to the highest throne of Heaven.
+O Lord, we thank You that we can gather today to bring You our praises, both here in person and online for those who can’t be with us. We continue to give thanks for the gift of our salvation because Jesus came as a helpless babe, lived the perfect life which we could not, and then won the victory over sin and death for us in the Cross and the Resurrection. He is truly the Son of Man at Your right hand, our Supreme Shepherd of the flock. 
 
 __The Wide World... and the Wider Church__
-With our limited natural understanding, we can look at this world we live in and wonder what is happening. But we pray for this world because You see everything, and know all, and we hold on to the fact that You remain sovereignly in control. We continue to pray for the peace of Jerusalem, and give thanks for the release of hostages, even though that means distress for the families of those who died in captivity. We trust Your Word which declares that Israel remains Your chosen people, and that we are Yours by Your grace alone.
+We began this year seeing so much trouble, division and unrest, and we look again this far into the year to see still much turmoil around this world. Yet we remain hopeful because You are God Who restores. Your face still shines on this world. We continue to pray for the peace of Jerusalem, and for peace in Eastern Europe. We give thanks for various peace efforts, ceasefires, and negotiations instead of outright warfare.
 
-We also continue to pray that the Prince of Peace would bring the peace the world longs for, in the Middle East, Ukraine, and other trouble spots not reported in the news. We pray for the work of Your people missionaries and aid agencies which are ministering to the people fleeing those conflicts.
-
-We again pray for our nation, our State and our communities to turn back to You. We thank You for the peace we enjoy here, and also for the work of Your people and churches bringing care to those in need within our own borders. We pray for continued strength for the workers of the Flemington Mission, for PresAID, and for the Mathys family as they work towards their return to PNG.
+As well as man-made disasters, we see weather disasters too. We thank You for the easing of the force of Cyclone Alfred, so that the damage was not as serious as was expected, and we pray for the clean-up that has begun. We also pray for the churches and congregations affected by the storm and flood waters. May You strengthen and encourage them as they face the wearying task of cleaning up, drying out and replacing what was lost.
 
 __Ashburton__
-We pray for our public witness to strengthen during this year, even while we seek the man of Your choosing to lead in the work here. We ask for Your hand to be on the Selection Committee and Douglas Milne our Moderator, as they work to find that Godly one whom You are preparing.
+Here in Ashburton, we pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We continue to pray for Alan Freer, and his recovery rehabilitation after his operation. We thank You for Jan’s care for him and pray that Alan can quickly regain full use of his legs as he becomes accustomed to the replaced hip joint. We Give thanks for the medical care we enjoy in Australia, while we recognise that You are the True Healer and sustainer of our health.
 
-We pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We especially pray for Alan Freer, in Kingston Rehab, as he works to recover fuller movement in his legs after the hip replacement. 
+We pray for the Selection Committee and the search for a new pastor for the work here. Psalm 80 speaks prophetically of Jesus but we also see that You appoint men to the office of teaching elder, and we continue to trust that You have a man appointed to take up the vision for kingdom service here in Ashburton.
 
-We thank You for Your Word which calls us to see beyond our present situation, and to fix our eyes on eternal things. Lead us Holy Spirit to become more diligent, more obedient and more faithful every day, as You plant the Word deep into our hearts. We pray for opportunities to bless others wherever we go.
+We thank You for Your Word which calls us to see beyond our present situation, and to fix our eyes on eternal things. Help us we pray to look up to You and remember the great salvation You have provided in Jesus, and how lowly He became to secure for us a place with You in heaven. We pray that we will have ears to hear and hearts to understand and apply Your Word as Mook brings it to us today.
+
 
 In Jesus Precious Name we pray, Amen.
+
+We don’t often do this but let us conclude with the Lord’s Prayer as a reminder of our dependence upon God and His grace.

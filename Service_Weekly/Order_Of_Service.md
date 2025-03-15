@@ -2,41 +2,45 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 23rd February, 2025
+### Order of Service Sunday, 16th March, 2025
 
-**Call to Worship**   ‭(Isaiah 26:4) / Opening prayer (John A)
+**Call to Worship**   ‭(Isaiah 43:20-21) / Opening prayer (John A)
 
-**Praise:** *Hallelujah for the Cross*
+**Praise:** *And Can It Be*
 
-**Bible Reading** Romans 3:19-31 (MarJo A)
+**Bible Reading** RRomans 5:12-21 (Callum H)
 
 **Announcements** (John A)
-    •  Evening Service tonight
-    •  Allan Freer
+    • Successful working bee yesterday – BIG THANKS to everyone who came
+    • Selection Committee – Meeting after the lunch with Rev Milne 
+    • Women’s Workshop gathering 29th (slide)
+    • Community groups commencing this week
+    • Stick around for lunch today – Welcoming Newcomers
     
 **Sunday School** (Mook L)
 
-**Praise:** *Will Your Anchor Hold*
+**Praise:** *Only A Holy God*
 
-**Prayer for the church and the world**  (John A)
+**Mission Spot Video**
 
-**Bible Reading:** Hebrews 2:1-4 (Tim A)
+**Prayer for the church and the world**  (John A) with the Lord's Prayer
+ 
+**Bible Reading:** Hebrews 2:5-18 (Stephen A)
 
-**Praise:** *All I Have Is Christ* (Offering)
+**Praise:** *How Deep the Father’s Love For Us* (Offering)
 
-**Sermon:**  “ARE WE TOO CASUAL?” (Mook L)
+**Sermon:**  “THE PERFECT FOUNDER OF OUR SALVATION” (Mook L)
 
-**Praise:** *He Will Hold Me Fast*
+**Praise:** *Christ Our Hope In Life and Death*
 
 **Benediction**  (Mook L)
 
 
 **Sermon Outline**
-“ARE WE TOO CASUAL?”   (Hebrews 2:1-4)
+“THE PERFECT FOUNDER OF OUR SALVATION”   (Hebrews 2:5-18)
 Introduction
-    1. Pay Closer Attention
-    2. Drifting Away
-    3. Tragedy of neglecting salvation
-    4. Glory of the Gospel
+    1. The Son of Man
+    2. The Better Adam
+    3. The Faithful High Priest
 Conclusion
 
