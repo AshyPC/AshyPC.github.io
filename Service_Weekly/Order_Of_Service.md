@@ -2,45 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 16th March, 2025
+### Order of Service Sunday, 23rd March, 2025
 
-**Call to Worship**   ‭(Isaiah 43:20-21) / Opening prayer (John A)
+**Call to Worship**   ‭(Psalm 85:8-9) / Opening prayer (John A)
 
-**Praise:** *And Can It Be*
+**Praise:** *Immortal, invisible, God only wise (Rejoice 38)*
 
-**Bible Reading** RRomans 5:12-21 (Callum H)
+**Bible Reading** Psalm 5:1-12 (Rachel D)
 
 **Announcements** (John A)
-    • Successful working bee yesterday – BIG THANKS to everyone who came
-    • Selection Committee – Meeting after the lunch with Rev Milne 
+    • Evening Service next week
+    • Bible Study books have arrived
     • Women’s Workshop gathering 29th (slide)
-    • Community groups commencing this week
-    • Stick around for lunch today – Welcoming Newcomers
+    • Welcoming Brett Graham and his wife Cherine
     
 **Sunday School** (Mook L)
 
-**Praise:** *Only A Holy God*
+**Praise:** *O Lord, Your perfect righteousness (Rejoice 291)*
 
-**Mission Spot Video**
-
-**Prayer for the church and the world**  (John A) with the Lord's Prayer
+**Prayer for the church and the world**  (John A) with a prayer of confession
  
-**Bible Reading:** Hebrews 2:5-18 (Stephen A)
+**Bible Reading:** Ephesians 4:17-24 (Pam W)
 
-**Praise:** *How Deep the Father’s Love For Us* (Offering)
+**Praise:** *Take time to be holy (Rejoice 442)* (Offering)
 
-**Sermon:**  “THE PERFECT FOUNDER OF OUR SALVATION” (Mook L)
+**Sermon:**  “HEARING THE TRUTH” (Brett Graham)
 
-**Praise:** *Christ Our Hope In Life and Death*
+**Praise:** *Jesus, Your blood and righteousness (Rejoice 423)*
 
-**Benediction**  (Mook L)
+**Benediction**  (Brett G)
 
 
 **Sermon Outline**
-“THE PERFECT FOUNDER OF OUR SALVATION”   (Hebrews 2:5-18)
+“HEARING THE TRUTH”   (Ephesians 4:17-24)
 Introduction
-    1. The Son of Man
-    2. The Better Adam
-    3. The Faithful High Priest
+    1. Leave the life of darkness
+    2. Make a choice
+    3. Be captivated by Jesus
 Conclusion
 
