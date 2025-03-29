@@ -2,42 +2,41 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 23rd March, 2025
+### Order of Service Sunday, 30th March, 2025
 
-**Call to Worship**   ‭(Psalm 85:8-9) / Opening prayer (John A)
+**Call to Worship**   ‭(Psalm 30:4-5) / Opening prayer (John A)
 
-**Praise:** *Immortal, invisible, God only wise (Rejoice 38)*
+**Praise:** *Yet Not I But Through Christ In Me*
 
-**Bible Reading** Psalm 5:1-12 (Rachel D)
+**Bible Reading**  John 5:30-46 (Timothy A)
 
 **Announcements** (John A)
-    • Evening Service next week
-    • Bible Study books have arrived
-    • Women’s Workshop gathering 29th (slide)
-    • Welcoming Brett Graham and his wife Cherine
+    • Evening Service tonight 5pm
+    • Bible Study books please collect and pay $15 per copy
+    • Safe Church Training 5th April 2pm
+    • 
     
 **Sunday School** (Mook L)
 
-**Praise:** *O Lord, Your perfect righteousness (Rejoice 291)*
+**Praise:** *The Church’s One Foundation*
 
-**Prayer for the church and the world**  (John A) with a prayer of confession
+**Prayer for the church and the world**  (Mook L)
  
-**Bible Reading:** Ephesians 4:17-24 (Pam W)
+**Bible Reading:** Hebrews 2:14-3:6 (MarJo A)
 
-**Praise:** *Take time to be holy (Rejoice 442)* (Offering)
+**Praise:** *Consider Christ* (Offering)
 
-**Sermon:**  “HEARING THE TRUTH” (Brett Graham)
+**Sermon:**  “HOLDING FAST TO THE END” (Mook L)
 
-**Praise:** *Jesus, Your blood and righteousness (Rejoice 423)*
+**Praise:** *Turn Your Eyes*
 
-**Benediction**  (Brett G)
+**Benediction**  (Mook L)
 
 
 **Sermon Outline**
-“HEARING THE TRUTH”   (Ephesians 4:17-24)
+“HOLDING FAST TO THE END”   (Hebrews 3:1-6)
 Introduction
-    1. Leave the life of darkness
-    2. Make a choice
-    3. Be captivated by Jesus
+    1. Jesus' Church
+    2. Consider Christ
 Conclusion
 
