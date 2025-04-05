@@ -2,41 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 30th March, 2025
+### Order of Service Sunday, 6th April, 2025
 
-**Call to Worship**   ‭(Psalm 30:4-5) / Opening prayer (John A)
+**Call to Worship**   ‭( Revelation 19:11-16 ) / Opening prayer (Douglas Milne)
 
-**Praise:** *Yet Not I But Through Christ In Me*
+**Praise:** *Across The Lands*
 
-**Bible Reading**  John 5:30-46 (Timothy A)
+**Bible Reading**  John 1:29-42 (Pam W)
 
 **Announcements** (John A)
-    • Evening Service tonight 5pm
-    • Bible Study books please collect and pay $15 per copy
-    • Safe Church Training 5th April 2pm
-    • 
+    • 18 April Good Friday Service 9.30am
+    • 27 April Samuel & Dhruti Visit
+    • 30 April Wednesday EVENING Bible Study 7.30pm
+    • 8th April Tuesday 11am DAYTIME Bible Study
+    • Mook on leave from tomorrow to 28th April
     
-**Sunday School** (Mook L)
+**Sunday School Video** (Mook L)
 
-**Praise:** *The Church’s One Foundation*
+**Prayer for the church and the world**  (John A)
 
-**Prayer for the church and the world**  (Mook L)
+**Praise:** *I Will Glory In My Redeemer* (Offering)
  
-**Bible Reading:** Hebrews 2:14-3:6 (MarJo A)
+**Bible Reading:** John 16:1-15; 1 John 5:6-8 (Rachel D)
 
-**Praise:** *Consider Christ* (Offering)
+**Sermon:**  “JESUS CHRIST AND THE SPIRIT’S WITNESS” (DM)
 
-**Sermon:**  “HOLDING FAST TO THE END” (Mook L)
+**Praise:** *Here, O My Lord, I See You Face To Face (Rej 362) ~ V 1-4*
 
-**Praise:** *Turn Your Eyes*
+**Lord’s Supper**
 
-**Benediction**  (Mook L)
+**Praise:** *Here, O My Lord, I See You Face To Face (Rej 362) ~ V 5-6*
+
+**Benediction**  (DM)
 
 
 **Sermon Outline**
-“HOLDING FAST TO THE END”   (Hebrews 3:1-6)
+“JESUS CHRIST AND THE SPIRIT’S WITNESS”   (1 John 5:6-8)
 Introduction
-    1. Jesus' Church
-    2. Consider Christ
+    1. The witness of the water and the blood
+        a. why does John speak like this?
+        b. what is the message for us?
+    2. The witness of the Holy Spirit
+        a. the original events
+        b. the Gospel records
+        c. the Christian’s experience
 Conclusion
-
