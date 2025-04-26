@@ -2,41 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Easter Sunday, 20th April, 2025 
+### Order of Service Easter Sunday, 27th April, 2025 
 
-**Call to Worship**   ‭(Psalm 32:11 & Easter Greeting) / Opening prayer (John A)
+**Call to Worship & Opening Prayer** (Jordan O'Hara)
 
-**Praise:** *Old Rugged Cross*
+**Praise:** *Be Thou My Vision*
 
-**Bible Reading**  Isaiah 43:16-21 (Tim A)
+**Bible Reading**  Isaiah 53:3-9 (Seng T)
 
 **Announcements** (John A)
-    • We welcome Yuvi Malaiapan to our pulpit today. Yuvi is an elder at Surrey Hills, and a practising cardiologist
-    • Morning tea in the hall after the service
+    • We welcome back Jordan O'Hara to the pulpit today
+    • NO evening service
+    • Sunday School resumes next week
+    • Sam & Dhruti with us today
 
 **Sunday School Video** (John A)
 
-**Praise:** *In Christ Alone*
+**Praise:** *Reformation Song*
 
 **Prayer for the church and the world**  (John A)
 
-**Bible reading:** 2 Cor 5:16-21 (Stephen A)
+**Bible reading:** 1 Peter 2:11-25 (MarJo A)
 
-**Praise:** *Christ the Lord is Risen Today* (Offering)
+**Praise:** *To God Be The Glory* (Offering)
 
-**Sermon:**  “Benefits of New Creation” (Yuvi Malaiapan)
+**Sermon:**  “Witnesses in a Watching World” (Jordan O’Hara)
 
-**Praise:** *Christ Our Hope in Life and Death*
+**Praise:** *This Life I Live* by Emu Music
 
-**Benediction**  (Yuvi M)
+**Benediction**  (JO)
 
 
 **Sermon Outline**
 
-“Benefits of New Creation” (2 Cor 5:16-21)
-Introduction
-    1. New Creation: New Way of thinking
-    2. New Creation: Abiding Relationship in Christ
-    3. New Creation: Ambassadors for Christ
-Conclusion
+“Witnesses in a Watching World”   (1 Peter 2:11-25)
+
+Introduction: Bad Reviews
+
+    1. A Life of Visible Goodness
+    
+    2. A Life of Respectful Submission
+    
+    3. A Life in the Steps of Jesus
+    
+Conclusion: From Bad Reviews to Good Reviews
 

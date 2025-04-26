@@ -3,28 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 20th April 2025 Easter Sunday
+### 27th April 2025 post-Anzac Day
 
-__Revelation 15:3-4__ 
-_[3] And they sing the song of Moses, the servant of God, and the song of the Lamb, saying, “Great and amazing are your deeds, O Lord God the Almighty! Just and true are your ways, O King of the nations!_
-_[4] Who will not fear, O Lord, and glorify your name? For you alone are holy. All nations will come and worship you, for your righteous acts have been revealed.”_
+__John 15:13 KJV__ 
+_Greater love hath no man than this, that a man lay down his life for his friends._
 
 ### Thanks to God
-O Lord, we thank You that we can gather joyfully today after the apparent tragedy of Friday, when to our ordinary eyes all seemed lost. We thank You for the sacrifice of the Perfect Lamb Who declared from the Cross “It is finished!” and Who entrusted Himself into Your hands so that Perfect eternal righteousness could be revealed. The Resurrection is Your declaration that our sin has been dealt with finally and fully, and the way back into Your holy presence is now wide open for all who believe.
+Father God, we thank You that we can meet here today because Jesus laid down His life for His friends, and then took it up again to complete His victory over sin and death. We also thank You that others laid down their lives to defend this nation and protect our free way of life, built originally on the foundation of Your Word.
 
-We thank You that we have been released from the bondage to sin and can surrender our self-will to You, King of the nations and righteous ruler of our lives.
+We thank You that Your Word abides forever, even though today our nation has mostly turned its back on You, neglecting Your provision, despising the Cross, while still seeking the salvation we all need, for we have all sinned and fall short of Your Perfect glory. We all are not eligible for heaven until we surrender our self-will and submit to the Lordship of Jesus, the King of kings, Who is enthroned at Your right hand.
 
 ### The Wide World... and the Wider Church
-With our natural eyes we look at this world and see so many who do not acknowledge the King of the Nations. As they scoffed at the cross, so many today still scoff at the claims of the Gospel. We continue to pray for the return of the Prince of Peace Who will bring the peace the world longs for.
+On Friday last, many Australians and New Zealanders commemorated the service men and women who died to defend our nations and the freedoms we so easily enjoy. Not many of them know the true freedom from sin which we know through the work of You Holy Spirit in our lives. We pray for a revival of Your Word, for a hunger among the people around us, so that they might turn back to You.
 
-We also continue to pray for the peace of Jerusalem, as the opponents of the nation of Israel again choose not to negotiate for peace but to continue to wage a tragic war.
-
-We again pray for our nation, our State and our communities to turn back to You. We ask for wisdom as we ponder our responsibility to vote for Federal representatives soon. We pray that the Parliament will pass laws for the peace and good government of our nation, and that we may lead peaceful and quiet lives in all Godliness and holiness. We pray for good candidates, who will act with integrity in the service of the people. We especially thank You for those candidates who are believers, and ask that You strengthen them as they face glaring scrutiny during the election campaign. May they make their public stand with dignity and grace, bringing honour to Your Name.
+In this election time we ask for wisdom as we ponder our responsibility to vote for Federal representatives next Saturday. We pray that the Parliament will pass laws only for the peace and good government of our nation. We pray for good candidates, who will act with integrity in the service of the people. We pray also for integrity in public life, for diligence in service, and for proper accountability as representatives who are meant to act on behalf of the voters.
 
 ### Ashburton
-As well as our public witness, we pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We continue to pray for Alan Freer, as he progresses in his rehabilitation, and w thank You for the medical care we enjoy in this nation. We also pray for our study groups, as they learn from Your Word in our Hebrews series. Grant us clear minds to understand the meat of Your Word, and faithful hearts to live out the faith daily before a watching world. 
+Here we pray for ourselves as we build each other up in the faith, showing forth the great grace and mercy You have shown to us in Jesus. We pray that we also would live uprightly, persevering in all that we do, holding to what is right and pure, commendable and excellent. We continue to pray for Alan Freer, as he progresses in his rehabilitation, and for Levi as he adjusts to his medication again. Grant him rest to allow him to grow steadily stronger, and we pray for Steph and Callum to be at rest in You, as they raise him in Godliness according to Your will.
 
-We thank You for Yuvi bringing Your Word today, and  ask that we ponder the great gift of grace and mercy You have poured out upon us in the New Creation, resulting from the victory of the Cross and the Resurrection. Help us as we take the eternal perspective, and share the hope that we have as we look to see the Revelation to John fulfilled when Jesus returns.
+We pray for the work here, as we pray for one another, hear Your Word preached so that we prepare ourselves to share the Good News with others. Lead us in our study groups, as we learn from Your Word in our Hebrews series.
+
+We thank You for Sam and Dhruti and the Kingdom work they have done. Guide them in all wisdom as they seek Your will for the next work to which You will call them.
+
+We thank You for Jordan bringing Your Word today, and ask the Holy Spirit to apply it so that we can be ambassadors for Christ to a watching world. 
 
 In His Precious Name we pray, Amen.
+
+
+
 
