@@ -2,48 +2,49 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Easter Sunday, 27th April, 2025 
+### Order of Service Sunday, 11th May, 2025 (Mother's Day)
 
-**Call to Worship & Opening Prayer** (Jordan O'Hara)
+**Call to Worship & Opening Prayer** (Revelation 19:5 John A)
 
-**Praise:** *Be Thou My Vision*
+**Praise:** *To God Be The Glory (Rej 63)*
 
-**Bible Reading**  Isaiah 53:3-9 (Seng T)
+**Bible Reading**  Hebrews 1 (Tim A)
 
 **Announcements** (John A)
-    • We welcome back Jordan O'Hara to the pulpit today
-    • NO evening service
-    • Sunday School resumes next week
-    • Sam & Dhruti with us today
+    • Welcome to Jesse Walz and family
+    • Happy Mother’s Day to all mothers
+    • Lunch Backyard BBQ 18th
+    • Equip Conference
+    • Dayspring Day Geelong West
 
-**Sunday School Video** (John A)
+**Sunday School** (Shi Ya B, Jack W)
 
-**Praise:** *Reformation Song*
+**Praise:** *God Has Spoken - By His Prophets (Rej 282)*
 
-**Prayer for the church and the world**  (John A)
+**Prayer for the church and the world**  (Mook L)
 
-**Bible reading:** 1 Peter 2:11-25 (MarJo A)
+**Bible reading:** Psalm 45 (MarJo A)
 
-**Praise:** *To God Be The Glory* (Offering)
+**Praise:** *Fairest Lord Jesus (Rej 138)* (Offering)
 
-**Sermon:**  “Witnesses in a Watching World” (Jordan O’Hara)
+**Sermon:**  “A ROYAL WEDDING” (Jesse Walz)
 
-**Praise:** *This Life I Live* by Emu Music
+**Praise:** *My Jesus I Love You (Rej 525)*
 
-**Benediction**  (JO)
+**Benediction**  (JW)
 
 
 **Sermon Outline**
 
-“Witnesses in a Watching World”   (1 Peter 2:11-25)
+“A ROYAL WEDDING”   (Psalm 45)
 
-Introduction: Bad Reviews
+Introduction
 
-    1. A Life of Visible Goodness
+    1. The Glorious King
     
-    2. A Life of Respectful Submission
+    2. His Glorious Bride
     
-    3. A Life in the Steps of Jesus
+    3. His Future Glory
     
-Conclusion: From Bad Reviews to Good Reviews
+Conclusion
 
