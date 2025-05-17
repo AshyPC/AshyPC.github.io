@@ -3,32 +3,30 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 27th April 2025 post-Anzac Day
+### 18th May 2025
 
-__John 15:13 KJV__ 
-_Greater love hath no man than this, that a man lay down his life for his friends._
+__Psalm 70:4-5__ 
+_[4] May all who seek you rejoice and be glad in you! May those who love your salvation say evermore, “God is great!”_
+_[5] But I am poor and needy; hasten to me, O God! You are my help and my deliverer; O Lord, do not delay!_
 
 ### Thanks to God
-Father God, we thank You that we can meet here today because Jesus laid down His life for His friends, and then took it up again to complete His victory over sin and death. We also thank You that others laid down their lives to defend this nation and protect our free way of life, built originally on the foundation of Your Word.
+O Lord, we come into Your Presence today, aware that all our ways are known to You. We come seeking Your salvation, having set aside our failed attempts to save ourselves. You are indeed Great, Holy, Perfect and Righteous altogether.
 
-We thank You that Your Word abides forever, even though today our nation has mostly turned its back on You, neglecting Your provision, despising the Cross, while still seeking the salvation we all need, for we have all sinned and fall short of Your Perfect glory. We all are not eligible for heaven until we surrender our self-will and submit to the Lordship of Jesus, the King of kings, Who is enthroned at Your right hand.
+We know that we are poor and needy, and we thank You that our salvation rests on Jesus, and His once and for all RIGHT sacrifice, not on our good works, which count as nothing in the light of Your Perfect holiness.
+
+We thank You that Jesus took the punishment, paid the penalty that we could not pay, and rose again to give is His righteousness, His endless life. We thank You that You are our help and our redeemer, and that without His life, imparted by the Holy Spirit, we would be lost.
 
 ### The Wide World... and the Wider Church
-On Friday last, many Australians and New Zealanders commemorated the service men and women who died to defend our nations and the freedoms we so easily enjoy. Not many of them know the true freedom from sin which we know through the work of You Holy Spirit in our lives. We pray for a revival of Your Word, for a hunger among the people around us, so that they might turn back to You.
+We pray for this world where so many do not even realise that they are lost unless they turn back to You.
 
-In this election time we ask for wisdom as we ponder our responsibility to vote for Federal representatives next Saturday. We pray that the Parliament will pass laws only for the peace and good government of our nation. We pray for good candidates, who will act with integrity in the service of the people. We pray also for integrity in public life, for diligence in service, and for proper accountability as representatives who are meant to act on behalf of the voters.
+We pray for the persecuted church, recognising that our difficulties are slight compared to those in Africa, suffering much persecution, destruction and hatred.
+
+We pray for our nation which also attacks Your church and Your people, even though what we see here is so mild compared to other lands. We pray for a turnaround, so that Your Word would again be respected by most, we pray for people to see their sin and repent, and we pray that You would enable us to be faithful witnesses to Your Word of Truth.
 
 ### Ashburton
-Here we pray for ourselves as we build each other up in the faith, showing forth the great grace and mercy You have shown to us in Jesus. We pray that we also would live uprightly, persevering in all that we do, holding to what is right and pure, commendable and excellent. We continue to pray for Alan Freer, as he progresses in his rehabilitation, and for Levi as he adjusts to his medication again. Grant him rest to allow him to grow steadily stronger, and we pray for Steph and Callum to be at rest in You, as they raise him in Godliness according to Your will.
+We pray for ourselves as we seek to grow in Godliness and obedience to Your Word; we pray for our diligent study of Your Word and for perseverance in applying it to our daily lives. When we pray, we want to pray believing and trusting that You will respond. Help us to recognise Your answer when it comes, and give thanks as we see Your hand at work.
 
-We pray for the work here, as we pray for one another, hear Your Word preached so that we prepare ourselves to share the Good News with others. Lead us in our study groups, as we learn from Your Word in our Hebrews series.
+We thank You for Mook bringing Your Word to us today. We pray that his preparation will bear fruit among us in greater boldness to share the good news of our gracious loving Father, our eternal High Priest, the Lord Jesus, and our Ever-Present Guide, the Holy Spirit.
 
-We thank You for Sam and Dhruti and the Kingdom work they have done. Guide them in all wisdom as they seek Your will for the next work to which You will call them.
-
-We thank You for Jordan bringing Your Word today, and ask the Holy Spirit to apply it so that we can be ambassadors for Christ to a watching world. 
-
-In His Precious Name we pray, Amen.
-
-
-
+In Jesus Precious Name we ask all these things, Amen.
 
