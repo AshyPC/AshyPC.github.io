@@ -2,52 +2,51 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 11th May, 2025 (Mother's Day)
+### Order of Service Sunday, 25th May, 2025 
+**Call to Worship & Opening Prayer** ‭Psalm 5:11-12 (John A)
 
-**Call to Worship & Opening Prayer** Jude vv20-21 (John A)
+**Praise:** *Praise My Soul, the King of Heaven*
 
-**Praise:** *By Faith*
-
-**Bible Reading**  Matthew 5:1-12 (Callum H)
+**Bible Reading**  Matthew 11:25-30 (Russell E)
 
 **Announcements** (John A)
-    • Camp (Mook)
-    • Working Bee (Mook)
-    • Evening Service (Mook)
-    • No Sunday School today (Mook)
-    • Equip Conference
-    • Dayspring Day Geelong West
+    • Selection Committee Meeting today - Pray for that
+    • Equip Conference bookings open, some have already booked
+    • Working Bee June 14 - Morning Tea; some large jobs to be done see Russell & Tim
+    • Evening Service tonight 5pm with chicken & chips to follow
+    
+**Sunday School** (Jack and Shi Ya)
 
-**Praise:** *All My Ways*
+**Praise:** *In Christ Alone*
 
-**Prayer for the church and the world**   (John A)
+**Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** Hebrews 3:7-19 (Pam W)
+**Bible reading:** Hebrews 4:1-13 (Rachel D)
 
-**Praise:** *Ancient of Days* (Offering)
+**Praise:** *Be Thou My Vision* (Offering)
 
-**Sermon:**  “REMAINING FAITHFUL IN THE WILDERNESS” (Mook L)
+**Sermon:**  “THERE REMAINS A SABBATH REST” (Mook L)
 
-**Praise:** *When Trials Come*
+**Praise:** *Just as I am*
 
 **Benediction**  (ML)
 
 
 **Sermon Outline**
-“REMAINING FAITHFUL IN THE WILDERNESS” (Hebrews 3:7-19)
+“THERE REMAINS A SABBATH REST”   (Hebrews 4:1-13)
 Introduction
-    1. Learn from the rebellion
-    2. Receive God’s Blessing
-    3. Exhort one another
+    1. A rest greater than Canaan
+    2. A rest that is given by Jesus
+    3. A rest that points to our heart
+    4. A rest we strive together to enter
 Conclusion
 
+‭**Call to Worship - Psalm 5:11-12**
+*11 But let all who take refuge in you rejoice; let them ever sing for joy, and spread your protection over them, that those who love your name may exult in you.*
+*12 For you bless the righteous, O Lord; you cover him with favour as with a shield.*
 
-Jude vv20-21
-[20] But you, beloved, building yourselves up in your most holy faith and praying in the Holy Spirit,
-[21] keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life.
-Let us pray:
-Heavenly Father, we gather here weekly to build ourselves up in the faith, by receiving encouragement from one another, by reading and hearing Your Word and by applying ourselves to the faithful teaching we receive.
-We thank You for Your immeasurable mercy and love, expressed in Jesus, Who died that we might be pardoned and freed from sin, and Who rose again to grant us eternal life. We thank You for the faith that enables us to stand against the wiles of the enemy, trusting the Holy Spirit to provide a way of escape from the temptations that so easily beset us.
-We pray for courage in these difficult times, when Your church is attacked by so many who oppose the Good News. As we gather today, we pray that we may grow stronger in faith as we see the examples of Your people in the past – either bad to be avoided, or good to be followed.
-In Jesus Name we pray, Amen.
+O Lord our God, we come today wanting to rejoice in You, and to thank You for Your protection. 
+We acknowledge our lowly, sinful condition, and we humbly accept Your grace and mercy in forgiving our sin because Jesus has paid the full price of our redemption.
+We thank You for having bestowed upon us the righteousness of Jesus in exchange for our self-righteousness, so that we are free to come before You now in praise.
+May all we do and say here today be to His honour and glory, Amen.
 
