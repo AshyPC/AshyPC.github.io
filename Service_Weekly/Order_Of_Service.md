@@ -3,50 +3,53 @@ layout: oos
 title: Order of Service
 ---
 ### Order of Service Sunday, 25th May, 2025 
-**Call to Worship & Opening Prayer** ‭Psalm 5:11-12 (John A)
+**Call to Worship & Opening Prayer** ‭Matthew 12:18-21 (Douglas M)
 
-**Praise:** *Praise My Soul, the King of Heaven*
+**Praise:** *Jesus Shall Reign*
 
-**Bible Reading**  Matthew 11:25-30 (Russell E)
+**Bible Reading**  John 10:22-39 (Stephen A)
 
 **Announcements** (John A)
-    • Selection Committee Meeting today - Pray for that
-    • Equip Conference bookings open, some have already booked
-    • Working Bee June 14 - Morning Tea; some large jobs to be done see Russell & Tim
-    • Evening Service tonight 5pm with chicken & chips to follow
+    • Selection Committee announcement - Sam Christian & Jesse Walz
+(Mook)    
+    • Equip Conference
+    • Working Bee June 14 
     
-**Sunday School** (Jack and Shi Ya)
+**Sunday School** (Shi Ya B, Luke B)
 
-**Praise:** *In Christ Alone*
+**Praise:** *Loved With Everlasting Love (Rejoice 576)*
 
-**Prayer for the church and the world**   (Mook L)
+**Prayer for the church and the world**   (John A)
 
-**Bible reading:** Hebrews 4:1-13 (Rachel D)
+**Bible reading:** 1 Thessalonians 2:17-3:10 (Mook L)
 
-**Praise:** *Be Thou My Vision* (Offering)
+**Praise:** *O Jesus, Full of Truth and Grace (Rejoice 402)* (Offering)
 
-**Sermon:**  “THERE REMAINS A SABBATH REST” (Mook L)
+**Sermon:**  “SURE KNOWLEDGE” (DM)
 
-**Praise:** *Just as I am*
+**Praise:** *Behold the Lamb (v 1-3)*
 
-**Benediction**  (ML)
+**Lord’s Supper**
+
+**Praise:** *Behold the Lamb (v 4)*
+
+**Benediction**  (DM)
 
 
 **Sermon Outline**
-“THERE REMAINS A SABBATH REST”   (Hebrews 4:1-13)
+“SURE KNOWLEDGE”   (1 John 5:13)
 Introduction
-    1. A rest greater than Canaan
-    2. A rest that is given by Jesus
-    3. A rest that points to our heart
-    4. A rest we strive together to enter
+    1. What does eternal life consist in?
+            ▪ 
+            ▪ 
+            ▪ 
+    2. Reasons why we may lack sure knowledge of having eternal life
+            ▪ 
+            ▪ 
+            ▪ 
+    3. How we may gain sure knowledge of having eternal life
+            ▪ 
+            ▪ 
 Conclusion
 
-‭**Call to Worship - Psalm 5:11-12**
-*11 But let all who take refuge in you rejoice; let them ever sing for joy, and spread your protection over them, that those who love your name may exult in you.*
-*12 For you bless the righteous, O Lord; you cover him with favour as with a shield.*
-
-O Lord our God, we come today wanting to rejoice in You, and to thank You for Your protection. 
-We acknowledge our lowly, sinful condition, and we humbly accept Your grace and mercy in forgiving our sin because Jesus has paid the full price of our redemption.
-We thank You for having bestowed upon us the righteousness of Jesus in exchange for our self-righteousness, so that we are free to come before You now in praise.
-May all we do and say here today be to His honour and glory, Amen.
-
+‭
