@@ -3,27 +3,29 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 1st June 2025
+### 15th June 2025
 
-__Psalm 4:1 ESV__ 
-_Answer me when I call, O God of my righteousness! You have given me relief when I was in distress._
-_Be gracious to me and hear my prayer!_
+__Psalm 70:4__ 
+_May all who seek you rejoice and be glad in you!_
+_May those who love your salvation say evermore, “God is great!”_
 
 ### Thanks to God
-O Lord, our righteousness! We thank You that we can call upon You when we are in distress, because we have the assurance that You hear us and You answer, according to Your Perfect will, and in Your perfect timing.
+O Lord, we thank You that we who deserve judgment have received mercy instead. We thank You for the sacrifice of the Perfect Lamb Who slain for our salvation. We confess that we are lost apart from Jesus sacrifice on the Cross, for we realise too well, that we cannot save ourselves.
 
-We thank You for Your great mercy and grace in sending Jesus to be the perfect sacrifice of the Lamb Who was slain for our sins. We thank You that we have been released from our bondage to sin, and that today we can celebrate the victory of the Cross and the Resurrection when we partake of the Lord’s Supper. Because Jesus fully obeyed, where we failed to obey and in fact rebelled against You gracious rule, You declared that our sin has been dealt with finally and fully, and the way back into Your holy presence is now open for all who believe.
+We thank You that we have been released from the bondage to sin and can surrender our self-will to You, King of the nations and righteous ruler of our lives.
+
+We thank You that You have planted in us a desire to seek You, and now we find our joy in Your presence.
 
 ### The Wide World... and the Wider Church
-We thank You Lord for the world in which we live, and marvel at the natural beauty we see around us, even as the seasons change according to Your plan and purpose. We still see evidence of Your handiwork and agree with Your Genesis declaration that “it was good.”
+Each week as we look at the news which seems to go from bad to worse, we wonder at the reckless way nations oppose nations, and wars seem to never cease. We pray for Jesus return as the sure, the only way that this world will truly know peace.
 
-But we also see the effects of man’s sin, and long for the restoration promised when Jesus returns to take up His Kingship visibly. We pray, “Come quickly, Lord Jesus!”
+We pray also for the persecuted church – the news may not bew on our televisons, but we know there are enemies of Your people in so many places: Mozambique, Myanmar, Pakistan and Ukraine. We pray for the church in Romania and Hungary where Lazlo and Eva Mihalyi have been working to support refugees fleeing the conflict next door.
 
-As we wait with the sure hope of His return, we again pray for our nation, our State and our communities to turn back to You. We pray for Your church to stand firm upon the foundation of Your Word, declaring the Truth, not in judgement but in love for the lost. We yearn for Your Word to be held in high esteem, not for our comfort but for the sake of all those around us who are perplexed at the things they see happening, and who feel helpless as they drift through life without purpose.
+We again pray for our nation, our State and our communities to turn back to You. We thank You for the work of local missions and remember Blue Moose working to bring the hope of the gospel to St Arnaud. We also pray for the work of PIM bringing the gospel message to remote parts of our land, through patrol ministries, and part time missionaries such as Colin and Ann Morrow in Mildura, and Michacel and Jemima McNair in Mt Magnet. Grant them the strength to persevere, even when they don’t see much fruit from their work.
 
 ### Ashburton
-We pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We continue to pray for Alan as he progresses in his rehabilitation, and we thank You for the medical care we enjoy in this nation. We also pray for our study groups, as they learn from Your Word in our Hebrews series. Grant us clear minds to understand the meat of Your Word, and faithful hearts to live out the faith daily before a watching world. As we learn more of Jesus and His supremacy over all, we pray that we would grow to be more and more like Him in His grace and mercy, through the sanctifying presence of the Holy Spirit. 
+We pray for ourselves as we seek to demonstrate Your grace to one another, keeping the unity of the faith and encouraging each other. We thank You for the working bee and the results, both in our fellowship together, and in the work of maintaining the property we use to minister the gospel in this place.
 
-We thank You for Douglas our Moderator bringing Your Word today, and leading us in the communion. We pray also for the Session, the Board, and the Selection Committee as they serve faithfully to fulfil Your purposes amongst us.
+We pray for those of our number who cannot be with us, especially Diane, recovering from a bad fall, now in hospital with a broken shoulder. We continue to pray for Alan Freer, as he makes steady progress with his rehabilitation. We also pray for our study groups, as they learn more of Jesus in our Hebrews series.
 
-In Jesus Precious Name we pray, Amen.
+We thank You for Paul Jung, bringing Your Word today, and for his preparation as guided by Your Holy Spirit. May we also know Your Presence today as we hear, understand and put into action, the teaching we are about to receive. In all these things we seek to lift up Jesus, for it is in His Precious Name we pray, Amen.

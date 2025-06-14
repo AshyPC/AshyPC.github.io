@@ -2,54 +2,41 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 25th May, 2025 
-**Call to Worship & Opening Prayer** ‭Matthew 12:18-21 (Douglas M)
+### Order of Service Sunday, 15th June, 2025 
+**Call to Worship & Opening Prayer** ‭2 Cor 5:21 (John A)
 
-**Praise:** *Jesus Shall Reign*
+**Praise:** *It Is A Thing Most Wonderful*
 
-**Bible Reading**  John 10:22-39 (Stephen A)
+**Bible Reading**  Isaiah 66:12-24 (Pam W)
 
 **Announcements** (John A)
-    • Selection Committee announcement - Sam Christian & Jesse Walz
-(Mook)    
-    • Equip Conference
-    • Working Bee June 14 
+    • Welcome to Paul Jung
+    • Thanks to all who attended and helped on yesterday’s working bee
+    • Samuel Christian next week
+    • Equip Conference (Mook) 
     
-**Sunday School** (Shi Ya B, Luke B)
+**Sunday School** (Mia O, Jack W)
 
-**Praise:** *Loved With Everlasting Love (Rejoice 576)*
+**Praise:** *There Is A Higher Throne*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 1 Thessalonians 2:17-3:10 (Mook L)
+**Bible reading:** Luke 12:49-59 (Marjo A)
 
-**Praise:** *O Jesus, Full of Truth and Grace (Rejoice 402)* (Offering)
+**Praise:** *Consider Christ* (Offering)
 
-**Sermon:**  “SURE KNOWLEDGE” (DM)
+**Sermon:**  “TURN OR BURN” (Paul Jung)
 
-**Praise:** *Behold the Lamb (v 1-3)*
+**Praise:** *I Set My Hope*
 
-**Lord’s Supper**
-
-**Praise:** *Behold the Lamb (v 4)*
-
-**Benediction**  (DM)
+**Benediction**  (PJ)
 
 
 **Sermon Outline**
-“SURE KNOWLEDGE”   (1 John 5:13)
+“TURN OR BURN”   (Luke 12:49-59)
 Introduction
-    1. What does eternal life consist in?
-            ▪ 
-            ▪ 
-            ▪ 
-    2. Reasons why we may lack sure knowledge of having eternal life
-            ▪ 
-            ▪ 
-            ▪ 
-    3. How we may gain sure knowledge of having eternal life
-            ▪ 
-            ▪ 
+    1. Jesus brings fire and divides the world
+    2. Read the signs and judge for yourself
+    3. Turn to God before it’s too late
 Conclusion
-
 ‭
