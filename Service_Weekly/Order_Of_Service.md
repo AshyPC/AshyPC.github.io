@@ -2,41 +2,37 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 15th June, 2025 
-**Call to Worship & Opening Prayer** ‭2 Cor 5:21 (John A)
+### Order of Service Sunday, 13th July, 2025 
 
-**Praise:** *It Is A Thing Most Wonderful*
+**Call to Worship & Opening Prayer** ‭Revelation 5:13-14 (Douglas M)
 
-**Bible Reading**  Isaiah 66:12-24 (Pam W)
+**Praise:** *Blest be the everlasting God (Rej 239)*
 
-**Announcements** (John A)
-    • Welcome to Paul Jung
-    • Thanks to all who attended and helped on yesterday’s working bee
-    • Samuel Christian next week
-    • Equip Conference (Mook) 
-    
-**Sunday School** (Mia O, Jack W)
+**Bible Reading**  Deuteronomy 16:1-17 (Tim A)
 
-**Praise:** *There Is A Higher Throne*
+**Announcements** (John A) 
+
+**Mission Spot** Gaye M
+
+**Praise:** *Lord, enthroned in heavenly splendour (Rej 243)*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Luke 12:49-59 (Marjo A)
+**Bible reading:** Deuteronomy 16:1-17; Revelation 1:9-18; 14:14-20 (Pamela W)
 
-**Praise:** *Consider Christ* (Offering)
+**Praise:** *Great God, what do I see and hear (Rej 259)* (Offering)
 
-**Sermon:**  “TURN OR BURN” (Paul Jung)
+**Sermon:**  “The General Judgement” (DM)
 
-**Praise:** *I Set My Hope*
+**Praise:** *Come, you thankful people, come (Rej 611)*
 
-**Benediction**  (PJ)
+**Benediction**  (DM)
 
 
 **Sermon Outline**
-“TURN OR BURN”   (Luke 12:49-59)
+“The General Judgement”   (Revelation 14:14-20)
 Introduction
-    1. Jesus brings fire and divides the world
-    2. Read the signs and judge for yourself
-    3. Turn to God before it’s too late
+    1.   The Son of Man is the Judge (v14)
+    2.   The Ingathering of Christ’s People (vv15-16)
+    3.   The Casting out of the Wicked (vv16-20)
 Conclusion
-‭
