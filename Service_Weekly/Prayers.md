@@ -3,27 +3,28 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 13th July 2025
+### 20th July 2025
 
-__Isaiah 26:4__ 
-_[4] Trust in the Lord forever, for the Lord God is an everlasting rock._
+__Psalm 86:3-5__ 
+_Be gracious to me, O Lord, for to you do I cry all the day. Gladden the soul of your servant, for to you, O Lord, do I lift up my soul. For you, O Lord, are good and forgiving, abounding in steadfast love to all who call upon you._
 
 ### Thanks to God
- O Lord, we come to You today, wanting to trust in You completely, but knowing that we are weak and prone to wander. We come seeking Your salvation, for we know we cannot save ourselves.
+O Lord, we thank You that we can come before the throne of grace, that we can lift our souls to You. We thank You for the sacrifice of Jesus, Who opened the way back to You. We thank You that the temple of the Living God is no longer a forbidden place but a welcoming one.
 
-We thank You that although we turned our back on You, You still hold out salvation to us, because Jesus fulfilled all righteousness on our behalf. He took the punishment we deserved, paid the penalty that we could not pay, and rose again to give us His righteousness. We thank You that You are our everlasting Rock, the One on whom we can rely completely.
-
+We thank You that we have been released from the bondage to sin because of Your steadfast love, Your Perfect Goodness and Your gracious forgiveness.
 
 ### The Wide World... and the Wider Church
-We pray for this world where so many do not even realise that they are lost unless they turn back to You. So many put their trust in things that won’t last, or in people who let them down. Week by week we see that this world seems to continue downward, but we know that You hold the world in Your hands, and You have a plan and purpose which cannot be defeated.
+We cry out to You for this world where we see so much that is wrong, so much that is not according to Your Perfect will, and see so many who do not acknowledge the King of the Nations. We see hostility between individual people, between groups of people and between nations.
 
-We pray for the persecuted church, recognising that our difficulties are slight compared to those in Africa, suffering much persecution, destruction and hatred.
+We recognise that there is much good in this world too, but our news is biased towards the bad and sensational, because that attracts our attention. We give thanks for every effort towards peace rather than violence and war but we also know that not all leaders deal honestly, and we don’t know enough to judge fairly. However, You see all, and we trust that this world stays in Your ultimate control.
 
-We pray for our nation which also attacks Your church and Your people, even though what we see here is so mild compared to other places. We pray against the attacks upon the Jewish community, and we stand against terrorism in all its forms. We pray for a great work of the Holy Spirit to turn around many who have been blinded by the vanities of this world. As we uphold Your Word, we pray that it would again be respected by most people, and we pray for people to see their sin and repent. We pray that You would enable us to be faithful witnesses to Your Word of Truth.
+We again pray for our nation, our State and our communities to turn back to You. We again see that bad news is easy to find but good news not so much. We long for the day when Your Word of Good News is respected once again. We pray for the continued work of Your Holy Spirit to turn back the hearts of men and women to You. 
 
 ### Ashburton
-We pray for ourselves as we seek to grow in Godliness and obedience to Your Word; we pray for our study of the Ripple Effect this coming Saturday. May the teaching we receive enable us to confidently speak of the Lord Jesus in our daily lives, in conversation with others.
+We pray for ourselves here at Ashburton, as we seek to demonstrate Your grace to one another, and towards our family, friends and neighbours. We continue to pray for Alan Freer, as he progresses in his rehabilitation, for Diane, recovering after her operation, for Mook still recovering from the ‘Flu, and others affected by illness or injury. We thank You for the medical care we enjoy in this nation, knowing that You are the True Healer of our souls as well as our bodies.
 
-We pray for Mook to recover quickly, and we thank You for Douglas bringing Your Word to us today at short notice. We give You thanks for Diane’s successful shoulder replacement operation, and pray that You continue to heal her as she recovers at home.
+We thank You for yesterday’s Ripple Effect workshop and the insights we learned from Julie-Anne Laird. Help us to seize opportunities to speak respectfully to others of the Lord we love to honour. We also pray for our study groups, as they learn from Your Word in our Hebrews series. Grant us clear minds to understand the meat of Your Word, and faithful hearts to live out the faith daily before a watching world. 
 
-In Jesus Precious Name we ask all these things, Amen.
+We thank You for Jake Martin bringing Your Word today, and ask that we ponder the great gift of grace and mercy You have poured out upon us. Help us as we take the eternal perspective, and take to heart the seriousness of Your final judgement on sin which we will see when Jesus returns.
+
+In His Precious Name we pray, Amen.

@@ -2,37 +2,39 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 13th July, 2025 
+### Order of Service Sunday, 20th July, 2025 
 
-**Call to Worship & Opening Prayer** ‭Revelation 5:13-14 (Douglas M)
+**Call to Worship & Opening Prayer** ‭Psalm 115:1-3 (John A)
 
-**Praise:** *Blest be the everlasting God (Rej 239)*
+**Praise:** *Jesus Shall Reign*
 
-**Bible Reading**  Deuteronomy 16:1-17 (Tim A)
+**Bible Reading**  2 Peter 3:1-13 (Rachel D)
 
 **Announcements** (John A) 
+     . Ripple Effect yesterday
 
-**Mission Spot** Gaye M
-
-**Praise:** *Lord, enthroned in heavenly splendour (Rej 243)*
+**Praise:** *By Faith*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Deuteronomy 16:1-17; Revelation 1:9-18; 14:14-20 (Pamela W)
+**Bible reading:** Zephaniah 1:1-2:3 (Pam W)
 
-**Praise:** *Great God, what do I see and hear (Rej 259)* (Offering)
+**Praise:** *I Set My Hope* (Offering)
 
-**Sermon:**  “The General Judgement” (DM)
+**Sermon:**  “THE DAY OF THE LORD: AN INESCAPABLE DAY OF WRATH” (Jake Martin)
 
-**Praise:** *Come, you thankful people, come (Rej 611)*
+**Praise:** *Facing the Task Unfinished*
 
-**Benediction**  (DM)
+**Benediction**  (JM)
 
 
 **Sermon Outline**
-“The General Judgement”   (Revelation 14:14-20)
+“THE DAY OF THE LORD: AN INESCAPABLE DAY OF WRATH”   (Zephaniah 1:1-2:3)
 Introduction
-    1.   The Son of Man is the Judge (v14)
-    2.   The Ingathering of Christ’s People (vv15-16)
-    3.   The Casting out of the Wicked (vv16-20)
+        1. A day of punishment on Jerusalem
+    	2. A day of unexpected, universal, and inescapable wrath
+    	3. So seek the LORD now!
+   	4. Implications
+      	  1. Be assured, the day is not coming on you.
+       	  2. Challenge and proclaim, for the day is coming on those who do not believe.
 Conclusion
