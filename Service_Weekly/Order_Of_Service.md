@@ -2,39 +2,46 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 20th July, 2025 
+### Order of Service Sunday, 27th July, 2025 
 
-**Call to Worship & Opening Prayer** ‭Psalm 115:1-3 (John A)
+**Call to Worship & Opening Prayer** Malachi 3:3 (John A)
 
-**Praise:** *Jesus Shall Reign*
+**Praise:** *Praise My Soul The King of Heaven*
 
-**Bible Reading**  2 Peter 3:1-13 (Rachel D)
+**Bible Reading** Luke 22:39-46 (Russell E)
 
 **Announcements** (John A) 
-     . Ripple Effect yesterday
+    • Evening Service 5pm tonight
+    • Trivia Lunch August 17th
+    • AGM tentative date 5th October
+    
+**Sunday School** (Jack W, Luke B)    
 
-**Praise:** *By Faith*
+**Praise:** *Before the Throne of God Above*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Zephaniah 1:1-2:3 (Pam W)
+**Bible reading:** Hebrews 5:1-10 (Pam W)
 
-**Praise:** *I Set My Hope* (Offering)
+**Praise:** *What A Friend We Have in Jesus* (Offering)
 
-**Sermon:**  “THE DAY OF THE LORD: AN INESCAPABLE DAY OF WRATH” (Jake Martin)
+**Sermon:**  “JESUS GREATER THAN AARON” (Mook L)
 
-**Praise:** *Facing the Task Unfinished*
+**Praise:** *The Lord is My Salvation*
 
-**Benediction**  (JM)
+**Benediction**  (ML)
 
 
 **Sermon Outline**
-“THE DAY OF THE LORD: AN INESCAPABLE DAY OF WRATH”   (Zephaniah 1:1-2:3)
+
+“JESUS GREATER THAN AARON”   (Hebrews 5:1-10)
+
 Introduction
-        1. A day of punishment on Jerusalem
-    	2. A day of unexpected, universal, and inescapable wrath
-    	3. So seek the LORD now!
-   	4. Implications
-      	  1. Be assured, the day is not coming on you.
-       	  2. Challenge and proclaim, for the day is coming on those who do not believe.
+
+    1. He was qualified to represent us
+    
+    2. He was appointed by God
+    
+    3. He became the source of our salvation
+    
 Conclusion
