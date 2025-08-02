@@ -2,46 +2,43 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 27th July, 2025 
+### Order of Service Sunday, 3rd August, 2025 
 
-**Call to Worship & Opening Prayer** Malachi 3:3 (John A)
+**Call to Worship & Opening Prayer** Psalm 134:1-2 (Jesse Walz)
 
-**Praise:** *Praise My Soul The King of Heaven*
+**Praise:** *All People That On Earth Do Dwell (Rej 53)*
 
-**Bible Reading** Luke 22:39-46 (Russell E)
+**Bible Reading** Isaiah 55:1-9 (Callum H)
+
+**Sunday School** (Mia L, Shi Ya B)
+
+**Praise:** *Come, O Fount Of Every Blessing (Rej 382)*
 
 **Announcements** (John A) 
-    • Evening Service 5pm tonight
+    • Welcome to Jesse Walz, Bec and family
     • Trivia Lunch August 17th
-    • AGM tentative date 5th October
-    
-**Sunday School** (Jack W, Luke B)    
 
-**Praise:** *Before the Throne of God Above*
+**Prayer for the church and the world**   (Jesse W)
 
-**Prayer for the church and the world**   (John A)
+**Praise:** *Lord, Be My Vision (Rej 419)* (Offering)
 
-**Bible reading:** Hebrews 5:1-10 (Pam W)
+**Bible reading:** Matthew 22:1-14 (JW)
 
-**Praise:** *What A Friend We Have in Jesus* (Offering)
+**Sermon:** “A GLORIOUS INVITATION” (JW)
 
-**Sermon:**  “JESUS GREATER THAN AARON” (Mook L)
+**The Lord’s Supper**
 
-**Praise:** *The Lord is My Salvation*
+**Praise:** *Blessed Assurance (Rej 574)*
 
-**Benediction**  (ML)
+**Benediction**  (Jesse W)
 
 
 **Sermon Outline**
 
-“JESUS GREATER THAN AARON”   (Hebrews 5:1-10)
+“A GLORIOUS INVITATION”   (Matthew 22:1-14)
 
 Introduction
-
-    1. He was qualified to represent us
-    
-    2. He was appointed by God
-    
-    3. He became the source of our salvation
-    
+    1. Hear the Warning
+    2. Accept the Call
+    3. Dress for the Occasion
 Conclusion
