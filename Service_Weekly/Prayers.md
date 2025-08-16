@@ -3,29 +3,28 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 27th July 2025
+### 17th August 2025
 
-__Psalm 112:6-7__ 
-_[6] For the righteous will never be moved; he will be remembered forever._
-_[7] He is not afraid of bad news; his heart is firm, trusting in the Lord._
+__Psalm 18:30__ 
+_As for God—His way is perfect; the word of the Lord proves true; He is a shield for all those who take refuge in Him._
 
 ### Thanks to God
-O Lord, we thank You that we can come before the throne of grace, but only because we have been redeemed by the blood of Jesus, and we are now deemed to be righteous because He has given us His Perfect righteousness. 
+O Lord, we thank You that we can take refuge and come under Your protection. We thank You for Your grace and favour, because we have been redeemed by the blood of Jesus, and we are now sons and daughters of the Living God.
 
-We thank You that we have been released from the old bondage to sin because of Your steadfast love, Your Perfect Goodness and Your gracious forgiveness.
+We acknowledge that Your ways are perfect, but our ways have been so marred by sin that we could not save ourselves. We thank You that Your Word is true, and we have been forgiven, and set free by The Eternally Begotten Son, Jesus, Who suffered and died for us.
 
-Because of that, we thank You that we no longer need to be afraid of bad news, because we place our trust in You. We thank You that we can now be bearers of Good News.
+We thank You that because He rose again and now lives forever, we can face whatever this world presents with trust in You. We thank You for the assurance of hope in a certain, glorious future, laid up for us in Heaven.
 
 ### The Wide World... and the Wider Church
-We pray for this world where so many know the bad news but do not know that there is Good News, and a sure hope for the future. We pray that we have opportunities to counter despair with the hope of eternal life in Jesus. Help us to recognise when we may offer a word of encouragement, or even dare to ask if we might pray for a person in their situation.
+We pray for this world where so many have been blinded by an enemy of God, who has been defeated at the Cross, but who still seeks to destroy the church and take people captive. We also are aware of those who know what they do, who hate the people of God and seek to destroy them. We pray that You would strengthen Your persecuted church, and encourage those who have lost loved ones to persecution and terror. 
 
-We again pray for our nation, our State and our communities to turn back to You. We pray for the ongoing work of Blue Moose missions – the winter mission just concluded and the summer mission to come in January. We thank You that we were able to support Jack and the team in St Arnaud with Bibles suited to the young people there. We pray that they would not be neglected but read regularly.
+We pray for the young people who will eventually receive shoeboxes via Operation Christmas Child. We pray for their salvation, as they feel the impact of the love that has gone into those small gifts, an expression of Your love toward us, and passed on to them.
 
 ### Ashburton
-We pray for our work here at Ashburton, as we work out how to apply the teaching of the Ripple Effect workshop, especially relating to our family, friends and neighbours. We pray for the growth of our numbers – for we see the empty chairs, and long for them to be filled with more people who have come to put their trust in Jesus.
+We pray for our work here at Ashburton, as we endeavour to follow on the path You are leading us. As we seek a new pastor/preacher to work within Your plans for this place, we pray for the Selection Committee as they apply Your wisdom to their search, so that in the end, everything will be done according to Your will for us and for the new minister of Your Word and sacraments.
 
-We persist in prayer for Alan Freer, as he progresses in his rehabilitation, for Diane, as she begins exercises to restore the function in her shoulder, for Mook to fully recover from the ‘Flu, and others affected by illness or injury. 
+We continue in prayer for those in need of Your healing hand – for Alan, Diane, and others affected by illness or injury. 
 
-We thank You for Your Word, and for Mook’s preparation so that what he brings in his preaching today is not just intellectual study but Your living Word for us to feed upon spiritually. May it enable us to defend ourselves against temptation more effectively than we have done in the past. We pray that it will help us to worship more and more from hearts changed to be like our great High Priest as we work for the extension of the kingdom until Jesus returns.
+We thank You for Your Word, and for Paul’s preparation so that what he brings in his preaching today will be for our edification, encouragement and blessing. We pray that his own walk of faith will likewise be more faithful than before because of the work he has put into serving us as the minister of Your Word today.
 
 In His Precious Name we pray, Amen.

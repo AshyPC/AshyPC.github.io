@@ -2,43 +2,49 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 3rd August, 2025 
+### Order of Service Sunday, 17th August, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 134:1-2 (Jesse Walz)
+**Call to Worship & Opening Prayer**  (Psalm 33:1-3) (John A)
 
-**Praise:** *All People That On Earth Do Dwell (Rej 53)*
+**Praise:** *To God Be The Glory*
 
-**Bible Reading** Isaiah 55:1-9 (Callum H)
+**Bible Reading** Acts 2:29-39 (Tim A)
 
-**Sunday School** (Mia L, Shi Ya B)
+**Announcements** (Mook) 
+    • Lunch
+    • Camp
+    • Selection Committee - Pray for
+    • Children’s Areas announcement
+    • Livestream Announcement
+    
+**Sunday School** (Mia O, Luke B)    
 
-**Praise:** *Come, O Fount Of Every Blessing (Rej 382)*
+**Praise:** *The Kingdom of God is Justice and Joy (Rejoice 320)*
 
-**Announcements** (John A) 
-    • Welcome to Jesse Walz, Bec and family
-    • Trivia Lunch August 17th
+**Mission Spot** (Gaye M)
 
-**Prayer for the church and the world**   (Jesse W)
+**Prayer for the church and the world**   (John A)
 
-**Praise:** *Lord, Be My Vision (Rej 419)* (Offering)
+**Bible reading:** Psalm 16 (John A)
 
-**Bible reading:** Matthew 22:1-14 (JW)
+**Praise:** *Reformation Song* (Offering)
 
-**Sermon:** “A GLORIOUS INVITATION” (JW)
+**Sermon:**  “THE REASON FOR JOY” (Paul Jung)
 
-**The Lord’s Supper**
+**Praise:** *How Great Thou Art*
 
-**Praise:** *Blessed Assurance (Rej 574)*
-
-**Benediction**  (Jesse W)
+**Benediction**  (PJ)
 
 
 **Sermon Outline**
 
-“A GLORIOUS INVITATION”   (Matthew 22:1-14)
-
+“THE REASON FOR JOY”   (Psalm 16)
 Introduction
-    1. Hear the Warning
-    2. Accept the Call
-    3. Dress for the Occasion
+    1. What God has given us is **Security**
+    2. **How** God gives us His Security: **The 3 C’s**
+        1. Company (vv.3-4)
+        2. Contentment (vv.5-6)
+        3. Counsel (vv.7-8)
+    3. The Fullness of **Joy to Eternity**
+    4. The Result
 Conclusion
