@@ -1,50 +1,43 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 17th August, 2025 
+### Order of Service Sunday, 24th August, 2025 
 
-**Call to Worship & Opening Prayer**  (Psalm 33:1-3) (John A)
+**Call to Worship & Opening Prayer** Isaiah 51:7-8 (John A)
 
-**Praise:** *To God Be The Glory*
+**Praise:** *Love Divine, All Loves Excelling (Rej! 441)*
 
-**Bible Reading** Acts 2:29-39 (Tim A)
+**Bible Reading** John 15:1-11 (Pam W)
 
-**Announcements** (Mook) 
-    • Lunch
-    • Camp
-    • Selection Committee - Pray for
-    • Children’s Areas announcement
-    • Livestream Announcement
+**Announcements** (Mook L) 
     
-**Sunday School** (Mia O, Luke B)    
+**Sunday School** (Mia O, Shi Ya B)
 
-**Praise:** *The Kingdom of God is Justice and Joy (Rejoice 320)*
-
-**Mission Spot** (Gaye M)
+**Praise:** *Blessed Assurance*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Psalm 16 (John A)
+**Bible reading:** Hebrews 5:11-14 (MarJo A)
 
-**Praise:** *Reformation Song* (Offering)
+**Praise:** *All My Ways Are Known To You* (Offering)
 
-**Sermon:**  “THE REASON FOR JOY” (Paul Jung)
+**Sermon:**  “LESSONS ABOUT SPIRITUAL IMMATURITY” (Mook L)
 
-**Praise:** *How Great Thou Art*
+**Praise:** *This Life I Live*
 
-**Benediction**  (PJ)
+**Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“THE REASON FOR JOY”   (Psalm 16)
+“LESSONS ABOUT SPIRITUAL IMMATURITY”   (Hebrews 5:11-14)
+
 Introduction
-    1. What God has given us is **Security**
-    2. **How** God gives us His Security: **The 3 C’s**
-        1. Company (vv.3-4)
-        2. Contentment (vv.5-6)
-        3. Counsel (vv.7-8)
-    3. The Fullness of **Joy to Eternity**
-    4. The Result
+
+    1. Dull of hearing
+    2. Remaining consumers
+    3. Unskilled
+    4. Maturity comes from abiding in Christ
+    
 Conclusion
