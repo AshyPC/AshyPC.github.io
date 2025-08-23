@@ -1,47 +1,43 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 27th July, 2025 
+### Order of Service Sunday, 24th August, 2025 
 
-**Call to Worship & Opening Prayer** Malachi 3:3 (John A)
+**Call to Worship & Opening Prayer** Isaiah 51:7-8 (John A)
 
-**Praise:** *Praise My Soul The King of Heaven*
+**Praise:** *Love Divine, All Loves Excelling (Rej! 441)*
 
-**Bible Reading** Luke 22:39-46 (Russell E)
+**Bible Reading** John 15:1-11 (Pam W)
 
-**Announcements** (John A) 
-    • Evening Service 5pm tonight
-    • Trivia Lunch August 17th
-    • AGM tentative date 5th October
+**Announcements** (Mook L) 
     
-**Sunday School** (Jack W, Luke B)    
+**Sunday School** (Mia O, Shi Ya B)
 
-**Praise:** *Before the Throne of God Above*
+**Praise:** *Blessed Assurance*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Hebrews 5:1-10 (Pam W)
+**Bible reading:** Hebrews 5:11-14 (MarJo A)
 
-**Praise:** *What A Friend We Have in Jesus* (Offering)
+**Praise:** *All My Ways Are Known To You* (Offering)
 
-**Sermon:**  “JESUS GREATER THAN AARON” (Mook L)
+**Sermon:**  “LESSONS ABOUT SPIRITUAL IMMATURITY” (Mook L)
 
-**Praise:** *The Lord is My Salvation*
+**Praise:** *This Life I Live*
 
 **Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“JESUS GREATER THAN AARON”   (Hebrews 5:1-10)
+“LESSONS ABOUT SPIRITUAL IMMATURITY”   (Hebrews 5:11-14)
 
 Introduction
 
-    1. He was qualified to represent us
-    
-    2. He was appointed by God
-    
-    3. He became the source of our salvation
+    1. Dull of hearing
+    2. Remaining consumers
+    3. Unskilled
+    4. Maturity comes from abiding in Christ
     
 Conclusion
