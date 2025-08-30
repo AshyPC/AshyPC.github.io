@@ -2,42 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 24th August, 2025 
+### Order of Service Sunday, 31st August, 2025 
 
-**Call to Worship & Opening Prayer** Isaiah 51:7-8 (John A)
+**Call to Worship & Opening Prayer** Psalm 18:31-32 (John A)
 
-**Praise:** *Love Divine, All Loves Excelling (Rej! 441)*
+**Praise:** *Yet Not I But Through Christ In Me*
 
-**Bible Reading** John 15:1-11 (Pam W)
+**Bible Reading** Acts 2:22-33 (Russell E)
 
 **Announcements** (Mook L) 
     
-**Sunday School** (Mia O, Shi Ya B)
+**Sunday School** (Jack W, Luke B)
 
-**Praise:** *Blessed Assurance*
+**Praise:** *Be Still, For the Presence of the Lord*
 
-**Prayer for the church and the world**   (John A)
+**Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** Hebrews 5:11-14 (MarJo A)
+**Bible reading:** Psalm 16 (Pam W)
 
-**Praise:** *All My Ways Are Known To You* (Offering)
+**Praise:** *It Is Well With My Soul* (Offering)
 
-**Sermon:**  “LESSONS ABOUT SPIRITUAL IMMATURITY” (Mook L)
+**Sermon:**  “SECURE IN THE LORD” (Jordan O’Hara)
 
-**Praise:** *This Life I Live*
+**Praise:** *In Christ Alone*
 
-**Benediction**  (ML)
+**Benediction**  (J O'H)
 
 
 **Sermon Outline**
 
-“LESSONS ABOUT SPIRITUAL IMMATURITY”   (Hebrews 5:11-14)
-
+“SECURE IN THE LORD”   (Psalm 16)
 Introduction
 
-    1. Dull of hearing
-    2. Remaining consumers
-    3. Unskilled
-    4. Maturity comes from abiding in Christ
+    1. Searching for security
+    2. Find security in the protection of the Lord
+    3. Find security in the presence of the Lord
+    4. Find security in the promises of the Lord
+    5. Find security ultimately in Jesus
     
 Conclusion
