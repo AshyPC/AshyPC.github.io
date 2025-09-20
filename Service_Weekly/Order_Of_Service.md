@@ -1,53 +1,42 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 7th September, 2025 
+### Order of Service Sunday, 21st September, 2025 
 
-**Call to Worship** (1 John 1:1-4) / **Opening prayer** (Douglas M)
+**Call to Worship & Opening Prayer** Psalm 79:13 (John A)
 
-**Praise:** *Glory be to God the Father* (Rej 92)
+**Praise:** *Praise My Soul The King of Heaven*
 
-**Bible Reading:** Acts 17:16-34  (Tim A)
+**Bible Reading** Exodus 34:1-7 (Mook L)
 
-**Announcements** (Mook L)
+**Announcements** (Mook L) 
 
-**Sunday School** (Mia O, Shi Ya B)
+**Praise:** *Love Divine, All Loves Excelling*
 
-**Praise:** *Hark the glad sound the Saviour comes* (Rej 177)
+**Prayer for the church and the world**   (John A)
 
-**Prayer for the church and the world**  (John A)
+**Bible reading:** Luke 7:36-50 (Stephen A)
 
-**Bible reading:** John 8:39-59 (Rachel D)
+**Praise:** *What Love My God* (Offering)
 
-**Praise:** *Come to Jesus, Rest in Him* (Offering)
+**Sermon:**  “A DEBT OF LOVE” (John H)
 
-**Sermon:** “KEEP YOURSELVES FROM IDOLS” (DM)
+**Praise:** *When I Survey The Wondrous Cross*
 
-**Praise:** *O Lord My Rock and My Redeemer*
-
-**The Lord’s Supper**
-
-**Praise:** *Fight the good fight with all your might* (Rej 453)
-
-**Benediction** (DM)
+**Benediction**  (JH)
 
 
+**Sermon Outline**
 
-Sermon Outline
-
-“KEEP YOURSELVES FROM IDOLS”   (1 John 5:20-21)
+“A DEBT OF LOVE”   (Luke 7:36-50)
 
 Introduction
 
-The Son has come
-
-He has given us understanding
-
-We are in Him
-
-He is the true God and eternal life
-
-Keep yourselves from idols
-
+    1. Expressions of love
+    2. An extravagant display of humility
+    3. An important parable about forgiveness
+    4. An amazing praise of love
+    5. Who are we like?
+    
 Conclusion

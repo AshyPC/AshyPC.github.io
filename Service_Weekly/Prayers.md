@@ -5,56 +5,38 @@ title: Prayers
 ## Prayers for our World and the Church 
 ### 7th September 2025
 
-__Psalm 86:6-9__ 
-_Give ear, O Lord, to my prayer; listen to my plea for grace. In the day of my trouble I call upon you, for you answer me. There is none like you among the gods, O Lord, nor are there any works like yours. All the nations you have made shall come and worship before you, O Lord, and shall glorify your name._
+**Psalm 50:23** 
+_The one who offers thanksgiving as his sacrifice glorifies me;_
+_to one who orders his way rightly I will show the salvation of God!”_
 
-### Thanks to God
-O Lord, we thank You that You listen when we call out to You.
+We come now to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
 
-We know that we could not be perfect as You are Perfect, for we are sinners and in trouble in this world. We thank You for sending Jesus, the Eternal Son of God, to save us.
+**Adoration**
+God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we are fallen, warped by sin into self-centredness, so that of ourselves we would not seek You out.
 
-We thank You that we have been forgiven by Your grace and mercy alone, and have been set free from sin.
+**Confession**
+But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed, when we have not been holy as You are holy, when we have shamed the Name of Jesus our Saviour, when we have put down another person, thinking less of them and more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
 
-We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, which secured our eternal salvation.
+**Thanksgiving**
+Yet, we thank You that You have not abandoned us to our condition but rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
+We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Thereafter, we Your redeemed people and Your restored Creation will show forth Your glory without limit, forever and ever.
 
-### The Wide World... and the Wider Church
-We pray for this world where so many live by lies, like those whom Jesus confronted, or who always seek the Truth but never seem to find it, like the Greeks in Athens, where Paul confronted their many religious idols.
+**Supplication: The Wider World**
+In the wider world, we continue to pray for the expansion of the Kingdom via the preaching of Your Word. We give thanks that the tragedy of the assassination of Charlie Kirk in the USA has resulted in many people turning to you for answers, and we pray that those who hunger for righteousness will be satisfied through the many churches which have seen great increases in attendances.
 
-We pray for those close to us, who do not know the Truth. We pray for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today.
+But we are also alert to the work of a defeated enemy, once again seeing a “victory” turn to another defeat, much as happened when John the Baptist was beheaded, and the Lord Jesus healed so many, and His followers greatly increased in number.
 
-### Ashburton
-We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom. We pray for Russell and Bear as they serve as companion visitors to aged care residents. When those residents pass away, their relationship is cut off, and that can be painful. We ask that You strengthen them as they witness to Your faithfulness towards the aged and frail.
-
-We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will, so that in the end, Your purposes prevail and we call a new minister of Your choosing, to bring us Your Word and sacraments. We pray for ourselves to support them in their work, as they serve on our behalf in what could be a lengthy process.
-
-We continue in prayer for those in need of Your healing hand – for Alan, Diane and others affected by illness or injury. 
-
-We thank You for Your Word, and for Douglas as he preaches today. We pray that we would be diligent hearers and do-ers of Your Word, making the most of the means of grace.
+**... and the wider Church**
+We pray for Your people in churches so that they may minister faithfully to those who seek answers to such senseless tragedies. Encourage them and enable them to speak to the hearts of those who are perplexed, so that doubts can be replaced by faith and hope. Strengthen us also, and keep us faithful when we don’t understand Your sovereign purposes. We give thanks for the great turnaround, as we decry the hatred that has also emerged from those who opposed Charlie’s courageous, faithful stand for the Lord Jesus in such a public manner. 
 
 
-In His Precious Name we pray, Amen.
+**Supplication: Ashburton**
+Here in Ashburton we pray for ourselves as we seek a faithful preacher of Your Word, and we pray for our Selection Committee as the work on our behalf. Grant them wisdom, insight and unity in their search.
 
-As we will shortly take part in the Lord’s Supper, let is recall the fundamentals of our faith by reciting The Apostle’s Creed:
+We thank You for John as he brings Your Word to us today. May we be diligent in hearing and following Your Word, as we take it to heart, and live it out day by day. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community involvements. We pray for those of our number in need of Your healing hand. Whether that healing comes directly or by means of doctors and medicines, we give You thanks as we recognise that You are the True Healer.
 
-I believe in God, the Father almighty,
-      creator of heaven and earth.
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the world-spanning Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
 
-I believe in Jesus Christ, his only Son, our Lord,
-      who was conceived by the Holy Spirit
-      and born of the virgin Mary.
-      He suffered under Pontius Pilate,
-      was crucified, died, and was buried;
-      he descended to hell.
-      The third day he rose again from the dead.
-      He ascended to heaven
-      and is seated at the right hand of God the Father almighty.
-      From there he will come to judge the living and the dead.
+In Jesus Name we pray, Amen.
 
-I believe in the Holy Spirit,
-      the holy catholic* church,
-      the communion of saints,
-      the forgiveness of sins,
-      the resurrection of the body,
-      and the life everlasting. Amen.
