@@ -1,7 +1,6 @@
-                                       ﻿---
 layout: oos
 title: Order of Service
----
+---                   ﻿---
 ### Order of Service Sunday, 21st September, 2025 
 
 **Call to Worship & Opening Prayer** Psalm 79:13 (John A)
