@@ -2,7 +2,7 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 5th October, 2025 
+## Order of Service Sunday, 5th October, 2025 
 ### Communion Sunday, AGM, DLS commenced
 
 **Call to Worship & Opening Prayer** John 1:1-5 (Douglas M)
