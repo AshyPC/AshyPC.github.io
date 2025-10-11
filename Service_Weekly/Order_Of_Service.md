@@ -1,55 +1,43 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-## Order of Service Sunday, 5th October, 2025 
-### Communion Sunday, AGM, DLS commenced
+### Order of Service Sunday, 12th October, 2025 
 
-**Call to Worship & Opening Prayer** John 1:1-5 (Douglas M)
+**Call to Worship & Opening Prayer** Psalm 18:27-28 (John A)
 
-**Praise:** *The Lord is my salvation*
+**Praise:** *Yet Not I*
 
-**Bible Reading** Isaiah 63:7-14  (Russell E)
+**Bible Reading** Ephesians 3:14-21 (Tim A)
 
-**Announcements** (John A) 
-    • OCC - Sat 11th October 2:30pm
-    • AGM and Congregational meeting
-    • Camp
+**Announcements** (Mook L) 
     
-**Mission Video** - Bibles for the Persecuted (1)
+**Sunday School** (Luke B, Shi Ya B)
 
-**Prayer for the church and the world**   (Mook L)
+**Praise:** *He Will Be*
 
-**Praise:** *My Lord, I did not choose you (Rej 97)* (Offering)
+**Mission Video** Bibles for the Persecuted (2)
 
-**Bible reading:** 2 John (MarJo A)
+**Prayer for the church and the world**   (John A)
 
-**Sermon:**  “TRUTH AND LOVE” (DM)
+**Bible reading:** Hebrews 6:9-12 (Seng T)
 
-**Praise:** *For the bread and for the wine* (Rej! 354)
+**Praise:** *Come Behold The Wondrous Mystery* (Offering)
 
-**Lord’s Supper** (includes welcome to membership for Yos & Sophia)
+**Sermon:**  “PERSEVERING FAITH” (Mook L)
 
-**Praise:** *Christ our hope in life and death*
+**Praise:** *May The Mind Of Christ*
 
-**Benediction**  (DM)
+**Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“TRUTH AND LOVE”   (2 John 1-3)
+“PERSEVERING FAITH” (Hebrews 6:9-12)
 Introduction
-1. The church
-    a) Presbyterian
-    b) Chosen
-    c) Mother
-    d) Loved
-2. The truth
-    a) Word
-    b) Jesus Christ
-    c) Holy Spirit
-3. The greeting
-    a) Wish
-    b) 3-fold
-    c) Father and Son
+
+    1. Heed the warning, Rejoice in the optimism
+    2. Certainty of Salvation
+    3. Imitators of Christ
+    
 Conclusion

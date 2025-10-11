@@ -2,42 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 24th August, 2025 
+### Order of Service Sunday, 12th October, 2025 
 
-**Call to Worship & Opening Prayer** Isaiah 51:7-8 (John A)
+**Call to Worship & Opening Prayer** Psalm 18:27-28 (John A)
 
-**Praise:** *Love Divine, All Loves Excelling (Rej! 441)*
+**Praise:** *Yet Not I*
 
-**Bible Reading** John 15:1-11 (Pam W)
+**Bible Reading** Ephesians 3:14-21 (Tim A)
 
 **Announcements** (Mook L) 
     
-**Sunday School** (Mia O, Shi Ya B)
+**Sunday School** (Luke B, Shi Ya B)
 
-**Praise:** *Blessed Assurance*
+**Praise:** *He Will Be*
+
+**Mission Video** Bibles for the Persecuted (2)
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Hebrews 5:11-14 (MarJo A)
+**Bible reading:** Hebrews 6:9-12 (Seng T)
 
-**Praise:** *All My Ways Are Known To You* (Offering)
+**Praise:** *Come Behold The Wondrous Mystery* (Offering)
 
-**Sermon:**  “LESSONS ABOUT SPIRITUAL IMMATURITY” (Mook L)
+**Sermon:**  “PERSEVERING FAITH” (Mook L)
 
-**Praise:** *This Life I Live*
+**Praise:** *May The Mind Of Christ*
 
 **Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“LESSONS ABOUT SPIRITUAL IMMATURITY”   (Hebrews 5:11-14)
-
+“PERSEVERING FAITH” (Hebrews 6:9-12)
 Introduction
 
-    1. Dull of hearing
-    2. Remaining consumers
-    3. Unskilled
-    4. Maturity comes from abiding in Christ
+    1. Heed the warning, Rejoice in the optimism
+    2. Certainty of Salvation
+    3. Imitators of Christ
     
 Conclusion
