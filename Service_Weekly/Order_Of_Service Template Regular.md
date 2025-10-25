@@ -2,42 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 12th October, 2025 
+### Order of Service Sunday, 26th October, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 18:27-28 (John A)
+**Call to Worship & Opening Prayer** Psalm 22:26-28 (John A)
 
-**Praise:** *Yet Not I*
+**Praise:** *Come and See the Shining Hope*
 
-**Bible Reading** Ephesians 3:14-21 (Tim A)
+**Bible Reading** Isaiah 25:1-8 (Callum H)
 
 **Announcements** (Mook L) 
+    • APWM Sunday - Video
+    • Carols on The Lawn
+    • Evening Service
+    • Ladies Gingerbread House Event
+    • Camp Debrief
+    • Lunch on 9th November
     
-**Sunday School** (Luke B, Shi Ya B)
+**Sunday School** (Luke B, Jack W)
 
-**Praise:** *He Will Be*
+**Praise:** *O For A Thousand Tongues To Sing*
 
-**Mission Video** Bibles for the Persecuted (2)
+**Mission Video** Bibles for the Persecuted (4)
 
-**Prayer for the church and the world**   (John A)
+**Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** Hebrews 6:9-12 (Seng T)
+**Bible reading:** Luke 7:11-17 (Rachel D)
 
-**Praise:** *Come Behold The Wondrous Mystery* (Offering)
+**Praise:** *Living Hope* (Offering)
 
-**Sermon:**  “PERSEVERING FAITH” (Mook L)
+**Sermon:**  “HOPE: IS IT A LIE?” (John H)
 
-**Praise:** *May The Mind Of Christ*
+**Praise:** *Because He Lives*
 
-**Benediction**  (ML)
+**Benediction**  (JH)
 
 
 **Sermon Outline**
 
-“PERSEVERING FAITH” (Hebrews 6:9-12)
+“HOPE: IS IT A LIE?”   (Luke 7:11-17)
 Introduction
-
-    1. Heed the warning, Rejoice in the optimism
-    2. Certainty of Salvation
-    3. Imitators of Christ
-    
+    1. We want hope
+    2. But it feels like a lie
+    3. The Lord’s compassion
+    4. The Lord’s power
+    5. The Lord for us
 Conclusion
