@@ -2,46 +2,50 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 27th July, 2025 
+### Order of Service Sunday, 2nd November, 2025 
 
-**Call to Worship & Opening Prayer** Malachi 3:3 (John A)
+**Call to Worship & Opening Prayer** 2 Timothy 4:1-5 (Douglas M)
 
-**Praise:** *Praise My Soul The King of Heaven*
+**Praise:** *Christ is made the sure foundation (R! 293)*
 
-**Bible Reading** Luke 22:39-46 (Russell E)
+**Bible Reading** Deuteronomy 12:29-13:11 (Pam W)
 
-**Announcements** (John A) 
-    • Evening Service 5pm tonight
-    • Trivia Lunch August 17th
-    • AGM tentative date 5th October
+**Announcements** (Mook L) 
     
-**Sunday School** (Jack W, Luke B)    
+**Sunday School** (Mia O, Shi Ya B)
 
-**Praise:** *Before the Throne of God Above*
+**Praise:** *All Glory Be To Christ*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Hebrews 5:1-10 (Pam W)
+**Bible reading:** 2 John (Mook L)
 
-**Praise:** *What A Friend We Have in Jesus* (Offering)
+**Praise:** *O Church Arise* (Offering)
 
-**Sermon:**  “JESUS GREATER THAN AARON” (Mook L)
+**Sermon:**  “THE COMMANDMENT AND THE TEACHING” (DM)
 
-**Praise:** *The Lord is My Salvation*
+**Praise:** *And now, O Father, mindful of the love (R! 357)*
 
-**Benediction**  (ML)
+**The Lord’s Supper**
+ 
+**Praise:** *Lord, dismiss us with Your blessing (R! 334)*
 
+**Benediction** (DM)
 
 **Sermon Outline**
 
-“JESUS GREATER THAN AARON”   (Hebrews 5:1-10)
+“THE COMMANDMENT AND THE TEACHING”   (2 John 4-11)
 
 Introduction
 
-    1. He was qualified to represent us
-    
-    2. He was appointed by God
-    
-    3. He became the source of our salvation
-    
+    1. The commandment - to love one another
+        ◦ Father’s command
+        ◦ The first command
+        ◦ A command for obeying
+
+    2. The Teaching - about Jesus Christ
+        ◦ Always under threat
+        ◦ Can cost us through carelessness
+        ◦ No toleration
+
 Conclusion

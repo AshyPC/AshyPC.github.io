@@ -1,49 +1,51 @@
-                                       ﻿---
+﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 26th October, 2025 
+### Order of Service Sunday, 2nd November, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 22:26-28 (John A)
+**Call to Worship & Opening Prayer** 2 Timothy 4:1-5 (Douglas M)
 
-**Praise:** *Come and See the Shining Hope*
+**Praise:** *Christ is made the sure foundation (R! 293)*
 
-**Bible Reading** Isaiah 25:1-8 (Callum H)
+**Bible Reading** Deuteronomy 12:29-13:11 (Pam W)
 
 **Announcements** (Mook L) 
-    • APWM Sunday - Video
-    • Carols on The Lawn
-    • Evening Service
-    • Ladies Gingerbread House Event
-    • Camp Debrief
-    • Lunch on 9th November
     
-**Sunday School** (Luke B, Jack W)
+**Sunday School** (Mia O, Shi Ya B)
 
-**Praise:** *O For A Thousand Tongues To Sing*
+**Praise:** *All Glory Be To Christ*
 
-**Mission Video** Bibles for the Persecuted (4)
+**Prayer for the church and the world**   (John A)
 
-**Prayer for the church and the world**   (Mook L)
+**Bible reading:** 2 John (Mook L)
 
-**Bible reading:** Luke 7:11-17 (Rachel D)
+**Praise:** *O Church Arise* (Offering)
 
-**Praise:** *Living Hope* (Offering)
+**Sermon:**  “THE COMMANDMENT AND THE TEACHING” (DM)
 
-**Sermon:**  “HOPE: IS IT A LIE?” (John H)
+**Praise:** *And now, O Father, mindful of the love (R! 357)*
 
-**Praise:** *Because He Lives*
+**The Lord’s Supper**
+ 
+**Praise:** *Lord, dismiss us with Your blessing (R! 334)*
 
-**Benediction**  (JH)
-
+**Benediction** (DM)
 
 **Sermon Outline**
 
-“HOPE: IS IT A LIE?”   (Luke 7:11-17)
+“THE COMMANDMENT AND THE TEACHING”   (2 John 4-11)
+
 Introduction
-    1. We want hope
-    2. But it feels like a lie
-    3. The Lord’s compassion
-    4. The Lord’s power
-    5. The Lord for us
+
+    1. The commandment - to love one another
+        ◦ Father’s command
+        ◦ The first command
+        ◦ A command for obeying
+
+    2. The Teaching - about Jesus Christ
+        ◦ Always under threat
+        ◦ Can cost us through carelessness
+        ◦ No toleration
+
 Conclusion
