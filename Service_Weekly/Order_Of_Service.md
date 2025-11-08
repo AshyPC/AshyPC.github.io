@@ -1,51 +1,44 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 2nd November, 2025 
+### Order of Service Sunday, 9th November, 2025 
 
-**Call to Worship & Opening Prayer** 2 Timothy 4:1-5 (Douglas M)
+**Call to Worship & Opening Prayer** 1 Timothy 6:15-16 (John A)
 
-**Praise:** *Christ is made the sure foundation (R! 293)*
+**Praise:** *Reformation Song*
 
-**Bible Reading** Deuteronomy 12:29-13:11 (Pam W)
+**Bible Reading** James 1:19-25 (Pam W)
 
 **Announcements** (Mook L) 
+    • Church lunch
+    • Missions for November = Mihalyis (Mission Spot next week)
     
-**Sunday School** (Mia O, Shi Ya B)
+**Sunday School** (Luke B, Jack W)
 
-**Praise:** *All Glory Be To Christ*
+**Praise:** *Jesus Master Whose I Am*
 
-**Prayer for the church and the world**   (John A)
+**Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** 2 John (Mook L)
+**Bible reading:** Philippians 2:12-30 (Stephen A)
 
-**Praise:** *O Church Arise* (Offering)
+**Praise:** *O Lord, My Rock and My Redeemer* (Offering)
 
-**Sermon:**  “THE COMMANDMENT AND THE TEACHING” (DM)
+**Sermon:**  “SALVATION WORKED OUT” (Aditya Kuthalam)
 
-**Praise:** *And now, O Father, mindful of the love (R! 357)*
+**Praise:** *The Lord Is My Salvation*
 
-**The Lord’s Supper**
- 
-**Praise:** *Lord, dismiss us with Your blessing (R! 334)*
+**Benediction**  (AK)
 
-**Benediction** (DM)
 
 **Sermon Outline**
 
-“THE COMMANDMENT AND THE TEACHING”   (2 John 4-11)
-
+“SALVATION WORKED OUT”   (Philippians 2:12-30)
 Introduction
-
-    1. The commandment - to love one another
-        ◦ Father’s command
-        ◦ The first command
-        ◦ A command for obeying
-
-    2. The Teaching - about Jesus Christ
-        ◦ Always under threat
-        ◦ Can cost us through carelessness
-        ◦ No toleration
-
+    1. It’s one thing to know it, another thing to do it
+    2. We’re called to work out our salvation
+        a) With the right perspective
+        b) With the right power
+        c) In the right way
+    3. So, let’s work it out!
 Conclusion
