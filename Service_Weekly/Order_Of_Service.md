@@ -2,43 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 9th November, 2025 
+### Order of Service Sunday, 16th November, 2025 
 
-**Call to Worship & Opening Prayer** 1 Timothy 6:15-16 (John A)
+**Call to Worship & Opening Prayer** Psalm 149:1 (John A)
 
-**Praise:** *Reformation Song*
+**Praise:** *Before the Throne of God Above*
 
-**Bible Reading** James 1:19-25 (Pam W)
+**Bible Reading** Psalm 27 (Pam W)
 
-**Announcements** (Mook L) 
-    • Church lunch
-    • Missions for November = Mihalyis (Mission Spot next week)
+**Announcements** (John A) 
+    • Carols on The Lawn
+    • Ladies Gingerbread House Event
     
-**Sunday School** (Luke B, Jack W)
+**Sunday School** (Shi Ya B, Mia O)
 
-**Praise:** *Jesus Master Whose I Am*
+**Praise:** *Great Is Thy Faithfulness*
 
-**Prayer for the church and the world**   (Mook L)
+**Mission Spot** Mihalyis (G McK)
 
-**Bible reading:** Philippians 2:12-30 (Stephen A)
+**Prayer for the church and the world**   (John A)
 
-**Praise:** *O Lord, My Rock and My Redeemer* (Offering)
+**Bible reading:** Hebrews 6:13-20 (Rachel D)
 
-**Sermon:**  “SALVATION WORKED OUT” (Aditya Kuthalam)
+**Praise:** *My Hope Is Built* (Offering)
 
-**Praise:** *The Lord Is My Salvation*
+**Sermon:**  “AN UNBREAKABLE PROMISE” (ML)
 
-**Benediction**  (AK)
+**Praise:** *Christ The Sure and Steady Anchor*
+
+**Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“SALVATION WORKED OUT”   (Philippians 2:12-30)
+“AN UNBREAKABLE PROMISE”   (Hebrews 6:13-20)
 Introduction
-    1. It’s one thing to know it, another thing to do it
-    2. We’re called to work out our salvation
-        a) With the right perspective
-        b) With the right power
-        c) In the right way
-    3. So, let’s work it out!
+    1. Patience
+    2. Two unchangeable things
+    3. Sure and steadfast anchor
 Conclusion

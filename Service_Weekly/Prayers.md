@@ -3,33 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 2nd November 2025
+### 16th November 2025
 
-**Lamentations 3:40-41** 
-_[40] Let us test and examine our ways, and return to the Lord!_
-_[41]Let us lift up our hearts and hands to God in heaven:_
+**Psalm 17:6** 
+_I call upon you, for you will answer me, O God; incline your ear to me; hear my words._
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that Your anointed prophet, Jeremiah, expressed his sadness at the need for judgement, because Your chosen people had sinned grievously. But his words give us great encouragement as we read them today. We can examine ourselves, test our ways and return to You because of Jesus’ sacrifice on the Cross and His resurrection to life again on the third day.
+O Lord, we thank You that You listen when we call to You, and so we are encouraged to bring our pleas to You.
 
-We thank You that we can lift our hands and our hearts to You, for You hear from heaven, and You forgive us and restore us in righteousness. Today we will celebrate the Lord’s Supper as a remembrance, as a present reality of Your grace and mercy to us, and as a future hope for its fulfillment in the Marriage Supper of the Lamb, when He returns to claim His spotless Bride.
+We know that we are sinners and in trouble in this world. We thank You that we have been forgiven by Your grace and mercy alone, and have been set free from sin. We thank You for sending Jesus, the Eternal Son of God, to save us from Your righteous judgement upon sin.
 
-We thank You also for the Presence of the Holy Spirit, testifying that we are Your children, and fellow-heirs with Christ of all the promises of heaven.
+We thank You for sending the Holy Spirit, Third Person of the Trinity, to carry our Words to You even when we don’t know how to say what is on our hearts. We thank You that He also remains with us daily, to strengthen us against temptation. We pray that we would not resist His work, so that we grow in godliness daily, and stand firm in Your strength against the wiles of the enemy.
 
 **The Wide World... and the Wider Church**
-With this sure hope in our hearts, we pray for this world where so many live blindly, not knowing who Jesus is, not knowing that they are lost in sin, just as we were before You reached down to rescue us. We pray for the persecuted church, for believers in many places who suffer direct opposition, personal attacks and the destruction of all they might have in this world, as they continue to name the Precious name of Jesus, their Saviour.
+We pray for this world where so many live without a sure foundation in the Truth, drifting with little purpose, unaware of the eternal hope available to all who trust in Jesus. We pray that our words and our lives demonstrate that we put our trust in Jesus death at the Cross, and His resurrection from the dead and His eternal reign in glory.
 
-We pray for the work of Bible League, bringing Bibles to those suffering persecution, and for Samaritan’s Purse taking shoeboxes to children in remote parts of this world, so that they and their families may hear the Good News of Your merciful release from sin, and a sure hope for the future.
+We pray for our nation, where last week Remeberance Day passed with only a little recognition of what it takes to ensure we live quiet lives, free to share the Good News, and to gather in worship without interference or the terrorism that afflicts Your people elsewhere.
+
+We pray for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today. We see Your church beset by enemies outside and division inside, but still growing as You add daily those who are being saved.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we labour in our local mission field. We thank You for our various talents and abilities and pray for courage to apply them in the work of the Kingdom. We pray for opportunities to share the Good News that Jesus saves, and that we would take up those opportunities when they show up.
+We pray for our work here at Ashburton, as we also labour with our various talents and abilities in obedience to Your calling. We pray for continued wisdom for the Selection Committee, working to do Your will, so that in the end, Your purposes prevail and the work of the Kingdom continues according to Your plan and purposes.
 
-We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will, so that in the end, Your purposes prevail and we call a new minister of Your choosing, to bring us Your Word and sacraments. We pray for ourselves to support them in their work, as they serve on our behalf in what could be a lengthy process.
+We continue in prayer for those in need of Your healing hand – for Alan, Diane and others affected by illness or injury. 
 
-We continue in prayer for those in need of Your healing hand – for Alan, Diane, John McKenzie and others affected by illness or injury. We pray for Clarissa, facing another operation in a week or so, for her parents as they face the stress of watching and waiting for the results, and for Raymond and Jessie as they support the family at this critical time.
-
-We thank You for Your Word, and for Douglas as he preaches today, and as he leads us in the Lord’s Supper later. We pray that we would be diligent hearers and do-ers of Your Word, making the most of the means of grace. As we partake of a familiar part of congregational life, we pray that You would open our eyes to see the wonders of Your grace and mercy afresh, because they are new every morning.
+We thank You for Your Word, and for Mook as he preaches today. We pray that we would hold firmly to the sure anchor of our souls, and so endure to the end, confident that one day we will see the return of our King of kings.
 
 In His Precious Name we pray, Amen.
