@@ -2,42 +2,43 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 16th November, 2025 
+### Order of Service Sunday, 23rd November, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 149:1 (John A)
+**Call to Worship & Opening Prayer** Psalm 34:1-3 (John A)
 
-**Praise:** *Before the Throne of God Above*
+**Praise:** *Jesus Shall Reign*
 
-**Bible Reading** Psalm 27 (Pam W)
+**Bible Reading** Revelation 7:9-12 (Tim A)
 
-**Announcements** (John A) 
+**Announcements** (Mook L) 
     • Carols on The Lawn
+    • Evening Service
     • Ladies Gingerbread House Event
     
-**Sunday School** (Shi Ya B, Mia O)
+**Sunday School** (Mia O, Jack W)
 
-**Praise:** *Great Is Thy Faithfulness*
+**Praise:** *Crown Him With Many Crowns*
 
-**Mission Spot** Mihalyis (G McK)
+**Prayer for the church and the world**   (Mook L)
 
-**Prayer for the church and the world**   (John A)
+**Bible reading:** Revelation 21:1-5 (Seng T)
 
-**Bible reading:** Hebrews 6:13-20 (Rachel D)
+**Praise:** *Ancient of Days* (Offering)
 
-**Praise:** *My Hope Is Built* (Offering)
+**Sermon:**  “THE GOD WHO FULFILS AND COMPLETES” (Oli B)
 
-**Sermon:**  “AN UNBREAKABLE PROMISE” (ML)
+**Praise:** *We will feast in the house of Zion*
 
-**Praise:** *Christ The Sure and Steady Anchor*
-
-**Benediction**  (ML)
+**Benediction**  (OB)
 
 
 **Sermon Outline**
 
-“AN UNBREAKABLE PROMISE”   (Hebrews 6:13-20)
+“THE GOD WHO FULFILS AND COMPLETES”   (Revelation 21:1-5)
 Introduction
-    1. Patience
-    2. Two unchangeable things
-    3. Sure and steadfast anchor
+    1. The best is yet to come
+    2. We’ll be face-to-face with our Saviour God
+    3. We’ll be side-by-side as we glorify God
+    4. We’ll be at home in a world made new with God
+    5. Salvation to the ends of the earth
 Conclusion
