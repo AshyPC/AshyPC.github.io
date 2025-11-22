@@ -2,48 +2,43 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 26th October, 2025 
+### Order of Service Sunday, 23rd November, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 22:26-28 (John A)
+**Call to Worship & Opening Prayer** Psalm 34:1-3 (John A)
 
-**Praise:** *Come and See the Shining Hope*
+**Praise:** *Jesus Shall Reign*
 
-**Bible Reading** Isaiah 25:1-8 (Callum H)
+**Bible Reading** Revelation 7:9-12 (Tim A)
 
 **Announcements** (Mook L) 
-    • APWM Sunday - Video
     • Carols on The Lawn
     • Evening Service
     • Ladies Gingerbread House Event
-    • Camp Debrief
-    • Lunch on 9th November
     
-**Sunday School** (Luke B, Jack W)
+**Sunday School** (Mia O, Jack W)
 
-**Praise:** *O For A Thousand Tongues To Sing*
-
-**Mission Video** Bibles for the Persecuted (4)
+**Praise:** *Crown Him With Many Crowns*
 
 **Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** Luke 7:11-17 (Rachel D)
+**Bible reading:** Revelation 21:1-5 (Seng T)
 
-**Praise:** *Living Hope* (Offering)
+**Praise:** *Ancient of Days* (Offering)
 
-**Sermon:**  “HOPE: IS IT A LIE?” (John H)
+**Sermon:**  “THE GOD WHO FULFILS AND COMPLETES” (Oli B)
 
-**Praise:** *Because He Lives*
+**Praise:** *We will feast in the house of Zion*
 
-**Benediction**  (JH)
+**Benediction**  (OB)
 
 
 **Sermon Outline**
 
-“HOPE: IS IT A LIE?”   (Luke 7:11-17)
+“THE GOD WHO FULFILS AND COMPLETES”   (Revelation 21:1-5)
 Introduction
-    1. We want hope
-    2. But it feels like a lie
-    3. The Lord’s compassion
-    4. The Lord’s power
-    5. The Lord for us
+    1. The best is yet to come
+    2. We’ll be face-to-face with our Saviour God
+    3. We’ll be side-by-side as we glorify God
+    4. We’ll be at home in a world made new with God
+    5. Salvation to the ends of the earth
 Conclusion
