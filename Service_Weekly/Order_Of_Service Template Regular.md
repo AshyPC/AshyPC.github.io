@@ -2,43 +2,45 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 23rd November, 2025 
+### Order of Service Sunday, 30th November, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 34:1-3 (John A)
+**Call to Worship & Opening Prayer** Titus 3:4-ff (Alan Every)
 
-**Praise:** *Jesus Shall Reign*
+**Praise:** *O The Deep, Deep Love of Jesus (Rej 440)*
 
-**Bible Reading** Revelation 7:9-12 (Tim A)
+**Bible Reading** Genesis 15:6-21 (Callum H)
 
-**Announcements** (Mook L) 
+**Announcements** (John A) 
     • Carols on The Lawn
-    • Evening Service
+    • Working Bee
     • Ladies Gingerbread House Event
     
-**Sunday School** (Mia O, Jack W)
+**Sunday School** (Shi Ya B, Jack W)
 
-**Praise:** *Crown Him With Many Crowns*
+**Praise:** *Glory be to Jesus (Rej 220)*
 
-**Prayer for the church and the world**   (Mook L)
+**Prayer for the church and the world**   (John A)
 
-**Bible reading:** Revelation 21:1-5 (Seng T)
+**Praise:** *Man of Sorrows (Rej 206)* (Offering)
 
-**Praise:** *Ancient of Days* (Offering)
+**Bible reading:** Mark 15:1-15 (AE)
 
-**Sermon:**  “THE GOD WHO FULFILS AND COMPLETES” (Oli B)
+**Sermon:**  “THE GOSPEL IN THE OLD AND NEW TESTAMENT” (AE)
 
-**Praise:** *We will feast in the house of Zion*
+**Praise:** *Praise my soul the King of heaven (Rej 70)*
 
-**Benediction**  (OB)
+**Benediction**  (AE)
 
 
 **Sermon Outline**
 
-“THE GOD WHO FULFILS AND COMPLETES”   (Revelation 21:1-5)
+
 Introduction
-    1. The best is yet to come
-    2. We’ll be face-to-face with our Saviour God
-    3. We’ll be side-by-side as we glorify God
-    4. We’ll be at home in a world made new with God
-    5. Salvation to the ends of the earth
+
+    1. 
+    
+    2. 
+    
+    3. 
+    
 Conclusion
