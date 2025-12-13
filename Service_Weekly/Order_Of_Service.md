@@ -1,54 +1,43 @@
-﻿---
+                                       ﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 6th December, 2025 
+### Order of Service Sunday, 14th December, 2025 
 
-**Call to Worship & Opening Prayer** Hebrews 13:12-16 (Douglas M)
+**Call to Worship & Opening Prayer** Psalm 13:5-6 (John A)
 
-**Praise:** *The Tender Love A Father Has (Rej 68)*
+**Praise:** *In Christ Alone*
 
-**Bible Reading** Philemon (MarJo A)
+**Bible Reading** Matthew 7:21-23 (Pam W)
 
-**Announcements** (John A) 
-    • Working Bee - thanks
-    • Gingerbread House
-    • Carols preparation
+**Announcements** (Mook L) 
+    • Carols on The Lawn
     
-**Sunday School** (Mia O, Luke B)
+**Praise:** *What A Friend We Have In Jesus*
 
-**Praise:** *Brother Let Me Be Your Servant (Rej 310)*
+**Prayer for the church and the world**   (Mook L)
 
-**Prayer for the church and the world**   (John A)
+**Bible reading:** John 14:15-26 (SA)
 
-**Bible reading:** 3 John (Pam W)
+**Praise:** *Come Gracious Spirit Heavenly Dove* (Offering)
 
-**Praise:** *A Christian’s Daily Prayer* (Offering)
+**Sermon:**  “JESUS WHO SHAPES OUR LIVES” (Dong Jin C)
 
-**Sermon:**  “WALKING IN THE TRUTH AND PRACTISING LOVE” (DM)
+**Praise:** *Blessed Assurance*
 
-**Praise:** *Loved With Everlasting Love (Rej 576)*
-
-**The Lord’s Supper**
- 
-**Praise:** *Lord, dismiss us with Your blessing (R! 334)*
-
-**Benediction** (DM)
-
+**Benediction**  (DJC)
 
 
 **Sermon Outline**
 
-“WALKING IN THE TRUTH AND PRACTISING LOVE”   (3 John)
+“JESUS WHO SHAPES OUR LIVES”   (John 14:15-26)
 
 Introduction
 
-    • 3 John is about 3 individuals - the first today - Gaius
-    • John’s responses to him:
-        1. He loves him because God has loved him
-        2. He wishes him health in body as well as soul
-        3. He rejoices as a father that he is walking in the truth
-        4. He commends his hospitality towards visiting preachers
-        5. He orders him to support such people and become their fellow workers
-        6. He wants to meet him face to face
+    1. Our lives shaped by Jesus means enjoying personal fellowship with Him in our union with Him.
+    
+    2. ​Our lives shaped by Jesus means learning and understanding the truth—Jesus’ teaching.
+    
+    3. ​Our lives shaped by Jesus means growing in obedience and in deeper love.
+
 Conclusion
