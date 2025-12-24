@@ -2,41 +2,38 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 21st December, 2025 
+### Order of Service Christmas Day, 25th December, 2025 
 
-**Call to Worship & Opening Prayer** Psalm 67:3-4 (John A)
+**Call to Worship & Opening Prayer** Isaiah 9:6-7 (Alan E)
 
-**Praise:** *O Come, All Ye Faithful*
+**Praise:** *Angels from the Realms of Glory*
 
-**Bible Reading** Isaiah 9:1-7 (Pam W)
+**Bible Reading** Micah 5:2-5a (Tim A)
 
-**Announcements** (John A) 
+**Announcements** (John A) NIL
     
-**Praise:** *O Come O Come Emmanuel*
+**Praise:** *O Holy Night*
 
 **Prayer for the church and the world**   (Mook L)
 
-**Bible reading:** Luke 2:1-20 (Seng T)
+**Praise:** *O Little Town of Bethlehem* (Offering)
 
-**Praise:** *Child in the Manger* (Offering)
+**Bible reading:** Matthew 2:1-12 (Alan E)
 
-**Sermon:**  “AN UNLIKELY CHRISTMAS” (David A)
+**Sermon:**  “RESPONDING TO JESUS” (AE)
 
-**Praise:** *Joy to the World*
+**Praise:** *Hark The Herald Angels Sing*
 
-**Benediction**  (DA)
+**Benediction**  (AE)
 
 
 **Sermon Outline**
 
-“AN UNLIKELY CHRISTMAS”  (Luke 2:1-20)
-
+“RESPONDING TO JESUS”   (Matthew 2:1-12)
 Introduction
 
-    1. What are the chances!
-    
-    2. Improbability-- God himself
-    
-    3. Why? So what is God’s might be ours
-    
+
+
+
+
 Conclusion
