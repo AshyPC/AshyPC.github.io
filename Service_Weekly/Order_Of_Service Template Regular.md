@@ -4,36 +4,35 @@ title: Order of Service
 ---
 ### Order of Service Sunday, 30th November, 2025 
 
-**Call to Worship & Opening Prayer** Titus 3:4-ff (Alan Every)
+**Call to Worship & Opening Prayer** Psalm 18:30 (John A)
 
-**Praise:** *O The Deep, Deep Love of Jesus (Rej 440)*
+**Praise:** *O Come O Come Emmanuel*
 
-**Bible Reading** Genesis 15:6-21 (Callum H)
+**Bible Reading** 1 John 2:28-3:3 (Stephen A)
 
 **Announcements** (John A) 
-    • Carols on The Lawn
-    • Working Bee
-    • Ladies Gingerbread House Event
+    • 
+    • 
+    • 
     
-**Sunday School** (Shi Ya B, Jack W)
-
-**Praise:** *Glory be to Jesus (Rej 220)*
+**Praise:** *O Come All Ye Faithful*
 
 **Prayer for the church and the world**   (John A)
 
-**Praise:** *Man of Sorrows (Rej 206)* (Offering)
+**Bible reading:** 2 Peter 1:1-11 (MarJo)
 
-**Bible reading:** Mark 15:1-15 (AE)
+**Praise:** *Yet Not I but through Christ in me* (Offering)
 
-**Sermon:**  “THE GOSPEL IN THE OLD AND NEW TESTAMENT” (AE)
+**Sermon:**  “THE FOUNDATION OF LIFE AND GROWTH” (Mook L)
 
-**Praise:** *Praise my soul the King of heaven (Rej 70)*
+**Praise:** *O For A Closer Walk With God*
 
-**Benediction**  (AE)
+**Benediction**  (ML)
 
 
-**Sermon Outline**
+**Sermon Outline** 
 
+“THE FOUNDATION OF LIFE AND GROWTH”   (2 Peter 1:1-11)
 
 Introduction
 
@@ -44,3 +43,15 @@ Introduction
     3. 
     
 Conclusion
+
+
+Call to Worship (Psalm 18:30) & Opening prayer 
+[30] This God—his way is perfect; the word of the Lord proves true; he is a shield for all those who take refuge in him. 
+Let us pray…
+Heavenly Father, we declare with David that Your way is perfect, Your Word is ever true and You are a shield to us, who have taken refuge under Your wings.
+We give You thanks that there is no Saul trying to kill us, nor a Herod killing the young children of Bethlehem but we do see opposition to Your Word, Your people and Your Church in this land.
+But we have gathered to celebrate the coming of Jesus, Who was born as we are yet without sin, but who eventually died on the Cross, so that we sinners do not die, but could be redeemed to receive eternal life by Your grace alone.
+He has won us back from captivity to sin and the curse, and we thank You that we can take refuge in Him, Who is our Shield and our Defender from Your righteous judgment against sin and death. 
+We thank You that Jesus is The Life and The Resurrection, and that He is our King of kings, Who is to return one day, and take us to our heavenly home above.
+Therefore we say and sing, Come, Lord Jesus! AMEN!
+[O Come, O Come, Emmanuel]
