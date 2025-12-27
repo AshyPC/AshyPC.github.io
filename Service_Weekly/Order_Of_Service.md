@@ -2,38 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Christmas Day, 25th December, 2025 
+### Order of Service Sunday, 28th December, 2025 
 
-**Call to Worship & Opening Prayer** Isaiah 9:6-7 (Alan E)
+**Call to Worship & Opening Prayer** Psalm 18:30 (John A)
 
-**Praise:** *Angels from the Realms of Glory*
+**Praise:** *O Come O Come Emmanuel*
 
-**Bible Reading** Micah 5:2-5a (Tim A)
+**Bible Reading** 1 John 2:28-3:3 (Stephen A)
 
-**Announcements** (John A) NIL
+**Announcements** (John A)
+  - Church lunch today
+  - Mook on leave from next week
+  - Pam on leave now 
     
-**Praise:** *O Holy Night*
+**Praise:** *O Come All Ye Faithful*
 
-**Prayer for the church and the world**   (Mook L)
+**Prayer for the church and the world**   (John A)
 
-**Praise:** *O Little Town of Bethlehem* (Offering)
+**Bible reading:** 2 Peter 1:1-11 (MarJo)
 
-**Bible reading:** Matthew 2:1-12 (Alan E)
+**Praise:** *Yet Not I but through Christ in me* (Offering)
 
-**Sermon:**  “RESPONDING TO JESUS” (AE)
+**Sermon:**  “THE FOUNDATION OF LIFE AND GROWTH” (Mook L)
 
-**Praise:** *Hark The Herald Angels Sing*
+**Praise:** *O For A Closer Walk With God*
 
-**Benediction**  (AE)
+**Benediction**  (ML)
 
 
 **Sermon Outline**
 
-“RESPONDING TO JESUS”   (Matthew 2:1-12)
-Introduction
+“THE FOUNDATION OF LIFE AND GROWTH”   (2 Peter 1:1-11)
+Introduction:
 
 
 
 
 
-Conclusion
+
+Conclusion: 
