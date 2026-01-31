@@ -1,33 +1,56 @@
-**Call to Worship**: Isaiah 44:22-23 / **Opening Prayer**
+---
+layout: oos
+title: Order of Service
+---
+## Order of Service Communion 
+### 1st February 2026
 
-**Praise**: _To God Be the Glory (Rej! 63)_
+**Call to Worship** (Ephesians 2:18-22) / **Opening prayer** (Douglas M)
 
-**Bible Reading**: Genesis 1:1-5 (Callum H)
+**Praise**: _Shout, For The Blessed Jesus Reigns (Rejoice 319)_
 
-**Announcements**
+**Bible Reading**: Colossians 1:9-20 (Tim A)
 
-**Praise**: _At the Name of Jesus (Rej! 123)_
+**Announcements** (Mook L)
 
-**Prayer for the church and the world** (John A)
+**Sunday School** (Jack W, Mia O)
 
-**Bible Reading**: John 1:1-18 (Stephen A)
+**Praise**: _My Heart Is Filled With Thankfulness_
 
-**Praise**: _Servant King_ (Offering)
+**Prayer for the church and the world**  (John A)
 
-**Sermon**: Believe in Jesus, the Embodiment of God’s Grace (John 1:1-5)
+**Bible reading**: John 5:31-40, 3 John 9-14 (Rachel D)
 
-**Praise**: _Consider Christ_
+**Praise**: _How Sure The Scriptures Are (Rejoice 279)_
 
-**Benediction**: Numbers 6:24-26
+**Sermon**: “DO NOT IMITATE WHAT IS EVIL BUT WHAT IS GOOD” (DM)
+
+**Praise**: _Come Risen Lord (Rejoice 355)_
+
+**The Lord’s Supper**
+
+**Praise**: _Yet Not I But Through Christ In Me_
+
+**Benediction** (DM)
 
 ‌
 
 **Sermon Outline**
 
-“Believe in Jesus, the Embodiment of God’s Grace” (John 1:1-5)
+“DO NOT IMITATE WHAT IS EVIL BUT WHAT IS GOOD”   (3 John 9-14)
 
-1. Jesus has the authority and power of God
+Introduction
 
-2. Jesus has given us life
+1. What the Church should not be like (9-10)
+   1. Diotrephes the bad example
+      1. He loved to be first
+      2. He did not accept the authority of the Apostles like John
+      3. He did and said what he liked
+2. What the Church should be like (12)
+   1. Demetrius the good example. He was affirmed by:
+      1. All the others
+      2. The Truth itself
+      3. John the Apostle
+3. A summing up (11)
 
-3. Jesus brings redemption to his people
+Conclusion

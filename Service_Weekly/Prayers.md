@@ -3,32 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 18th January 2026
+### 1st February 2026
 
-**Psalm 28:1-2** 
-_[1] To You, O Lord, we call; our rock, be not deaf to us, lest, if You be silent to us, we become like those who go down to the pit._
-_[2] Hear the voice of our pleas for mercy, when we cry to You for help, when we lift up our hands toward Your most holy sanctuary._
+**Psalms 65:5-7** 
+_[5] By awesome deeds You answer us in righteousness, O God of our salvation, You who are the trust of all the ends of the earth and of the farthest sea;_
+_[6] Who establishes the mountains by His strength, Being girded with might;_
+_[7] Who stills the roaring of the seas, The roaring of their waves, And the tumult of the peoples._
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that You hear and answer when we call out to You. You are our secure Rock, our shelter, the Mighty One Who alone saves.
+O Lord, we worship You today as the awesome God of Creation. We also worship You as the God of Righteousness, Who saved us not because of anything we had done, but because of Your love and mercy expressed towards us who rebelled and fell under the power of the enemy.
 
-We turn to You for our eternal salvation, for we are sinners and in trouble in this world. We may not realise how much more terrifying are the spiritual forces which separate us from You, but We thank You for sending Jesus to die in our place, taking the penalty that belongs to us, since we were the ones who turned away from You.
+We thank You for Jesus, Your Only Son, the Living Word, Who came on a rescue mission to save us by defeating the enemy. We thank You that, through the horrors of apparent defeat in the Cross, we have been set free from sin. We thank You that when Jesus rose from the grave in victory, He gave us new life, and unmerited righteousness in exchange for our sinful past.
 
-We know that we could not save ourselves even in this world, where we see natural disasters in the form of floods, fires and tornados. We see the immense power of what many call “the forces of nature” and we rightly fear their terrible effects.
+We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, which gave us a sure hope for our eternal future in restored relationship with You.
+
+We thank You for the written Word also, preserved through time, guarded and proclaimed by Your church worldwide. We seek to treasure it because we find it to be Your trustworthy communication with us, revealing to us all that we need for life and godliness.
 
 **The Wide World... and the Wider Church**
-We pray for those affected by floods and bushfires in other places. We still marvel that in one continent we can see both at the same time, and we give You thanks for all the emergency workers who have volunteered to help save life and property. We pray for those who have lost their own homes while defending others. And we pray for the residents in the fire areas who have been evacuated. They still have worries for their homes, their families and their neighbours.
-
-We also pray for the flood victims, where even though no lives have been lost, there has been great loss of property. We also pray for the emergency services as they work hard to assist the victims with basic necessities.
-
+We pray for the Church in this world, as the guardian of the Truth of Your Word, to proclaim Your life-giving Word of salvation, but also Your warning of judgement to a world which still wants to turn away from You. We thank You for the many places where Your Word of Truth is being declared today, and pray for continued boldness in this time when so many do not want to hear.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom. Help us to keep our focus on the work of the Kingdom, as some plant, others water but You give the growth. We thank You for the work of the Blue Moose mission and the continuing work in St Arnaud. Thank You that the mission was able to continue despite the threat of fires round about, and we pray that the young people will not be distracted from reading the Bibles that they have received. May the various testimonies of the mission team plant good seed in the hearts of the residents so that the churches there may reap a harvest in due time.
+We pray for our work here at Ashburton, as we labour with our various talents and abilities in the work of the Kingdom. We pray for the man of Your choosing to lead this work, and we pray for the Selection Committee, as they seek Your wisdom, and work to do Your will, so that in the end, Your purposes prevail. We pray for ourselves to support them in their work, as they serve on our behalf in what could be a lengthy process.
 
-We continue in prayer for those in need of Your healing hand – for Alan, Diane, John, Russell and Jocelyn and others affected by illness or injury. 
+We continue in prayer for those in need of Your healing hand – for Alan, Diane, Russell and Jocelyn, John McKenzie with his ongoing treatment and others affected by illness or injury. 
 
-We thank You for Your Word, and for Brett as he preaches today. We pray that we would be diligent hearers and do-ers of Your Word, making the most of the means of grace.
+We pray for our fellowship one with another, supporting and encouraging each other towards greater godliness. We pray for Douglas as he preaches today. May his words build us up so that we show forth the grace of our Lord to all whom we meet.
 
 In His Precious Name we pray, Amen.
