@@ -2,31 +2,37 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 15th February, 2026 
+### Order of Service Sunday, 1st March, 2026 
 
-**Call to Worship** (Isaiah 46:9-10) / **Opening prayer** (John A)
+**Call to Worship** (Acts 2:17-21) / **Opening prayer** (Douglas M)
 
-**Praise**: _To God Be The Glory_
+**Praise**: _Lord Jesus, when Your people meet (Rej 327)_
 
-**Bible Reading**: Mark 15:33-41  (Mook L)
+**Bible Reading**: John 19:28-40 (Pam W)
 
-**Announcements** (ML)
+**Announcements**  (John A)
+1 Special informal meeting after the service today by DM
+2 Selection Committee Meeting next Sunday 8th after the service
+3 Board meeting Tuesday 31st March
 
-**Sunday School** (Mia O, Luke B)
 
-**Praise**: _My Heart Is Filled With Thankfulness_
+**Sunday School** (Jack W, Mia O)
 
-**Mission Spot** (Gaye M)
+**Praise**: _Through the night of doubt and sorrow (Rej 493)_
 
 **Prayer for the church and the world**  (JA)
 
-**Bible reading**: Psalm 22 (MarJo A)
+**Bible reading**: Acts 17:1-15 (Rachel D)
 
-**Praise**: _When I Survey The Wondrous Cross_
+**Praise**: _How sure the Scriptures are!_
 
-**Sermon**: “THE SERMON JESUS PREACHED FROM THE CROSS” (Oli Blythe)
+**Sermon**: “CHURCH IN THESSALONICA” (DM)
 
-**Praise**: _Jesus Paid It All_
+**Praise**: _He gave His life in selfless love (Rej 119)_
+
+**The Lord’s Supper**
+
+**Praise:** _Lead us, heavenly Father, lead us (Rej 482)_
 
 **Benediction** (OB)
 
@@ -34,25 +40,11 @@ title: Order of Service
 
 **Sermon Outline**
 
-“THE SERMON JESUS PREACHED FROM THE CROSS”   (Psalm 22)
-
+“CHURCH IN THESSALONICA”   (Acts 17:1-15; John 19:28-40)
 Introduction
-
-1. Jesus says: I uttered a Cry for You (1-18)
-2. Jesus says: I received an Answer for You (19-21)
-3. Jesus says: I achieved a Victory for You (22-31)
-4. So we can Enter the New Year with a Finished Work
-
+    1. The Church
+    2. The Message
+    3. The Scriptures
+    4. The Charges
 Conclusion
 
-Call to Worship (Isaiah 46:9-10) & Opening prayer 
-[9] Remember the former things long past, For I am God, and there is no other; I am God, and there is no one like Me,
-[10] Declaring the end from the beginning, And from ancient times things which have not been done, Saying, ‘My purpose will be established, And I will accomplish all My good pleasure’
-
-Let us pray…
-Heavenly Father, we come before You with thanks for Your great grace to us expressed in Jesus sacrifice, saving us from our sin, from its chains and from the guilt we know for offending You by turning away. We thank You that He paid the penalty and took away our self-righteous “filthy rags”, giving us His perfect righteousness in their place.
-We have gathered today with purpose – to glorify Your Name and to submit our daily lives afresh to the authority of Your Eternal Word.
-We pray that by Your Holy Spirit we can sing to Your glory from joyful hearts today, that we can take in Your word as we pay attention to the preaching, that we can say “Amen” to the prayers that are offered. And we pray that what we hear from Your Word will stay with us and change how we live so that we are more and more like Jesus, wherever we go and whomever we meet in the coming days.
-In His Holy Name we pray, Amen.
-
-[To God Be The Glory]

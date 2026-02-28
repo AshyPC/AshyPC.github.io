@@ -3,41 +3,30 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 15th February 2026
+### 1st March 2026
 
-
-**Micah 7:18-20**
-_[18] Who is a God like you, pardoning iniquity and passing over transgression for the remnant of his inheritance? He does not retain his anger forever, because he delights in steadfast love._
-_[19] He will again have compassion on us; he will tread our iniquities underfoot. You will cast all our sins into the depths of the sea._
-_[20] You will show faithfulness to Jacob and steadfast love to Abraham, as you have sworn to our fathers from the days of old._
-
-Let us pray…
-
-**Confession**
-In this present age, we are so like the nation of Judah, where so many have turned away from You, to revel in self-interest and sin, to deny the truth, to turn right on its head and instead to celebrate wrong.
-
-We confess that we live in a time when it is not easy to remain faithful because there is so much pressure to follow the crowd, away from the Cross and the empty tomb. We know that we could not be perfect as You are Perfect, for we are sinners and in trouble in this world.
+**Lamentations 3:40-41**
+_[40] Let us test and examine our ways, and return to the Lord!_
+_[41] Let us lift up our hearts and hands to God in heaven_
 
 **Thanks to God**
-Lord, we thank You for Micah asking the impossible question: “Is there any god like You?” We thank You that there is none like You, patiently forgiving sin, always seeking our highest good, which is to be restored in relationship with You as Your redeemed sons and daughters.
+O Lord, we thank You that You are always ready to receive us when we return to You.
 
-We thank You that our iniquity has been pardoned by Your grace and mercy alone, that our transgressions have been passed over, and we have been set free from sin. We thank You for sending Jesus to save us.
+We know that we have failed in many ways this week past, but we turn back to You in repentance, trusting in Your mercy and grace as expressed in Jesus Who came to fulfill all righteousness on our behalf.
 
-We look back to the Cross and the Resurrection, remembering what Jesus did to secure our salvation. Micah was looking forward to Bethlehem where the Saviour would be born, where Your promise to Abraham would be fulfilled.
+We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, which secured our eternal salvation. We thank You that Jesus has given us His perfect righteousness, in place of our self-righteousness, His riches for our poverty, and that we will one day join Him in His heavenly home, as He once joined us on this Earth.
+
+We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
 
 **The Wide World... and the Wider Church**
-We pray for this world where we so often hear bad news, but rarely do we hear the Good News of people being saved, coming to faith, and worshipping You.
+We pray for this world which has once again become more dangerous and where we again see warfare reported vividly on our TV screens. We recall from Your Word that Jesus warned of wars and rumours of wars, but we are reassured that this is not the end, and You always hold this world in Your hands, despite what man may do to kill and destroy.
 
-We pray for those close to us, who do not know the Truth. We pray for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today.
+We pray for believers in those war-torn trouble spots, for their safety, their encouragement, and for help to flee the danger. We pray for Your church to stand firm, for the good news to overcome the bad, and for souls to be saved even in these troubled days.
 
 **Ashburton**
-We pray for our work here at Ashburton, committing ourselves afresh to the work of the Kingdom. We ask You to lead us as we form up in community groups, to study your Word, not just academically, but in order to apply it to our lives, and to care for and pray for one another.
+We continue to pray for our work here at Ashburton, even though we could not hold our usual evening prayer service last week. We pray that You would continue to lead us, draw us closer to the Cross, and enable us to do You will here, so that we witness faithfully to Your saving work in this community.
 
-We pray for the work of the Selection Committee as they seek Your wisdom, and Your will, so that Your purposes prevail when we call a new minister of Your choosing, to lead and guide this work. We pray for ourselves to support them as they serve on our behalf in what could be a lengthy process.
+We continue in prayer for those in need of Your healing hand. And we give thanks for Your Word, and for Douglas as he preaches today, and then leads in the Lord’s Supper. We pray that we would recognise afresh the Body of Christ and grasp more fully the greatness of Your grace, as we celebrate spiritually the impact of the Resurrection upon us as Your redeemed people.
 
-We continue in prayer for those in need of Your healing hand – for Alan, Diane, Levi, Steph and Callum, and others affected by illness, injury, or anything else that would slow us down in our daily walk with You. 
-
-We thank You for Your Word, and for Oli Blythe as he preaches today. We pray that You would guide us by Your Holy Spirit, so that we take it in, and make our daily lives conform more and more to the character of Jesus, Our Lord and Saviour,
-
-In Whose Precious Name we pray, Amen.
+In Jesus Precious Name we pray, Amen.
 
