@@ -3,30 +3,34 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 1st March 2026
+### 8th March 2026
 
-**Lamentations 3:40-41**
-_[40] Let us test and examine our ways, and return to the Lord!_
-_[41] Let us lift up our hearts and hands to God in heaven_
+**Psalm 143:8-11**
+_[8] Let me hear Your lovingkindness in the morning; For I trust in You; Teach me the way in which I should walk; For to You I lift up my soul._
+_[9] Deliver me, O Lord, from my enemies; I take refuge in You._
+_[10] Teach me to do Your will, For You are my God; Let Your good Spirit lead me on level ground._
+_[11] For the sake of Your name, O Lord, revive me. In Your righteousness bring my soul out of trouble._
 
 **Thanks to God**
-O Lord, we thank You that You are always ready to receive us when we return to You.
+Heavenly Father, we thank You that You are here by Your Holy Spirit, as we meet today. As we see around this world major events, natural disasters as well as escalating wars, we acknowledge that we are not in control of our lives. We therefore put our trust in You, Creator of all, Sustainer of us all, even to our very heartbeats and the air we breathe.
 
-We know that we have failed in many ways this week past, but we turn back to You in repentance, trusting in Your mercy and grace as expressed in Jesus Who came to fulfill all righteousness on our behalf.
+We confess our weaknesses, our unrighteousness and our need for Your mercies every morning. We understand our unworthiness before Your holiness, and yet, in Your lovingkindness, You consider mankind to be worthy for God the Son to become one of us, in order to redeem us from the Curse. We thank You that He died for us, then You raised Him up to be seated in the heavens as Ruler and Judge of All.
 
-We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, which secured our eternal salvation. We thank You that Jesus has given us His perfect righteousness, in place of our self-righteousness, His riches for our poverty, and that we will one day join Him in His heavenly home, as He once joined us on this Earth.
+We thank You that we are now clothed in His righteousness, and by Your grace we are no longer condemned sinners but forgiven saints.
 
-We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
+We thank You for sending the Holy Spirit to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
 
 **The Wide World... and the Wider Church**
-We pray for this world which has once again become more dangerous and where we again see warfare reported vividly on our TV screens. We recall from Your Word that Jesus warned of wars and rumours of wars, but we are reassured that this is not the end, and You always hold this world in Your hands, despite what man may do to kill and destroy.
+We pray for this world where so many live as rebels against You and we see the result in hatred, wars, persecution and strife. We pray for the persecuted church in places like Myanmar, China, and Nigeria. We pray for the church in Australia where opposition to the truth is less obvious but seems to be growing. And we pray for those close to us, who do not know You.
 
-We pray for believers in those war-torn trouble spots, for their safety, their encouragement, and for help to flee the danger. We pray for Your church to stand firm, for the good news to overcome the bad, and for souls to be saved even in these troubled days.
+We thank You for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today. We thank You for Your Word, which teaches us Your will, so we can be Your representatives to those around us.
 
 **Ashburton**
-We continue to pray for our work here at Ashburton, even though we could not hold our usual evening prayer service last week. We pray that You would continue to lead us, draw us closer to the Cross, and enable us to do You will here, so that we witness faithfully to Your saving work in this community.
+We pray for our work here, as we come to terms with the latest developments in our walk with You. Help us to trust in Your perfect will, for You know the end from the beginning, and we can trust in Your purposes for us.
 
-We continue in prayer for those in need of Your healing hand. And we give thanks for Your Word, and for Douglas as he preaches today, and then leads in the Lord’s Supper. We pray that we would recognise afresh the Body of Christ and grasp more fully the greatness of Your grace, as we celebrate spiritually the impact of the Resurrection upon us as Your redeemed people.
+We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will, so that in the end, Your purposes prevail and the new minister will be of Your choosing, to bring us Your Word and sacraments. 
+
+We thank You for Your Word, and for Douglas as he preaches today. Help us to understand more of what it means to be Your church in Ashburton.
 
 In Jesus Precious Name we pray, Amen.
 
