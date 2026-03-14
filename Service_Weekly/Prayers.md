@@ -3,34 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 8th March 2026
+### 15th March 2026
 
-**Psalm 143:8-11**
-_[8] Let me hear Your lovingkindness in the morning; For I trust in You; Teach me the way in which I should walk; For to You I lift up my soul._
-_[9] Deliver me, O Lord, from my enemies; I take refuge in You._
-_[10] Teach me to do Your will, For You are my God; Let Your good Spirit lead me on level ground._
-_[11] For the sake of Your name, O Lord, revive me. In Your righteousness bring my soul out of trouble._
+**Psalm 10:17-18**
+_[17] O Lord, you hear the desire of the afflicted; you will strengthen their heart; you will incline your ear_
+_[18] to do justice to the fatherless and the oppressed, so that man who is of the earth may strike terror no more._
 
 **Thanks to God**
-Heavenly Father, we thank You that You are here by Your Holy Spirit, as we meet today. As we see around this world major events, natural disasters as well as escalating wars, we acknowledge that we are not in control of our lives. We therefore put our trust in You, Creator of all, Sustainer of us all, even to our very heartbeats and the air we breathe.
+O Lord, we thank You that You draw near to us, who are afflicted. As we live in this fallen world, even while we may think we are at ease, we know we are subject to the tempter’s snares, as well as our own self-centred desires.
 
-We confess our weaknesses, our unrighteousness and our need for Your mercies every morning. We understand our unworthiness before Your holiness, and yet, in Your lovingkindness, You consider mankind to be worthy for God the Son to become one of us, in order to redeem us from the Curse. We thank You that He died for us, then You raised Him up to be seated in the heavens as Ruler and Judge of All.
+We know that we deserve Your justice because we have sinned against You and brought shame upon Your Name. We thank You for sending Jesus to save us. We thank You that we have been forgiven by Your grace and mercy alone. We thank You for sending the Holy Spirit, to be with us daily, to come alongside and enable us to resist temptation.
 
-We thank You that we are now clothed in His righteousness, and by Your grace we are no longer condemned sinners but forgiven saints.
-
-We thank You for sending the Holy Spirit to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
+We confess that it is easy to forget that You call us to be still in Your Presence, and remember that there is no other God besides You. In this world we are beset by many counterfeits, but we turn to You because there is no other god Who can do justice to the fatherless and the oppressed, no other Who can strengthen our hearts, no other to hear our pleas for mercy.
 
 **The Wide World... and the Wider Church**
-We pray for this world where so many live as rebels against You and we see the result in hatred, wars, persecution and strife. We pray for the persecuted church in places like Myanmar, China, and Nigeria. We pray for the church in Australia where opposition to the truth is less obvious but seems to be growing. And we pray for those close to us, who do not know You.
+So we pray for this world where so many false gods beckon, and so many oppress their fellow man. We pray for true Peace from the King of Peace, even though we see so little of peace in this war-ravaged world. We pray for true Justice, in this era of great injustice, and for Your mercy to replace the oppression which abounds everywhere.
 
-We thank You for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today. We thank You for Your Word, which teaches us Your will, so we can be Your representatives to those around us.
+We give You thanks for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people so that we can stand firm against the lies so prevalent today. Strengthen Your people so that we may be fit instruments to bring Your mercy and grace to people we interact with each day. Help us to bless them as individuals at work, in our leisure activities, amongst our neighbours, in family gatherings.
+
 
 **Ashburton**
-We pray for our work here, as we come to terms with the latest developments in our walk with You. Help us to trust in Your perfect will, for You know the end from the beginning, and we can trust in Your purposes for us.
+We pray for our work here at Ashburton, as we address our new circumstances. We pray for Mook, Talia, Jethro, Amy and Judah, as Mook plans ahead for College study. Bless them with wisdom, and guide them as they navigate this new stage of their lives under Your care.
 
-We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will, so that in the end, Your purposes prevail and the new minister will be of Your choosing, to bring us Your Word and sacraments. 
+We continue to pray for the Selection Committee Your will, so that eventually we call a new minister of Your choosing, to lead the work here. We thank You for our fellowship together, and for the willingness we bring to the practical work of looking after this property, which You have blessed us with.
 
-We thank You for Your Word, and for Douglas as he preaches today. Help us to understand more of what it means to be Your church in Ashburton.
+We continue in prayer for those in need of Your healing hand, especially remembering Lervi, Steph and Callum. We also uphold those who are away, praying that You would be with them in all their various circumstances.
 
-In Jesus Precious Name we pray, Amen.
+And we thank You for Your Word, and for Oli Blythe as he preaches today. We thank You for Surrey Hills releasing him to serve us here.
 
+In His Precious Name we pray, Amen.

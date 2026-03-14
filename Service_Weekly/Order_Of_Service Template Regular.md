@@ -2,56 +2,52 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 30th November, 2025 
+### Order of Service Sunday, 15th March 2026 
 
-**Call to Worship & Opening Prayer** Psalm 18:30 (John A)
+**Call to Worship & Opening Prayer** Psalm 36:5-10 (John A)
 
-**Praise:** *O Come O Come Emmanuel*
+**Praise:** *Reformation Song*
 
-**Bible Reading** 1 John 2:28-3:3 (Stephen A)
+**Bible Reading** Revelation 20:11-15 (Pam)
 
 **Announcements** (John A) 
-    • 
-    • 
-    • 
+    • Working Bee - thanks everybody
+    • Newcomers Lunch 22nd
     
-**Praise:** *O Come All Ye Faithful*
+**Sunday School** (Jack & Luke)
+    
+**Praise:** *His Mercy Is More*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 2 Peter 1:1-11 (MarJo)
+**Bible reading:** Romans 2:1-16 (Callum)
 
-**Praise:** *Yet Not I but through Christ in me* (Offering)
+**Praise:** *Only A Holy God* (Offering)
 
-**Sermon:**  “THE FOUNDATION OF LIFE AND GROWTH” (Mook L)
+**Sermon:**  “GOD’S JUDGEMENT” (OB)
 
-**Praise:** *O For A Closer Walk With God*
+**Praise:** *Christ Our Hope In Life And Death*
 
-**Benediction**  (ML)
+**Benediction**  (OB)
 
 
 **Sermon Outline** 
 
-“THE FOUNDATION OF LIFE AND GROWTH”   (2 Peter 1:1-11)
+“GOD’S JUDGEMENT”   (Romans 2:1-16)
 
-Introduction
+Introduction - The Judge becomes the Judged
+    1. God Judges us on who we really are (v1-5)
+    2. God Judges us on what we do (v6-11)
+    3. God Judges us on what we know (v12-16)
+Conclusion - The Black Cloth of Reality
 
-    1. 
-    
-    2. 
-    
-    3. 
-    
-Conclusion
-
-
-Call to Worship (Psalm 18:30) & Opening prayer 
-[30] This God—his way is perfect; the word of the Lord proves true; he is a shield for all those who take refuge in him. 
-Let us pray…
-Heavenly Father, we declare with David that Your way is perfect, Your Word is ever true and You are a shield to us, who have taken refuge under Your wings.
-We give You thanks that there is no Saul trying to kill us, nor a Herod killing the young children of Bethlehem but we do see opposition to Your Word, Your people and Your Church in this land.
-But we have gathered to celebrate the coming of Jesus, Who was born as we are yet without sin, but who eventually died on the Cross, so that we sinners do not die, but could be redeemed to receive eternal life by Your grace alone.
-He has won us back from captivity to sin and the curse, and we thank You that we can take refuge in Him, Who is our Shield and our Defender from Your righteous judgment against sin and death. 
-We thank You that Jesus is The Life and The Resurrection, and that He is our King of kings, Who is to return one day, and take us to our heavenly home above.
-Therefore we say and sing, Come, Lord Jesus! AMEN!
-[O Come, O Come, Emmanuel]
+Call to Worship (Psalm 36:5-10) & Opening prayer  
+We have gathered to glorify the God Who has saved us, so let us worship God together. Hear these words from Psalm 36, as our introduction to our first hymn...
+[5] Your love, Lord, reaches to the heavens, your faithfulness to the skies.
+[6] Your righteousness is like the highest mountains, your justice like the great deep. You, Lord, preserve both people and animals.
+[7] How priceless is your unfailing love, O God! People take refuge in the shadow of your wings.
+[8] They feast in the abundance of your house; you give them drink from your river of delights.
+[9] For with you is the fountain of life; in your light we see light.
+[10] Continue your love to those who know you, your righteousness to the upright in heart.
+Let us stand and sing to glorify our God...
+[Reformation Song (Glory to God alone)]
