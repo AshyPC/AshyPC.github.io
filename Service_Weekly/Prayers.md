@@ -3,32 +3,31 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 15th March 2026
+### 22nd March 2026
 
-**Psalm 10:17-18**
-_[17] O Lord, you hear the desire of the afflicted; you will strengthen their heart; you will incline your ear_
-_[18] to do justice to the fatherless and the oppressed, so that man who is of the earth may strike terror no more._
+**Psalm 13:5-6**
+_[5] But I have trusted in your steadfast love; my heart shall rejoice in your salvation._
+_[6] I will sing to the Lord, because he has dealt bountifully with me._
+
+Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that You draw near to us, who are afflicted. As we live in this fallen world, even while we may think we are at ease, we know we are subject to the tempter’s snares, as well as our own self-centred desires.
+Father GOD, we thank You that You have dealt bountifully with us, as individual believers, and as a congregation called together to worship You in this place.
 
-We know that we deserve Your justice because we have sinned against You and brought shame upon Your Name. We thank You for sending Jesus to save us. We thank You that we have been forgiven by Your grace and mercy alone. We thank You for sending the Holy Spirit, to be with us daily, to come alongside and enable us to resist temptation.
+We thank You that we have been forgiven by Your grace and mercy alone, and have been set free from sin.
 
-We confess that it is easy to forget that You call us to be still in Your Presence, and remember that there is no other God besides You. In this world we are beset by many counterfeits, but we turn to You because there is no other god Who can do justice to the fatherless and the oppressed, no other Who can strengthen our hearts, no other to hear our pleas for mercy.
+We thank You that we can rejoice in the Cross and the Resurrection, which secured our eternal salvation. We know that we could not do anything to save ourselves, and we must trust entirely in Your steadfast love towards us. We thank You for the New Life which Jesus imparted to us when we turned to You and confessed our sin.
+
+We thank You for the Holy Spirit Who is with us daily, enabling us to make sense of the events in this world which swirl around us, beyond our control. We thank You that He shows us the Way of eternal Life, as He sanctifies us progressively in our daily walk.
 
 **The Wide World... and the Wider Church**
-So we pray for this world where so many false gods beckon, and so many oppress their fellow man. We pray for true Peace from the King of Peace, even though we see so little of peace in this war-ravaged world. We pray for true Justice, in this era of great injustice, and for Your mercy to replace the oppression which abounds everywhere.
+We pray for this world where war continues in the Middle East and Ukraine, and we are surprised by strange events, but You remain in control, bringing about Your purposes, even from the bad things we see happening. We pray for Your people, in churches as well as in hidden communities suffering persecution, or working to bring relief to refugees, or in other parts of the world suffering from the results of these conflicts.
 
-We give You thanks for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people so that we can stand firm against the lies so prevalent today. Strengthen Your people so that we may be fit instruments to bring Your mercy and grace to people we interact with each day. Help us to bless them as individuals at work, in our leisure activities, amongst our neighbours, in family gatherings.
-
+We pray for our nation, enjoying relative peace, and give You thanks that we can meet openly and freely. We also recognise that there are those who express hatred towards Jewish people and towards Your church. We pray for those enemies to turn away from hatred, and we pray that they would hear the Good News, and turn back to You.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we address our new circumstances. We pray for Mook, Talia, Jethro, Amy and Judah, as Mook plans ahead for College study. Bless them with wisdom, and guide them as they navigate this new stage of their lives under Your care.
+We pray for our work at Ashburton, as we face our new situation, trusting in Your purposes for us here. We pray for the Session which meets next week, that You grant wisdom and strength as Douglas, Mook and I seek to follow Your leading. We thank You that in Your providence, the timing of these changes will enable Mook to pursue Your calling on his life in a new way, and that we continue to support him and Talia and the family as they trust You for their future.
 
-We continue to pray for the Selection Committee Your will, so that eventually we call a new minister of Your choosing, to lead the work here. We thank You for our fellowship together, and for the willingness we bring to the practical work of looking after this property, which You have blessed us with.
+We thank You for the support we receive from the wider denomination, from the Presbytery in particular, and we give thanks for Your Word, and for Alan as he preaches today. Help us to take it in, and apply what we hear to our everyday walk and work this week.
 
-We continue in prayer for those in need of Your healing hand, especially remembering Lervi, Steph and Callum. We also uphold those who are away, praying that You would be with them in all their various circumstances.
-
-And we thank You for Your Word, and for Oli Blythe as he preaches today. We thank You for Surrey Hills releasing him to serve us here.
-
-In His Precious Name we pray, Amen.
+In Jesus Precious Name we pray, Amen.
