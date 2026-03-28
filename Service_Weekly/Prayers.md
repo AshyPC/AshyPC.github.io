@@ -3,31 +3,35 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 22nd March 2026
+## including Prayer of Confession
+### 29th March 2026
 
-**Psalm 13:5-6**
-_[5] But I have trusted in your steadfast love; my heart shall rejoice in your salvation._
-_[6] I will sing to the Lord, because he has dealt bountifully with me._
+**Psalm 4:5-8**
+_[5] [5] Offer right sacrifices, and put your trust in the Lord. [6] There are many who say, “Who will show us some good? Lift up the light of your face upon us, O Lord!” [7] You have put more joy in my heart than they have when their grain and wine abound. [8] In peace I will both lie down and sleep; for you alone, O Lord, make me dwell in safety._
 
-Let us pray…
+As we approach the commemoration of the death and resurrection of our Lord and Saviour, we come to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection and need of Jesus’ sacrifice, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
 
-**Thanks to God**
-Father GOD, we thank You that You have dealt bountifully with us, as individual believers, and as a congregation called together to worship You in this place.
+**Adoration**
+God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we could never offer right sacrifices, because we are warped by sin into self-centredness, and we would not seek You or put our trust in You.
 
-We thank You that we have been forgiven by Your grace and mercy alone, and have been set free from sin.
+**Confession**
+But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and confess the times when we have failed, when we have not been holy as You are holy, when we have shamed the Name of Jesus, when we have put down another person, thinking more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
 
-We thank You that we can rejoice in the Cross and the Resurrection, which secured our eternal salvation. We know that we could not do anything to save ourselves, and we must trust entirely in Your steadfast love towards us. We thank You for the New Life which Jesus imparted to us when we turned to You and confessed our sin.
 
-We thank You for the Holy Spirit Who is with us daily, enabling us to make sense of the events in this world which swirl around us, beyond our control. We thank You that He shows us the Way of eternal Life, as He sanctifies us progressively in our daily walk.
+**Thanksgiving**
+Now we thank You that You have not abandoned us, but rescued us. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless, Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-**The Wide World... and the Wider Church**
-We pray for this world where war continues in the Middle East and Ukraine, and we are surprised by strange events, but You remain in control, bringing about Your purposes, even from the bad things we see happening. We pray for Your people, in churches as well as in hidden communities suffering persecution, or working to bring relief to refugees, or in other parts of the world suffering from the results of these conflicts.
+We thank You that You have lifted up the light of Your face upon us. We thank You that we now have joy in our hearts, and peace in our relationship with You.
 
-We pray for our nation, enjoying relative peace, and give You thanks that we can meet openly and freely. We also recognise that there are those who express hatred towards Jewish people and towards Your church. We pray for those enemies to turn away from hatred, and we pray that they would hear the Good News, and turn back to You.
+**Supplication: The Wide World**
+In the wider world, we continue to pray for the nations at war and for the people caught by the conflicts which have been started by others. We pray for believers in those places, and for Your people in churches nearby, who seek to provide for the refugees escaping from the war zones.
 
-**Ashburton**
-We pray for our work at Ashburton, as we face our new situation, trusting in Your purposes for us here. We pray for the Session which meets next week, that You grant wisdom and strength as Douglas, Mook and I seek to follow Your leading. We thank You that in Your providence, the timing of these changes will enable Mook to pursue Your calling on his life in a new way, and that we continue to support him and Talia and the family as they trust You for their future.
+**... and the Wider Church**
+We pray also for Your people in churches around the world as they support missionaries to those conflict zones. We thank You for Lazlo and Eva Mihalyi and the work they have been doing in Hungary and Rumania. As they return home, we pray for their safe travel and their transition to Australian life. We pray You would provide new workers to take their place so that Your witness may continue.
 
-We thank You for the support we receive from the wider denomination, from the Presbytery in particular, and we give thanks for Your Word, and for Alan as he preaches today. Help us to take it in, and apply what we hear to our everyday walk and work this week.
+**Supplication: Ashburton**
+Here in Ashburton we pray for David Hann as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community groups.
+
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the worldwide Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
 
 In Jesus Precious Name we pray, Amen.

@@ -2,43 +2,45 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 22nd March 2026 
+### Order of Service Sunday, 29th March 2026 
 
-**Call to Worship, Opening Prayer & Lord's Prayer** (Revelation 15:3b-4) (Alan E)
+**Call to Worship** (Isaiah 42:1-4) / **Opening prayer** (D Hann)
 
-**Praise:** *Come, Let Us Join Our Cheerful Songs (Rej 130)*
+**Praise:** *Holy, Holy, Holy*
 
-**Bible Reading** 1 Samuel 2:12-26 (Seng)
+**Bible Reading** Isaiah 53:1-6 (Tim)
 
 **Announcements** (John A) 
-    • Newcomers Welcome Lunch today
-    • Mook & Talia - welcome back
-    • Session meeting next Wednesday
-    • No evenign prayer service this month - sorry
+    • Good Friday earlier start time - 9.30am
+    • No evening service this Sunday - they resume in April
     
-**Sunday School** (Mia & Shi Ya)
+**Sunday School** (Jack & Luke)
     
-**Praise:** *Church of God, Elect and Glorious (Rej 296)*
+**Praise:** *Meekness and Majesty*
 
 **Prayer for the church and the world**   (John A)
 
-**Praise:** *Speak, O Lord* (Offering)
+**Bible reading:** Philippians 2:1-11 (Rachel)
 
-**Bible reading:** 1 John 2:12-17 (Alan E)
+**Praise:** *May the Mind of Christ My Saviour* (offering)
 
-**Sermon:**  “GOD AND THE CHRISTIAN" (Alan E)
+**Sermon:**  THE HUMILITY OF CHRIST JESUS (David Hann)
 
-**Praise:** *I Will Sing the Wondrous Story (Rej 522)*
+**Praise:** *When I Survey the Wondrous Cross*
 
-**Benediction**  1 John 5:20 (Alan E)
+**Benediction**  Ephesians 3:20-21 (David Hann)
 
 
 **Sermon Outline** 
 
-“GOD AND THE CHRISTIAN”   (1 John 2:12-17)
-Introduction
-    1. 
-    2. 
-    3. 
-Conclusion
+“THE HUMILITY OF CHRIST JESUS” (Philippians 2:1-11)
+Introduction - Humility, Unity, Pride & Division
+
+1. His Humility Begins in our Mind (v. 1-4)
+
+2. His Humility is ours by Faith (v. 5-8)
+
+3. His Humility, Eternally Honoured (v. 9-11)
+
+Conclusion - The Humility of Christ & Unity to God’s Glory
 
