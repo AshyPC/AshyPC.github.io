@@ -2,45 +2,34 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 29th March 2026 
+### Order of Service Good Friday, 3rd April 2026 
 
-**Call to Worship** (Isaiah 42:1-4) / **Opening prayer** (D Hann)
+**Call to Worship & Opening prayer** (Aditya Kuthalam)
 
-**Praise:** *Holy, Holy, Holy*
+**Praise:** *Praise to the Lord, the Almighty - Rejoice! 46*
 
-**Bible Reading** Isaiah 53:1-6 (Tim)
+**Bible Reading** Isaiah 53:1-12 (Callum)
 
 **Announcements** (John A) 
-    • Good Friday earlier start time - 9.30am
-    • No evening service this Sunday - they resume in April
+    • Offering today for HCCC
+    • Easter Day still a communion service
     
-**Sunday School** (Jack & Luke)
+**HCCC Video**
     
-**Praise:** *Meekness and Majesty*
+**Praise:** *There is a Fountain Filled with Blood* - Rejoice! 207
 
-**Prayer for the church and the world**   (John A)
+**Praise:** *When I Survey the Wondrous Cross* - Rejoice! 218 (offering)
 
-**Bible reading:** Philippians 2:1-11 (Rachel)
+**Bible reading:** Luke 23:13-49 (MarJo)
 
-**Praise:** *May the Mind of Christ My Saviour* (offering)
+**Sermon:**  WHAT’S SO GOOD ABOUT GOOD FRIDAY? (Aditya K)
 
-**Sermon:**  THE HUMILITY OF CHRIST JESUS (David Hann)
+**Praise:** *Rock of Ages, Cleft for Me* - Rejoice! 409
 
-**Praise:** *When I Survey the Wondrous Cross*
-
-**Benediction**  Ephesians 3:20-21 (David Hann)
+**Benediction**   (Aditya K)
 
 
 **Sermon Outline** 
 
-“THE HUMILITY OF CHRIST JESUS” (Philippians 2:1-11)
-Introduction - Humility, Unity, Pride & Division
-
-1. His Humility Begins in our Mind (v. 1-4)
-
-2. His Humility is ours by Faith (v. 5-8)
-
-3. His Humility, Eternally Honoured (v. 9-11)
-
-Conclusion - The Humility of Christ & Unity to God’s Glory
+“WHAT’S SO GOOD ABOUT GOOD FRIDAY”   (Luke 23:13-49)
 
