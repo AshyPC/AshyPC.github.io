@@ -1,35 +1,45 @@
----
+﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Good Friday, 3rd April 2026 
+### Order of Service Sunday, 5th April, 2026 
 
-**Call to Worship & Opening prayer** (Aditya Kuthalam)
-
-**Praise:** *Praise to the Lord, the Almighty - Rejoice! 46*
-
-**Bible Reading** Isaiah 53:1-12 (Callum)
-
-**Announcements** (John A) 
-    • Offering today for HCCC
-    • Easter Day still a communion service
+**Announcements** (John A)
+    • He is Risen!
+    • Welcome to Chris Siriweera
     
-**HCCC Video**
-    
-**Praise:** *There is a Fountain Filled with Blood* - Rejoice! 207
+**Call to Worship (Psalm 16) / Opening prayer (Chris S)**
 
-**Praise:** *When I Survey the Wondrous Cross* - Rejoice! 218 (offering)
+**Praise:** *Christ The Lord Is Risen Today*
 
-**Bible reading:** Luke 23:13-49 (MarJo)
+**Bible Reading** John 20:1-18 (Tim A)
 
-**Sermon:**  WHAT’S SO GOOD ABOUT GOOD FRIDAY? (Aditya K)
+**Praise:** *In Christ Alone* (Offering)
 
-**Praise:** *Rock of Ages, Cleft for Me* - Rejoice! 409
+**Prayer for the church and the world**   (John A)
 
-**Benediction**   (Aditya K)
+**Bible reading:** John 20:19-29 (Rachel D)
 
+**Sermon:**  “From Doubt To Belief!” (CS)
 
-**Sermon Outline** 
+**Praise:** *Christ Our Hope In Life and Death*
 
-“WHAT’S SO GOOD ABOUT GOOD FRIDAY”   (Luke 23:13-49)
+**The Lord’s Supper**
+ 
+**Praise:** *Thine Be The Glory*
 
+**Benediction** (CS)
+
+**Sermon Outline**
+
+“From Doubt To Belief!”  (John 20:24-29)
+
+Introduction
+
+    1. The Report by the disciples -24-25a
+
+    2. The Refusal to believe - 25b
+
+    3. The Revealing Moment -26-29
+
+Conclusion
