@@ -3,35 +3,59 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-## including Prayer of Confession
-### 29th March 2026
+## Easter Sunday
+### 5th April 2026
 
-**Psalm 4:5-8**
-_[5] [5] Offer right sacrifices, and put your trust in the Lord. [6] There are many who say, “Who will show us some good? Lift up the light of your face upon us, O Lord!” [7] You have put more joy in my heart than they have when their grain and wine abound. [8] In peace I will both lie down and sleep; for you alone, O Lord, make me dwell in safety._
+**Ephesians 4:8**
+_‘When he ascended on high, he took many captives and gave gifts to his people.’_
 
-As we approach the commemoration of the death and resurrection of our Lord and Saviour, we come to a time of prayer, to acknowledge God’s greatness, His perfection, to confess our imperfection and need of Jesus’ sacrifice, and to bring our requests to Him Who alone is able to effect lasting change, according to His purposes for the world and for us within it.
+Let us pray…
 
-**Adoration**
-God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures come before You only because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! If we were to rely on Your justice, we would be lost, for we could never offer right sacrifices, because we are warped by sin into self-centredness, and we would not seek You or put our trust in You.
+**Thanks to God**
+O Lord, we thank You that today we gather to celebrate the victory that Jesus won out of the apparent defeat of Good Friday. We can know for certain that the tomb is empty, and Jesus is now the Risen King.
 
-**Confession**
-But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and confess the times when we have failed, when we have not been holy as You are holy, when we have shamed the Name of Jesus, when we have put down another person, thinking more of ourselves, when we have given in to temptation. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+We thank You that between His death on the Cross and His walking out of the tomb, He took many captives from the enemy who had enslaved them in sin. And we thank You that we also have been freed from our captivity to sin so that we may live according to Your free gift of righteousness.
 
+We thank You that because Jesus rose, we have been forgiven by Your grace and mercy alone. We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and the Resurrection.
 
-**Thanksgiving**
-Now we thank You that You have not abandoned us, but rescued us. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless, Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
+We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
 
-We thank You that You have lifted up the light of Your face upon us. We thank You that we now have joy in our hearts, and peace in our relationship with You.
+**The Wide World... and the Wider Church**
+We pray for this world which continues blindly on its unrepentant way, ignoring the Rising of the Prince of Peace, Who is now Ascended and reigning from heaven. We pray for many eyes to be opened to Your general Providence, and to Your saving love, both at this season and every day.
 
-**Supplication: The Wide World**
-In the wider world, we continue to pray for the nations at war and for the people caught by the conflicts which have been started by others. We pray for believers in those places, and for Your people in churches nearby, who seek to provide for the refugees escaping from the war zones.
+We thank You for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today.
 
-**... and the Wider Church**
-We pray also for Your people in churches around the world as they support missionaries to those conflict zones. We thank You for Lazlo and Eva Mihalyi and the work they have been doing in Hungary and Rumania. As they return home, we pray for their safe travel and their transition to Australian life. We pray You would provide new workers to take their place so that Your witness may continue.
+We pray for those close to us, who do not know the Truth. Grant us wisdom to know when and how to share the Good News that Jesus lives.
 
-**Supplication: Ashburton**
-Here in Ashburton we pray for David Hann as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community groups.
+**Ashburton**
+We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom.
 
-Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the worldwide Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
+We know that in this fallen world, our outer man grows weaker every day, yet we continue in prayer for those in need of Your healing hand – for Alan, Diane, Russell and others affected by illness or injury. We remember Levi, and ask that You continue to strengthen him in his development ay by day. We pray that You would continue to strengthen us so that we can witness to the truth of the Risen Lord, and the sure hope of eternal life in Him.
 
-In Jesus Precious Name we pray, Amen.
+We thank You for Your Word, and for Chris as he preaches today. We pray that we would be diligent receivers of the means of grace, both in Your Word and in the sacrament.
+
+In His Precious Name we pray, Amen.
+
+As we will shortly take part in the Lord’s Supper, let is recall the fundamentals of our faith by reciting The Apostle’s Creed:
+
+I believe in God, the Father almighty,
+      creator of heaven and earth.
+
+I believe in Jesus Christ, his only Son, our Lord,
+      who was conceived by the Holy Spirit
+      and born of the virgin Mary.
+      He suffered under Pontius Pilate,
+      was crucified, died, and was buried;
+      he descended to hell.
+      The third day he rose again from the dead.
+      He ascended to heaven
+      and is seated at the right hand of God the Father almighty.
+      From there he will come to judge the living and the dead.
+
+I believe in the Holy Spirit,
+      the holy catholic* church,
+      the communion of saints,
+      the forgiveness of sins,
+      the resurrection of the body,
+      and the life everlasting. Amen.
+
