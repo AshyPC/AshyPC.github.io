@@ -3,59 +3,30 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-## Easter Sunday
-### 5th April 2026
+### 12th April 2026
 
-**Ephesians 4:8**
-_‘When he ascended on high, he took many captives and gave gifts to his people.’_
+**Hebrews 4:16**
+_Therefore let us draw near with confidence to the throne of grace, so that we may receive mercy and find grace to help in time of need_
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that today we gather to celebrate the victory that Jesus won out of the apparent defeat of Good Friday. We can know for certain that the tomb is empty, and Jesus is now the Risen King.
+O Lord, we thank You that You receive us with mercy when we approach Your throne of grace.
 
-We thank You that between His death on the Cross and His walking out of the tomb, He took many captives from the enemy who had enslaved them in sin. And we thank You that we also have been freed from our captivity to sin so that we may live according to Your free gift of righteousness.
-
-We thank You that because Jesus rose, we have been forgiven by Your grace and mercy alone. We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and the Resurrection.
-
-We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
+We know that we could not come except for the saving work of Jesus, and His intercession on our behalf. We thank You that we have been forgiven because He went to the Cross,on our behalf. We recognise that You are the One and Only God, holy and righteous, but we thank You that we can come confidently because Jesus has taken away our sin and given us His righteousness as a free gift.
 
 **The Wide World... and the Wider Church**
-We pray for this world which continues blindly on its unrepentant way, ignoring the Rising of the Prince of Peace, Who is now Ascended and reigning from heaven. We pray for many eyes to be opened to Your general Providence, and to Your saving love, both at this season and every day.
+We thank You for the Church, the Body of Christ, the pillar of Truth, down through the ages. We remember the cloud of witnesses, those who have gone before us, who have taken Your Word to every corner of this world, and those who dared to witness to us of Your love for a lost world, and especially Your particular love for us as individuals.
 
-We thank You for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today.
+We thank You for the Holy Spirit Who led and guided those who preserved and translated Your written Word so that we could read it for ourselves, and be guided by Your wisdom daily. We thank You for the work of SIL and Wycliffe, and we thank You for calling people to serve in so many ways to carry on that work today. We pray for Sebastian and Betty and the family as they prepare to return to PNG, after a long break. Grant them strength, endurance and clarity of vision, so that they may overcome any hurdles that would hinder them from doing Your will.
 
-We pray for those close to us, who do not know the Truth. Grant us wisdom to know when and how to share the Good News that Jesus lives.
+We pray for this world where so many live in darkness, and we long for them to see the light of the gospel in their own language as the work of translation continues to bring them to the Cross, to know Your love, as we know it here.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom.
+We pray for our work here at Ashburton, and we dedicate ourselves afresh in Your service, so that we too may see the good news spread far and wide. May all we do and say be a blessing to one another, as well as to those we meet with daily, knowing that our own nation is as much a mission field as any other.
 
-We know that in this fallen world, our outer man grows weaker every day, yet we continue in prayer for those in need of Your healing hand – for Alan, Diane, Russell and others affected by illness or injury. We remember Levi, and ask that You continue to strengthen him in his development ay by day. We pray that You would continue to strengthen us so that we can witness to the truth of the Risen Lord, and the sure hope of eternal life in Him.
+We continue in prayer for those in need among us, as we express our care for each other, and our desire to grow in grace, in fellowship and in Godly wisdom, so that the Body of Christ here may be built up to fulfill Your purposes more fully.
 
-We thank You for Your Word, and for Chris as he preaches today. We pray that we would be diligent receivers of the means of grace, both in Your Word and in the sacrament.
+We thank You for Your Word, and for Harrison as he preaches today. We pray that we would be diligent hearers and do-ers of Your Word, making the most of the means of grace, and that we may encourage him as he preaches.
 
-In His Precious Name we pray, Amen.
-
-As we will shortly take part in the Lord’s Supper, let is recall the fundamentals of our faith by reciting The Apostle’s Creed:
-
-I believe in God, the Father almighty,
-      creator of heaven and earth.
-
-I believe in Jesus Christ, his only Son, our Lord,
-      who was conceived by the Holy Spirit
-      and born of the virgin Mary.
-      He suffered under Pontius Pilate,
-      was crucified, died, and was buried;
-      he descended to hell.
-      The third day he rose again from the dead.
-      He ascended to heaven
-      and is seated at the right hand of God the Father almighty.
-      From there he will come to judge the living and the dead.
-
-I believe in the Holy Spirit,
-      the holy catholic* church,
-      the communion of saints,
-      the forgiveness of sins,
-      the resurrection of the body,
-      and the life everlasting. Amen.
-
+In Jesus' Precious Name we pray, Amen.

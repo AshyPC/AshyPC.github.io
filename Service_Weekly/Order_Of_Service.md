@@ -1,45 +1,42 @@
-﻿---
+H﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 5th April, 2026 
+### Order of Service Sunday, 12th April, 2026 
+    
+**Call to Worship (Psalm 16) / Opening prayer (Harrison Sawyer)**
+
+**Praise:** *Come People of the Risen King*
+
+**Bible Reading** Deuteronomy 30:1-10 (Pam)
 
 **Announcements** (John A)
-    • He is Risen!
-    • Welcome to Chris Siriweera
+    • Evening Prayer Service 26th
+    • Welcome Sebastian and Betty Kurz (Wycliffe)
     
-**Call to Worship (Psalm 16) / Opening prayer (Chris S)**
-
-**Praise:** *Christ The Lord Is Risen Today*
-
-**Bible Reading** John 20:1-18 (Tim A)
-
-**Praise:** *In Christ Alone* (Offering)
+**Mission Spot** Sebastian and Betty Kurz
+ 
+**Praise:** *The Lord’s My Shepherd* (Tune: Crimond)
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** John 20:19-29 (Rachel D)
+**Bible reading:** Colossians 2:6-15 (Stephen)
 
-**Sermon:**  “From Doubt To Belief!” (CS)
+**Praise:** *My Hope is Built on Nothing Less* (offering)
 
-**Praise:** *Christ Our Hope In Life and Death*
+**Sermon:**  “NEW LIFE IN CHRIST” (HS)
 
-**The Lord’s Supper**
- 
-**Praise:** *Thine Be The Glory*
+**Praise:** *In Christ Alone*
 
-**Benediction** (CS)
+**Benediction** Ephesians 3:20-21 (HS)
+
 
 **Sermon Outline**
 
-“From Doubt To Belief!”  (John 20:24-29)
+“NEW LIFE IN CHRIST" (Colossians 2:6-15)
 
-Introduction
-
-    1. The Report by the disciples -24-25a
-
-    2. The Refusal to believe - 25b
-
-    3. The Revealing Moment -26-29
-
-Conclusion
+    1. Foundation in Christ (vv6-8)
+    
+    2. Filled in Christ (vv9-12)
+    
+    3. Freedom in Christ (vv13-15)
