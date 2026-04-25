@@ -2,43 +2,44 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 19th April 2026 
+### Order of Service Sunday, 26th April 2026 
 
-**Call to Worship** (Romans 11:33-36) / **Opening prayer** (M Lee)
+**Call to Worship** (2 Thessalonians 2:13-15) / **Opening prayer** (DM)
 
-**Praise:** *To God Be the Glory (Rej. 63)*
+**Praise:** *The Tender Love a Father Has (Rej! 68)*
 
-**Bible Reading** Exodus 14:1-31 (Russell)
+**Bible Reading** Acts 18:1-23 (MarJo)
 
-**Announcements** (John A) 
-    • Allan Freer called home
-    • Evening Prayer Service 26th
-     
-**Praise:** *Great is Thy Faithfulness (Rej. 25)*
+**Announcements** (DM & John A) 
+    • Selection Committee & Assessor Elders (DM)
+    • Evening Prayer Service 5pm Today
+    • Memorial Service Sat 2nd May 10:30am
+       
+**Praise:** *Lord from Deep Sorrows I Call*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Romans 8:18-30 (Pam)
+**Bible reading:** 1 Thessalonians 1:1-10 (Stephen)
 
-**Praise:** *Come, O Fount of Every Blessing (Rej 382)* (offering)
+**Praise:** *Prepare Our Hearts O God (Show Us Christ)* (offering)
 
-**Sermon:**  THE TRUE HOPE (Matt Lee)
+**Sermon:**  HOW A CHURCH IS BORN AND SUSTAINED (DM)
 
-**Praise:** *My Hope is Built on Nothing Less (Rej 582)*
+**Praise:** *How Vast the Benefits Divine (Rej! 95)*
 
-**Benediction**  (ML)
+**Benediction**  (DM)
 
 
 **Sermon Outline** 
 
-THE TRUE HOPE (John 6:16-21)
+"How a Church is Born and Sustained” (1 Thessalonians 1:4-5)
 
-Storms of life come. We know Jesus is our hope - but how is He our hope? What is He doing for us? This passage helps us to see how Jesus offers us hope when we are battling the winds and waves of life:
+Introduction
 
-    • (1) Jesus guides us with good purposes
-    
-    
-    • (2) Jesus watches and prays for us
-    
-    
-    • (3) Jesus approaches and speaks to us
+1. God makes his electing love known (v4)
+
+2. God causes his Word to be proclaimed in a certain way (v5a)
+
+3. God uses a certain kind of Preacher (v5b)
+
+Conclusion
