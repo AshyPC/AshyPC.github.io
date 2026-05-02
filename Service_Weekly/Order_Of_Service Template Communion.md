@@ -2,50 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 2nd November, 2025 
+### Order of Service Sunday, 3rd May, 2026 
 
-**Call to Worship & Opening Prayer** 2 Timothy 4:1-5 (Douglas M)
+  
+**Call to Worship / Opening prayer (Rod Waterhouse)**
 
-**Praise:** *Christ is made the sure foundation (R! 293)*
+**Praise:** *Glory be to God (89)*
 
-**Bible Reading** Deuteronomy 12:29-13:11 (Pam W)
+**Bible Reading** Isaiah 55:6-11  (Rachel)
 
-**Announcements** (Mook L) 
+**Announcements** (John A)
+    • Special Welcome to the Moderator
     
-**Sunday School** (Mia O, Shi Ya B)
+**Sunday School** (Jack & Shi Ya)
 
-**Praise:** *All Glory Be To Christ*
+**Praise:** *Before the Throne Above (250) (modern version)
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 2 John (Mook L)
+**Bible reading:** 2 Corinthians 5:1-21 (Pam)
 
-**Praise:** *O Church Arise* (Offering)
+**Praise:** Jesus Full of Truth and Grace (402 Tune 462) with *Offering*
 
-**Sermon:**  “THE COMMANDMENT AND THE TEACHING” (DM)
+**Sermon:**  “RECONCILED AMBASSADORS” (Rod Waterhouse)
 
-**Praise:** *And now, O Father, mindful of the love (R! 357)*
+**Praise:** *How Deep the Father’s Love*
 
 **The Lord’s Supper**
  
-**Praise:** *Lord, dismiss us with Your blessing (R! 334)*
+**Praise:** *Blest Are the Pure in Heart (444 Tune 311)*
 
-**Benediction** (DM)
+**Benediction** (RW)
+
 
 **Sermon Outline**
 
-“THE COMMANDMENT AND THE TEACHING”   (2 John 4-11)
-
+“RECONCILED AMBASSADORS”   (2 Cor 5:1-21)
 Introduction
 
-    1. The commandment - to love one another
-        ◦ Father’s command
-        ◦ The first command
-        ◦ A command for obeying
+    1. Our Heavenly Dwelling
 
-    2. The Teaching - about Jesus Christ
-        ◦ Always under threat
-        ◦ Can cost us through carelessness
-        ◦ No toleration
+    2. Ambassadors for Christ
+
+    3. Ministry of Reconciliation
 
 Conclusion

@@ -1,45 +1,49 @@
----
+﻿---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 26th April 2026 
+### Order of Service Sunday, 3rd May, 2026 
 
-**Call to Worship** (2 Thessalonians 2:13-15) / **Opening prayer** (DM)
+  
+**Call to Worship / Opening prayer (Rod Waterhouse)**
 
-**Praise:** *The Tender Love a Father Has (Rej! 68)*
+**Praise:** *Glory be to God (89)*
 
-**Bible Reading** Acts 18:1-23 (MarJo)
+**Bible Reading** Isaiah 55:6-11  (Rachel)
 
-**Announcements** (DM & John A) 
-    • Selection Committee & Assessor Elders (DM)
-    • Evening Prayer Service 5pm Today
-    • Memorial Service Sat 2nd May 10:30am
-       
-**Praise:** *Lord from Deep Sorrows I Call*
+**Announcements** (John A)
+    • Special Welcome to the Moderator
+    
+**Sunday School** (Jack & Shi Ya)
+
+**Praise:** *Before the Throne Above (250) (modern version)
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 1 Thessalonians 1:1-10 (Stephen)
+**Bible reading:** 2 Corinthians 5:1-21 (Pam)
 
-**Praise:** *Prepare Our Hearts O God (Show Us Christ)* (offering)
+**Praise:** Jesus Full of Truth and Grace (402 Tune 462) with *Offering*
 
-**Sermon:**  HOW A CHURCH IS BORN AND SUSTAINED (DM)
+**Sermon:**  “RECONCILED AMBASSADORS” (Rod Waterhouse)
 
-**Praise:** *How Vast the Benefits Divine (Rej! 95)*
+**Praise:** *How Deep the Father’s Love*
 
-**Benediction**  (DM)
+**The Lord’s Supper**
+ 
+**Praise:** *Blest Are the Pure in Heart (444 Tune 311)*
+
+**Benediction** (RW)
 
 
-**Sermon Outline** 
+**Sermon Outline**
 
-"How a Church is Born and Sustained” (1 Thessalonians 1:4-5)
-
+“RECONCILED AMBASSADORS”   (2 Cor 5:1-21)
 Introduction
 
-1. God makes his electing love known (v4)
+    1. Our Heavenly Dwelling
 
-2. God causes his Word to be proclaimed in a certain way (v5a)
+    2. Ambassadors for Christ
 
-3. God uses a certain kind of Preacher (v5b)
+    3. Ministry of Reconciliation
 
 Conclusion
