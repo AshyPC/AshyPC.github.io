@@ -1,49 +1,43 @@
-﻿---
+---
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 3rd May, 2026 
+### Order of Service Sunday, 10th May 2026 
 
-  
-**Call to Worship / Opening prayer (Rod Waterhouse)**
+**Call to Worship** (Ps 48:9-11) / **Opening prayer** (John A)
 
-**Praise:** *Glory be to God (89)*
+**Praise:** *O Worship The King All Glorious Above*
 
-**Bible Reading** Isaiah 55:6-11  (Rachel)
+**Bible Reading** 1 Samuel 2:12-36 (Tim A)
 
-**Announcements** (John A)
-    • Special Welcome to the Moderator
+**Announcements** (John A) 
+    • 
     
-**Sunday School** (Jack & Shi Ya)
-
-**Praise:** *Before the Throne Above (250) (modern version)
+**Sunday School** (Mia O, Shi Ya B)
+    
+**Praise:** *His Mercy is More*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 2 Corinthians 5:1-21 (Pam)
+**Bible reading:** 1 Samuel 3:1-21 (MarJo A
 
-**Praise:** Jesus Full of Truth and Grace (402 Tune 462) with *Offering*
+**Praise:** *A Christian’s Daily Prayer* (offering)
 
-**Sermon:**  “RECONCILED AMBASSADORS” (Rod Waterhouse)
+**Sermon:**  “THE FALL AND RISE OF INTERCESSORS” (Jake Martin)
 
-**Praise:** *How Deep the Father’s Love*
+**Praise:** *Before the Throne of God Above*
 
-**The Lord’s Supper**
- 
-**Praise:** *Blest Are the Pure in Heart (444 Tune 311)*
-
-**Benediction** (RW)
+**Benediction**  (JM)
 
 
-**Sermon Outline**
+**Sermon Outline** 
 
-“RECONCILED AMBASSADORS”   (2 Cor 5:1-21)
+“THE FALL AND RISE OF INTERCESSORS” (1 Samuel 2:12-3:21)
 Introduction
-
-    1. Our Heavenly Dwelling
-
-    2. Ambassadors for Christ
-
-    3. Ministry of Reconciliation
-
+    1. Part 1 of the story: Wicked Intercessors fall (house of Eli)
+    2. Part 2 of the story: Faithful intercessors rise (Samuel)
+    3. The priest we need
+    4. Application
+        1. Jesus continually intercedes in the struggles of life
+        2. Jesus continually intercedes in the struggles with sin.
 Conclusion
