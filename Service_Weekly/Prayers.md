@@ -3,35 +3,34 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 10th May 2026
+### 24th May 2026
 
-**Psalm 62:1-2**
-_[1] Truly my soul finds rest in God; my salvation comes from Him._
-_[2] Truly He is my rock and my salvation; He is my fortress, I shall never be shaken._
+**Psalm 33:20-22**
+_[20] We wait in hope for the Lord; He is our help and our shield._
+_[21] In Him our hearts rejoice, for we trust in His holy Name._
+_[22] May Your unfailing love be with us, Lord, even as we put our hope in You._
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that truly You are our Saviour, our only hope.
+O Lord, we thank You that You are our help and our shield whether the times are calm or in turmoil. We rejoice in Your unfailing love towards us and all Your people.
 
-We live in a world You made by speaking Your word “let there be...” and this creation declares Your mighty power, showing us just how small we are. Only You can control our destiny.
-
-We thank You that You are our rock and our salvation, our fortress of safety. We thank You that despite the fact that man turned away from You in rebellion, trying to run his life apart from Your Perfect Goodness, we have been forgiven by Your grace and mercy alone.
-
-We thank You for sending Jesus to take our place, to suffer the righteous punishment we deserved, to free us from the guilt we knew, and to give us new life, so that we could live upright, instead of bending always towards sin and selfishness.
-
-We thank You Holy Spirit, for being beside us daily, to steer us away from temptation’s folly, and to sanctify us so that we progress towards our heavenly destiny with faith and perseverance.
+We thank You for sending Jesus, to be our Perfect Saviour, our substitute. We thank You that we have been completely forgiven, and have been set free from the penalty, the power and the guilt of our sinful past. Because Jesus lives and reigns, we have a sure hope for the future.
 
 **Wide World... and The Wider Church**
-We pray for this world where so many live without a sure foundation, without knowing You, and therefore without a hope or a future. We pray for our own sensitivity to the plight of these lost wanderers, so that Your church would work in Your strength to tell as many as will listen of the sacrifice of Jesus for them, and of the assurance of salvation that they too can know, as we know.
+We thank You for Your church, the Body of Christ, where we find fellowship, love and support. We thank You that it is the guardian of the Truth we find in Your Precious Word, so we can draw from saints of old and saints still with us. We thank You for their wisdom, and their examples of how to live in the world today. We pray for Your guidance to apply what they teach us, so that we can know You better, and grow in grace daily.
+
+We pray for this world where so many live without knowing You closely, for those who seek “something more” but don’t know what that is. Help us to share with them the Good News that You love them, and have been drawing them to Yourself.
+
+We thank You for the many churches where Your Word is faithfully preached and lived, and earnestly seek for the expansion of the visible church. We ask that You would strengthen Your people to stand firm but with grace, and that those wandering in darkness might see the changed lives of Your people.
 
 **Ashburton**
-We continue to pray for our work here at Ashburton, as we also labour with our various talents and abilities in this same work of the Kingdom.
+We pray for our work here at Ashburton, that we would be faithful servants in the work of the Kingdom. We pray for opportunities to serve both inside and outside the church, those who are in need of Your unfailing love and the sure hope of an eternal future.
 
-We pray for the Selection Committee which works to do Your will, so that Your purposes prevail. We pray for ourselves to support them as they serve on our behalf, and in the meantime we pray that we are not idle but energetic as faithful servants, doing the Master’s work day by day.
+We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will in the search for a new minister. Grant them unity as they consider the processes available to us, and perseverance as the year progresses.
 
-We pray for our fellowship to deepen, as we care for one another, build each other up in our most holy faith, and especially at this time as we support Jan, coming to grips with her new circumstances without Allan.
+We continue in prayer for those in need of Your healing hand – for Jan, Diane and others affected by illness or injury. We especially lift up Joan Milne today as she is not able to be with us. Please strengthen her and enable her to rest well.
 
-We thank You for Your Word, and for Jake as he preaches today. We pray that we would be take due warning, making the most of the means of grace.
+We thank You for Your Word, and for Douglas as he preaches today. We pray that we may properly imitate the Thessalonian church, learning from Paul’s teaching and applying it to our 21st century circumstances.
 
-In His Precious Name we pray, Amen.
+In Jesus Precious Name we pray, Amen.
