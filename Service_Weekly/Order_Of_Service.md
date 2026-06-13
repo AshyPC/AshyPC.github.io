@@ -2,42 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 24th May 2026 
+### Order of Service Sunday, 14th June 2026 
 
-**Call to Worship** (1 Thessalonians 3:11-13) / **Opening prayer** (DM)
+**Call to Worship** (1 Corinthians 3:18-23) / **Opening prayer** (DM)
 
-**Praise:** *There is a Higher Throne*
+**Praise:** *Ancient of Days*
 
-**Bible Reading** John 13:1-17 (Callum H)
+**Bible Reading** 1 Corinthians 4:1-21 (Seng)
 
 **Announcements** (John A) 
-    • Evening Service 31st
+    • Church lunch next week (21st) to farewell Mook, Talia & family.
+      See Pam if you have questions.
+    • Equip26 Women’s Conference is next Saturday.
+      Please see Pam or Suzanne if you have questions
+    • New date for Working Bee - Saturday 11 July
     
-**Sunday School** (Jack & Luke)
+**Sunday School** (Luke & Mia)
     
-**Praise:** *Glorious Things of You are Spoken (Rejoice! 295)*
+**Praise:** *This Life I Live*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Hebrews 5:1- 6:3 (MarJo)
+**Bible reading:** 1 Thessalonians 2:1-12 (Pam)
 
-**Praise:** *Holy Spirit, Hear Us (Rejoice! 271)* (offering)
+**Praise:** *How Sure the Scriptures Are (Rej! 279)* (offering)
 
-**Sermon:**  WHAT THE CHURCH BECAME (1 Thessalonians 1:6-8)
+**Sermon:**  A PASTOR-TEACHER’S JOB DESCRIPTION” (DM)
 
-**Praise:** *By Faith We See the Hand of God*
+**Praise:** *Revive Your Church, O Lord* (Rej! 298)
 
 **Benediction**  (DM)
 
 
 **Sermon Outline** 
 
-“WHAT THE CHURCH BECAME”   (1 Thessalonians 1:6-8)
+“A PASTOR-TEACHER’S JOB DESCRIPTION”   (1 Thessalonians 2:1-12)
 
 Introduction
 
-1. The Church Learned through Imitating Others (v6)
+1. 
 
-2. The Church Became a Model for other Churches  (vv7-8)
+2. 
 
-Conclusion
+3. 
+
+Conclusion 

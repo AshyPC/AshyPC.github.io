@@ -3,34 +3,38 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 24th May 2026
+### 14th June 2026
 
-**Psalm 33:20-22**
-_[20] We wait in hope for the Lord; He is our help and our shield._
-_[21] In Him our hearts rejoice, for we trust in His holy Name._
-_[22] May Your unfailing love be with us, Lord, even as we put our hope in You._
+**Psalm 80:17-19**
+_[17] ... let your hand be on the man of your right hand, the son of man whom you have made strong for yourself!_
+_[18] Then we shall not turn back from you; give us life, and we will call upon your name!_
+_[19] Restore us, O Lord God of hosts! Let your face shine, that we may be saved!_
 
-Let us pray…
+As we come to God in prayer, let us pray together…
+
+O Lord, we thank You that You have made the Son of Man, Jesus, strong to save, strong to restore.
+
+**Confession**
+We know that we had turned back from You, that our sins had hidden You from us. We needed Your face to shine upon us.
 
 **Thanks to God**
-O Lord, we thank You that You are our help and our shield whether the times are calm or in turmoil. We rejoice in Your unfailing love towards us and all Your people.
+We thank You for Jesus’ sacrifice on our behalf. We now live the redeemed life of the Eternal Son of God, the spotless Lamb, Who rose to bestow on us His righteousness by grace, so that we call upon Your Name.
 
-We thank You for sending Jesus, to be our Perfect Saviour, our substitute. We thank You that we have been completely forgiven, and have been set free from the penalty, the power and the guilt of our sinful past. Because Jesus lives and reigns, we have a sure hope for the future.
+We thank You for sending the Holy Spirit, Giver of Life, to be with us daily, to continue the task of sanctifying us, so that we grow to be more like Jesus day by day.
 
 **Wide World... and The Wider Church**
-We thank You for Your church, the Body of Christ, where we find fellowship, love and support. We thank You that it is the guardian of the Truth we find in Your Precious Word, so we can draw from saints of old and saints still with us. We thank You for their wisdom, and their examples of how to live in the world today. We pray for Your guidance to apply what they teach us, so that we can know You better, and grow in grace daily.
+We thank You for Your church, the Bride of Christ, the guardian of the Truths of Your Word, and for those saints who have gone before us, but who have left us Your written Word as a reliable and faithful witness to the Risen Word. We thank You for those who loved us and prayed for us to be drawn to the Cross, and for those in present times who have continued to care for us, both in close fellowship, and in distant prayer.
 
-We pray for this world where so many live without knowing You closely, for those who seek “something more” but don’t know what that is. Help us to share with them the Good News that You love them, and have been drawing them to Yourself.
+We pray for this world and for the many people who do not know the Truth, and yet seek for it in many ways. We recognise that the enemy below works to isolate them from Your Truth and grace, so we pray that we have the courage to speak, whether boldly or quietly, of the Cross and the Resurrection, of the Lord Jesus Who gave His life for them to be saved.
 
-We thank You for the many churches where Your Word is faithfully preached and lived, and earnestly seek for the expansion of the visible church. We ask that You would strengthen Your people to stand firm but with grace, and that those wandering in darkness might see the changed lives of Your people.
 
 **Ashburton**
-We pray for our work here at Ashburton, that we would be faithful servants in the work of the Kingdom. We pray for opportunities to serve both inside and outside the church, those who are in need of Your unfailing love and the sure hope of an eternal future.
+We pray for our work here at Ashburton, and we continue in prayer for those in need of Your healing and restoration – for Jan, Diane, for Levi and others affected by illness or injury.
 
-We pray for the Selection Committee which meets today, as they seek Your wisdom, and work to do Your will in the search for a new minister. Grant them unity as they consider the processes available to us, and perseverance as the year progresses.
+We pray for Mook and Talia and the family as we prepare to farewell them next week. We pray for Your guidance as they seek new places to serve You and Your church. Grant them Your wisdom, as they work to do Your will, wherever You place them.
 
-We continue in prayer for those in need of Your healing hand – for Jan, Diane and others affected by illness or injury. We especially lift up Joan Milne today as she is not able to be with us. Please strengthen her and enable her to rest well.
+We pray for our Session, Board and Selection Committee as we adjust to this change, and for the presbytery which meets next week, as they continue the search for a new man to bring Your Word and sacraments and to lead the work here.
 
-We thank You for Your Word, and for Douglas as he preaches today. We pray that we may properly imitate the Thessalonian church, learning from Paul’s teaching and applying it to our 21st century circumstances.
+We thank You for Douglas as he preaches Your Word today. We thank You for his faithful, effective preaching which enables us to grow in grace. Help us to be diligent, like the Berean believers, who searched the Scriptures to follow Paul’s preaching in their time.
 
-In Jesus Precious Name we pray, Amen.
+In His Precious Name we pray, Amen.
