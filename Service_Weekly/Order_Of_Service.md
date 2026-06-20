@@ -2,48 +2,44 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 14th June 2026 
+### Order of Service Sunday, 21st June 2026 
 
-**Call to Worship** (1 Corinthians 3:18-23) / **Opening prayer** (DM)
+**Call to Worship** (Isaiah 48:17) / **Opening prayer** (John A)
 
-**Praise:** *Ancient of Days*
+**Praise:** *Rejoice, the Lord is King*
 
-**Bible Reading** 1 Corinthians 4:1-21 (Seng)
+**Bible Reading** Isaiah 35:1-10 (Russell
 
 **Announcements** (John A) 
-    • Church lunch next week (21st) to farewell Mook, Talia & family.
-      See Pam if you have questions.
-    • Equip26 Women’s Conference is next Saturday.
-      Please see Pam or Suzanne if you have questions
-    • New date for Working Bee - Saturday 11 July
+    • Lunch today
+    • Congregational meeting - 5th July
+    • Missions for June supports Barnabas Aid
     
-**Sunday School** (Luke & Mia)
+**Sunday School** (Jack & Luke)
     
-**Praise:** *This Life I Live*
+**Praise:** *His Glory and My Good*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** 1 Thessalonians 2:1-12 (Pam)
+**Bible reading:** Luke 13:10-21 (MarJo)
 
-**Praise:** *How Sure the Scriptures Are (Rej! 279)* (offering)
+**Praise:** *Jerusalem* (offering)
 
-**Sermon:**  A PASTOR-TEACHER’S JOB DESCRIPTION” (DM)
+**Sermon:**  “What’s God’s Kingdom Like?” (Oli Blythe)
 
-**Praise:** *Revive Your Church, O Lord* (Rej! 298)
+**Praise:** *Behold Our God*
 
-**Benediction**  (DM)
+**Benediction**  (Oli Blythe)
 
 
 **Sermon Outline** 
 
-“A PASTOR-TEACHER’S JOB DESCRIPTION”   (1 Thessalonians 2:1-12)
+“WHAT’S GOD’S KINGDOM LIKE?” (Luke 13:10-21)
+Introduction - Kingdoms and Nations
 
-Introduction
+    1. It’s a Kingdom that puts Broken things back together again (v10-17)
+    
+    2. It’s a Kingdom that Starts Small but Grows Unstoppably (v18-21)
+    
+Conclusion - It’s the Greatest Kingdom on Earth…and in Heaven
 
-1. 
-
-2. 
-
-3. 
-
-Conclusion 
