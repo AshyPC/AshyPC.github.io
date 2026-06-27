@@ -2,44 +2,42 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 21st June 2026 
+### Order of Service Sunday, 28th June 2026 
 
-**Call to Worship** (Isaiah 48:17) / **Opening prayer** (John A)
+**Call to Worship** (Rev 21:1-4) / **Opening prayer** (Harrison S)
 
-**Praise:** *Rejoice, the Lord is King*
+**Praise:** *Love Divine, All Loves Excelling*
 
-**Bible Reading** Isaiah 35:1-10 (Russell
+**Bible Reading** Exodus 14:1-18 (Seng)
 
 **Announcements** (John A) 
-    • Lunch today
-    • Congregational meeting - 5th July
-    • Missions for June supports Barnabas Aid
-    
-**Sunday School** (Jack & Luke)
-    
-**Praise:** *His Glory and My Good*
+    • Congregational meeting 5 July - directly after the service
+    • Selection Committee meeting today after the service (please bring your coffee/morning tea)
+    • Working Bee 11 July - please let Russell know of anything requiring attention.
+      
+**Praise:** *Before the Throne of God Above*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Luke 13:10-21 (MarJo)
+**Bible reading:** Psalm 46 (Callum)
 
-**Praise:** *Jerusalem* (offering)
+**Praise:** *Speak O Lord* (offering)
 
-**Sermon:**  “What’s God’s Kingdom Like?” (Oli Blythe)
+**Sermon:**  PEACE IN A PEACELESS WORLD (Harrison S)
 
-**Praise:** *Behold Our God*
+**Praise:** *God is our Strength and Refuge*
 
-**Benediction**  (Oli Blythe)
+**Benediction**  Jude 2 (Harrison S)
 
 
 **Sermon Outline** 
 
-“WHAT’S GOD’S KINGDOM LIKE?” (Luke 13:10-21)
-Introduction - Kingdoms and Nations
+“PEACE IN A PEACELESS WORLD”   (Psalm 46)
+Introduction
 
-    1. It’s a Kingdom that puts Broken things back together again (v10-17)
-    
-    2. It’s a Kingdom that Starts Small but Grows Unstoppably (v18-21)
-    
-Conclusion - It’s the Greatest Kingdom on Earth…and in Heaven
-
+God is…
+   1. A Steadfast Refuge
+   2. A Present Deliverer
+   3. A Victorious Warrior
+   
+Conclusion
