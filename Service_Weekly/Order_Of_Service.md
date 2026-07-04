@@ -1,43 +1,45 @@
----
-layout: oos
-title: Order of Service
----
-### Order of Service Sunday, 28th June 2026 
+## layout: oos title: Order of Service
 
-**Call to Worship** (Rev 21:1-4) / **Opening prayer** (Harrison S)
+### Order of Service Sunday, 5th July 2026
 
-**Praise:** *Love Divine, All Loves Excelling*
+**Call to Worship** (Rev 15:3-4) / **Opening prayer** (Dong Choi)
 
-**Bible Reading** Exodus 14:1-18 (Seng)
+**Praise:** *To God Be the Glory* (Rejoice 63)
 
-**Announcements** (John A) 
-    • Congregational meeting 5 July - directly after the service
-    • Selection Committee meeting today after the service (please bring your coffee/morning tea)
-    • Working Bee 11 July - please let Russell know of anything requiring attention.
-      
-**Praise:** *Before the Throne of God Above*
+**Bible Reading** Isaiah 55:1~3 (Tim)
+
+**Announcements** (John A) • Congregational meeting 5today - straight after the service •  Working Bee 11 July - please let Russell know of anything requiring attention.
+
+**Sunday School** resumes
+
+**Praise:** *O Great God*
 
 **Prayer for the church and the world**   (John A)
 
-**Bible reading:** Psalm 46 (Callum)
+**Bible reading:** John 6:22-35 (Pam)
 
-**Praise:** *Speak O Lord* (offering)
+**Praise:** *Teach me Your way, O Lord * (Rejoice 571)  (offering)
 
-**Sermon:**  PEACE IN A PEACELESS WORLD (Harrison S)
+**Sermon:**  “What is our TRUE Need?” (Dong)
 
-**Praise:** *God is our Strength and Refuge*
+**Praise:** *There is a Fountain Filled with Blood* (Rejoice 207)
 
-**Benediction**  Jude 2 (Harrison S)
+**The Lord’s Supper (Dong presiding)**
 
+**Praise:** *Just as I Am*
 
-**Sermon Outline** 
+**Benediction**  (Dong)
 
-“PEACE IN A PEACELESS WORLD”   (Psalm 46)
+**Sermon Outline**
+
+“What is our TRUE Need?”   (Dong Choi)
+
 Introduction
 
-God is…
-   1. A Steadfast Refuge
-   2. A Present Deliverer
-   3. A Victorious Warrior
-   
+    1. Understanding the context: The crowd desperately seeking Jesus for the wrong reason. 
+
+    2. How Jesus guides them to identify the true need. 
+
+
+    3. How Jesus fulfills our true need
 Conclusion

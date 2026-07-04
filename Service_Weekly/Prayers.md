@@ -3,31 +3,32 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### 28th June 2026
+### including Prayer of Confession
+### 5th July 2026
 
-**Deuteronomy 4:31**
-_For the Lord your God is a compassionate God; He will not fail you nor destroy you_
-_nor forget the covenant with your fathers which He swore to them._
+**Psalm 8:1, 4**
+_[1] O Lord, our Lord, How majestic is Your Name in all the earth, Who have displayed Your splendor above the heavens!_
+_[4-5] What is man that You take thought of him, And the son of man that You care for him?_
+_Yet You have made him a little lower than Yourself And You crown him with glory and majesty!_
 
-Let us seek God together…
+As we come today to both the Word and the Sacrament, commemorating the death and resurrection of our Lord and Saviour, let us pray together, to acknowledge God’s greatness, to confess our imperfection and need of Jesus’ sacrifice, and to bring our requests to Him Who alone is able to bring lasting change, according to His purposes for the world and for us within it.
 
-**Thanks to God**
-O Lord, we thank You that You are compassionate towards Your people. You sustain us according to Your promises which are faithful, even though we are wanderers who stray from Your paths and go our own way.
+**Adoration**
+O Lord, our Lord, indeed, we come into Your Presence to declare “How majestic is Your Name in all the earth!” Creator of all that is, we Your creatures come before You because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! And You have made man to be second in command of this Earth, under Your overall sovereignty.
 
-Moses gave Your chosen people the Law, which showed Your justice and righteousness as well as Your mercy and grace, which pointed beyond temporary sacrifices to One Who would sacrifice Himself on our behalf. Moses and the nation of Israel looked forward to their coming Saviour.
+**Confession**
+Despite that glorious calling, in Adam, we sinned and fell short, so that if we were to rely on Your justice, we would be lost, for we would not seek You or put our trust in You. Rather, we would want to rule ourselves and this world in Your place. But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and confess the times when we have failed, and have brought down the Name of Jesus. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
 
-We thank You for sending Jesus, Who brought grace and truth, to save us. We can look back in time to the finished work of the Cross, to an empty tomb, and to the Risen Lord Who has given us His resurrection life and His righteousness. We live now by the power of the Holy Spirit dwelling within.
+**Thanksgiving**
+We thank You now for Your promise that if we confess our sins, You are faithful and just to forgive all our unrighteousness. We thank You that You have not abandoned us, but rescued us. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless, Son of God and Son of Man to take our place, suffer the penalty which we deserved, to die in our stead so we could go free. We thank You that You have lifted up the light of Your face upon us. We thank You that we now have joy in our hearts, and peace in our relationship with You.
 
-**Wide World... and The Wider Church**
-We pray for this world which still shows the signs of the curse but we give thanks for the beauty that we do see. We pray for the many people who do not know You as we know You – the God of might Who created all, the God of compassion and mercy Whom we offend by sinning, yet Who forgives, and Who remains faithful to His promises.
+**Supplication: The Wider World... and The Wider Church**
+In the wider world, we continue to pray for the war-torn regions and for the people caught in the conflicts. We pray also for believers suffering persecution in silence, because Your church is deemed to be “not newsworthy.” We ask You to strengthen and provide for Your people in churches nearby, who seek to meet the needs of the escaping refugees.
 
-We pray for believers suffering horrible persecution at the hands of Your enemies, in places like Nigeria which never show in our news reports, and we pray also for those caught in the earthquakes in Venezuela. The devastation seen on our news bulletins is hard to comprehend. We thank You Lord for all those around the world moving to help with the rescue efforts.
 
-Despite the bad news, we give thanks for the good news that many churches faithfully preach and live according to Your Word, and we ask that You would strengthen Your people to stand firm against the tide of opposition, and the pressure to conform to the ways of this world, while showing the same grace which Jesus showed, fully and without reservation.
+**Supplication: Ashburton**
+Here in Ashburton we pray for Dong Choi as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. We pray that our fellowship continues to grow stronger each week. We pray for Your wisdom and guidance in our congregational meeting, as we seek Your servant leader to lead the work here.
 
-**Ashburton**
-We pray for ourselves here at Ashburton, as we continue in the work of the Kingdom. We pray for the Selection Committee which meets today, and we pray for the various processes and committees of the PCV, as we continue to seek the man of Your choosing to lead in the ministry here.
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the worldwide Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
 
-We thank You for Your Word, and for Harrison as he preaches today. We pray that Your Word would be effective today in changing us to be more like Jesus, so that people will be drawn to Him and come to know Your compassion and forgiveness fully, as we already do.
-
-In His Precious Name we pray, Amen.
+In Jesus Mighty Name we pray all these things, Amen.
