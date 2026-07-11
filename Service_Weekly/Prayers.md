@@ -4,31 +4,31 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 ### including Prayer of Confession
-### 5th July 2026
+### 12th July 2026
 
-**Psalm 8:1, 4**
-_[1] O Lord, our Lord, How majestic is Your Name in all the earth, Who have displayed Your splendor above the heavens!_
-_[4-5] What is man that You take thought of him, And the son of man that You care for him?_
-_Yet You have made him a little lower than Yourself And You crown him with glory and majesty!_
+**Psalm 37:39-40 (of David)**
+_39 The salvation of the righteous comes from the Lord; he is their stronghold in time of trouble._
+_40 The Lord helps them and delivers them; he delivers them from the wicked and saves them, because they take refuge in him._
 
-As we come today to both the Word and the Sacrament, commemorating the death and resurrection of our Lord and Saviour, let us pray together, to acknowledge God’s greatness, to confess our imperfection and need of Jesus’ sacrifice, and to bring our requests to Him Who alone is able to bring lasting change, according to His purposes for the world and for us within it.
+Let us join together in prayer…
 
-**Adoration**
-O Lord, our Lord, indeed, we come into Your Presence to declare “How majestic is Your Name in all the earth!” Creator of all that is, we Your creatures come before You because You are merciful, faithful and righteous. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether just! And You have made man to be second in command of this Earth, under Your overall sovereignty.
+**Thanks to God**
+O Lord, we thank You that You are our stronghold in times of trouble, which is always. For we acknowledge that there are always times of trouble for Your people, whether close by or far away, and in this fallen world there are times of trouble for all people.
 
-**Confession**
-Despite that glorious calling, in Adam, we sinned and fell short, so that if we were to rely on Your justice, we would be lost, for we would not seek You or put our trust in You. Rather, we would want to rule ourselves and this world in Your place. But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and confess the times when we have failed, and have brought down the Name of Jesus. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+We thank You that true salvation comes only from You, and real deliverance is by Your grace and mercy alone. We thank You that we have been delivered from the hand of the wicked, but also from the righteous judgement of Your holy law, which exposes our sin, so that we are without excuse.
 
-**Thanksgiving**
-We thank You now for Your promise that if we confess our sins, You are faithful and just to forgive all our unrighteousness. We thank You that You have not abandoned us, but rescued us. We thank You for the special grace of salvation: while we were still sinners, Jesus came as the Sinless, Son of God and Son of Man to take our place, suffer the penalty which we deserved, to die in our stead so we could go free. We thank You that You have lifted up the light of Your face upon us. We thank You that we now have joy in our hearts, and peace in our relationship with You.
+But we thank You for Jesus, who nailed the charges against us to the Cross, and gave us His righteousness, so that we live new lives in the Spirit, and not in our old nature. We confess that we are still imperfect but that we are being sanctified progressively, growing more like Jesus daily.
 
-**Supplication: The Wider World... and The Wider Church**
-In the wider world, we continue to pray for the war-torn regions and for the people caught in the conflicts. We pray also for believers suffering persecution in silence, because Your church is deemed to be “not newsworthy.” We ask You to strengthen and provide for Your people in churches nearby, who seek to meet the needs of the escaping refugees.
+**he Wider World... and The Wider Church**
+We pray for this world where so many are perplexed by troubles, a world which has lost hope, and sees only doom and gloom ahead. We know that we ourselves are also inclined to worry about the things we see going on. But we remember Jesus warning that we would have trouble in this world, and take courage from His assurance that He has overcome the world. We pray for boldness to show the sure hope that we have in Him because of the Resurrection.
 
+We pray for the persecuted church, thankful that we are not beset as many believers are, not in a proud way, but humbly asking how we may uphold our brothers and sisters in places hostile to the Christian faith.
 
-**Supplication: Ashburton**
-Here in Ashburton we pray for Dong Choi as he preaches Your Word, and we pray for our own understanding as we listen. May we be transformed by the renewing of our minds so that Your living Word goes deep into our hearts. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to Your Word. We pray that our fellowship continues to grow stronger each week. We pray for Your wisdom and guidance in our congregational meeting, as we seek Your servant leader to lead the work here.
+**Ashburton**
+exiting student to possibly minister here. We thank You for the unity we expressed in last week’s congregational meeting, as we now await the results of the work of the Exit Students Committee, trusting in Your Providence. We pray that You would grant them great wisdom as they seek to place students for the greatest benefit to congregations within the PCV.
 
-Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the worldwide Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
+We continue in prayer for those in need of Your healing hand – for John McKenzie, Diane and others affected by illness or injury. Also, we pray safety for those travelling, for blessings as they meet with family and friends, and for their safe return.
 
-In Jesus Mighty Name we pray all these things, Amen.
+We thank You for Your Word, and for Yuvi as he preaches today. We pray that we would grow in grace, and become more effective witnesses to the sure hope of Your calling in our lives.
+
+In His Precious Name we pray, Amen.
