@@ -2,46 +2,47 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 12th July 2026 
+### Order of Service Sunday, 19th July 2026 
 
-**Call to Worship** () / **Opening prayer** (Yuvi)
+**Call to Worship** (Hebrews 4:14-16) / **Opening prayer** (Douglas)
 
-**Praise:** *Come Now Almighty King (91)*
+**Praise**: _Lord Jesus, When Your People Meet_ (R 327)
 
-**Bible Reading** Ezekiel 36:24-30 (MarJo)
+**Bible Reading**: Hebrews 10:26-39  (Rachel)
 
-**Announcements** (John A) 
-    • Thank you to those who attended the Working Bee
-    • 
-    
-**Praise:** *The King of Love My Shepherd Is (157)*
-
-**Mission Spot** - Blue Moose repot (Stephen)
-
-**Prayer for the church and the world**   (John A)
-
-**Bible reading:** Galatians 5:16-26 (Pam)
-
-**Praise:** *Breathe on Me, Breath of God (276)* (offering)
-
-**Sermon:**  "KEEPING IN STEP WITH THE SPIRIT” (Yuvi)
-
-**Praise:** *I Need You Ev'ry Hour (537)*
-
-**Benediction**  (Yuvi)
+**Announcements** (JA)
 
 
-**Sermon Outline** 
 
-“KEEPING IN STEP WITH THE SPIRIT”   (Galatians 5:16-26)
+**Sunday School** (Shi Ya & Jack)
+
+**Praise**: _Through the Night of Doubt and Sorrow_ (R 493)
+
+**Mission Spot** - The Mathys (Gaye)
+
+**Prayer for the church and the world**  (JA)
+
+**Bible reading**: Acts 12:1-6, 18-25 (Stephen)
+
+**Praise**: _God has Spoken by His Prophet_ (R 282)
+
+**Sermon**: “THE WORD OF GOD” (Douglas)
+
+**Praise**: _O Lord, the Judge of All the Earth_ (R 43)
+
+**Benediction** (Douglas)
+
+‌
+
+**Sermon Outline**
+
+“THE WORD OF GOD”   (1 Thessalonians 2:13-16)
 
 Introduction
 
-1. 
-
-2. 
-
-3. 
+1. Needs to be spoken by God’s people
+2. Needs to be received as God’s Word
+3. Goes on working in believers
+4. Is vindicated by God’s judgements
 
 Conclusion
-
