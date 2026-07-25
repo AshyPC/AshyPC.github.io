@@ -4,31 +4,31 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 ### including Prayer of Confession
-### 19th July 2026
+### 26th July 2026
 
-**Psalm 59:16**
-_But I will sing of your strength; I will sing aloud of your steadfast love in the morning._
-_For you have been to me a fortress and a refuge in the day of my distress._
+**Psalm 65:1-2**
+_[1] There will be silence before You, and praise in Zion, O God, and to You the vow will be performed._
+_[2] O You who hear prayer, to You all men come._
 
-Let us bring our thanks and our petitions to God…
+Let us pray.…
 
 **Thanks to God**
-O Lord, we have gathered today to sing of Your great majesty, strength and faithful love towards us.
+O Lord, we thank You that You hear our prayers, and our praises. We thank You that we can praise You in silent awe at Your perfect Holiness, as well as in joyful songs celebrating Your mighty deeds.
 
-We thank You, our fortress and refuge, in these days of distress in so many parts of this fallen world. We thank You that You care for Your creation every minute of every day. We thank You for sending Jesus to save us from judgment, and to redeem us and the creation, so as to eventually show forth its greatness.
+We know that our sin cannot remain in the presence of Your holiness, but we thank You that Jesus has shielded us from Your righteous judgement upon our sin, and we have been forgiven by Your grace and mercy alone.
 
-We thank You for Your sure promise that there is a new heavens and a new earth to come, a realm of Your majestic rule without sin to spoil our appreciation of Your beautiful handiwork. We thank You that, even now, we have been forgiven by Your grace and mercy, and have been set free from sin, so that we can enjoy a foretaste of the perfection to come when Jesus returns.
+We thank You for the Presence of the Holy Spirit, Who is with us daily, to come alongside and enable us to resist temptation, to open our minds to Your Word, and to grant us wisdom as we live in this fallen world.
 
-**he Wider World... and The Wider Church**
-In the meantime, we pray for this world with open eyes, aware that sin is still humanity’s biggest problem, and that a defeated enemy still seeks to pull us down. We pray for the people and places which do not know Your Word, and we pray for the work of Wycliffe, and MAF in PNG, where the Mathys’ work to bring Your word to more and more tribes there.
+**The Wide World... and The Wider Church**
+We pray for a world where so many have lost all hope, or have been blinded by the enemy of our souls. We pray that people would come to see that Your church lives in the sure hope of eternal life, and that they too may come in faith to receive the free gift of life, instead of the dreaded judgement upon a life in rebellion against You.
 
-Lord, we also remember that in many places, Your people suffer persecution, both mild and severe, and ask for courage that they may remain faithful to Your calling wherever they are. 
+We give thanks for Your church, the guardian and pillar of Truth, the salt which savours all of life, the light on the hill, the beacon which draws men to Jesus, the true Light of the world. We pray for those who go out as missionaries, who carry Your light to the many in darkness, who labour to show the Light of Life, seeking to dispel the darkness that overwhelms this world.
 
 **Ashburton**
-We pray for our work here at Ashburton, and thank You for the fellowship and commitment we share as we grow in grace, and express Your love to one another by the work of the Holy Spirit, sanctifying us daily. We pray that our lives would truly reflect the character of the Lord Jesus to those around about us.
+We pray that we here at Ashburton can also labour with our various talents and abilities in the work of the gospel. Whether we take the Word to others ourselves, or support those who do, we pray that we would always keep in mind Your purposes, so that everything we do advances the Kingdom, bringing Good News to people who need to know that life is not all bad news.
 
-We continue in prayer for those in need of Your healing hand. We especially pray for Joan Milne and ask that You would strengthen and revive her so that she may again enjoy fellowship with Your people.
+We continue in prayer for those in need of Your healing reastoring hand – for Jan, Diane and others affected by illness or injury. Prompt us to pray daily and to encourage each other towards maturity in Christ so that we would always grow to be more like Him in character and obedience.
 
-We thank You for Your Word, and for Douglas as he preaches today. Thank You Lord for his clarity and conviction, bringing Your Word to life so that we may make it an effective part of our walk with You. We thank You for his wisdom applied in the interim leadership he exercises on our behalf. We pray that You would continue to uphold him in all that he does.
- 
-In Jesus’ Precious Name, and for His glory alone, we pray, Amen.
+We thank You for Your Word, and for Alan as he preaches today. We pray that what we hear will be the spiritual food our souls need to grow in grace. Help us take it in and allow it to do its nourishing work, displacing the constant barrage we see and hear around us.
+
+In Jesus Precious Name we pray, Amen.

@@ -2,45 +2,38 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 29th March 2026 
+### Order of Service Sunday, 26th July 2026 
 
-**Call to Worship** (Isaiah 42:1-4) / **Opening prayer** (D Hann)
+**Call to Worship** (Psalm 37:3-6) / **Opening prayer** (Alan E)
 
-**Praise:** *Holy, Holy, Holy*
+**Praise**: _Facing a Task Unfinished_
 
-**Bible Reading** Isaiah 53:1-6 (Tim)
+**Bible Reading**: 1 Kings 11:1-13  (Russell)
 
-**Announcements** (John A) 
-    • Good Friday earlier start time - 9.30am
-    • No evening service this Sunday - they resume in April
-    
-**Sunday School** (Jack & Luke)
-    
-**Praise:** *Meekness and Majesty*
+**Announcements** (JA)
+- We welcome Alan Every today - one of our Assessor Elders
+- Reminder - No evening service today
+- Church Camp, 16-18 October \@ UPCC - Save the date
 
-**Prayer for the church and the world**   (John A)
+**Sunday School** (Mia & Luke)
 
-**Bible reading:** Philippians 2:1-11 (Rachel)
+**Praise**: _Jesus Strong and Kind_
 
-**Praise:** *May the Mind of Christ My Saviour* (offering)
+**Prayer for the church and the world**  (JA)
 
-**Sermon:**  THE HUMILITY OF CHRIST JESUS (David Hann)
+**Bible reading**: 1 John 2:12-17 (MarJo)
 
-**Praise:** *When I Survey the Wondrous Cross*
+**Praise**: _Rock of Ages (R 409)_ (Offering)
 
-**Benediction**  Ephesians 3:20-21 (David Hann)
+**Sermon**: “TRUE LOVE FOR GOD” (Alan E)
 
+**Praise**: _Oh the Mercy of God_
 
-**Sermon Outline** 
+**Benediction** (1 John 5:19, 20)  (Alan E)
 
-“THE HUMILITY OF CHRIST JESUS” (Philippians 2:1-11)
-Introduction - Humility, Unity, Pride & Division
+‌
 
-1. His Humility Begins in our Mind (v. 1-4)
+**Sermon Outline**
 
-2. His Humility is ours by Faith (v. 5-8)
-
-3. His Humility, Eternally Honoured (v. 9-11)
-
-Conclusion - The Humility of Christ & Unity to God’s Glory
+“TRUE LOVE FOR GOD”   (1 John 2:12-17)
 
