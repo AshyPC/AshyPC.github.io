@@ -3,42 +3,57 @@ layout: prayers
 title: Prayers
 ---
 ## Prayers for our World and the Church 
-### including Prayer of Confession
-### 2nd August 2026
 
-**Psalm 94:14-15**
-_[14] For the Lord will not abandon His people, Nor will He forsake His inheritance._
-_[15] For judgment will again be righteous, And all the upright in heart will follow it._
+### 9th August 2026
 
-We come now to a time of prayer, to recognise who God is, to confess our need of the sacrifice of Jesus which we commemorate today, and to bring our requests to Him Who alone is the faithful keeper of His promises.
+**Psalm 66:18-20**
+_[18] If I regard wickedness in my heart, The Lord will not hear;_
+_[19] But certainly God has heard; He has given heed to the voice of my prayer._
+_[20] Blessed be God, Who has not turned away my prayer Nor His lovingkindness from me._
 
-**Adoration**
-God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures come before You today because You are merciful, faithful and righteous. You have not abandoned Your people, and we can place our trust fully in Your faithfulness toward Your inheritance.
+Let us pray…
 
-**Confession**
-Because You are all-loving, and graciously merciful, we are not destroyed. We look back upon the times when we have failed, when we have been ashamed to Name Jesus our Saviour, have hidden the light of life away from those who need to see Him Who is the light of the world. We are ashamed of our thoughts, words and deeds and freely confess them to You now.
+**Thanks to God**
+O Lord, we thank You that You have heard us; we know the sin in our hearts but You have graciously forgiven and You listen when we call out to You.
 
-**Thanksgiving**
-Indeed, we thank You that You have rescued us from oblivion. We thank You for the special grace of salvation: while we were still sinners Jesus ,the Sinless Son of God came as the Son of Man to suffer the penalty which we deserved, dying in our stead so we could go free.
+We thank You for sending Jesus to save us. We thank You that He has freed us from the power of sin, and He has paid the penalty that was necessary to fulfill the requirements of Your holiness and righteousness. We thank You that You have overturned our old rebellious nature and given us New Life by the daily presence of the Holy Spirit within.
 
-We thank You that You raised Him up on the third day, defeating death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth. Therefore we gather to celebrate the communion today, in the sure hope of the Kingdom of Heaven on a new Earth, which shows forth Your glory in full, as at the beginning.
+**The Wide World... and the Wider Church**
+We pray for this world where so many still believe they can be good enough, or can save themselves by their own efforts. We pray that their eyes may be opened, that they will realise that there is an enemy blinding them to the Truth of your Word and that all their efforts are futile. We pray that our witness will be expressed humbly, knowing that we were once as they are, demonstrating that Your love and grace changed us, and seeking for them the same blessing of eternal life, according to Your ways, not ours.
 
-**Supplication: The Wide World**
-In the wider world, we continue to pray for the expansion of the Kingdom via the preaching of Your Word. We give thanks for every pulpit today where Your Word is clearly declared and taught. We give thanks for every endeavour of evangelism, great of small, which brings the True Light of the World to someone, so that they respond to Your calling to turn away from sin and turn back to You.
+We thank You for the many churches where Your Word is faithfully preached and lived, and for the fellowship of believers everywhere, so that we are encouraged towards love and good deeds. We know we are not alone in the struggles against sin and the pressures of this world. We give thanks for the good news of kingdom advances in many places, and we pray for the persecuted church, which suffers at the hands of terrorists and other enemies of the Truth. We also ask that You would strengthen Your people to stand firm but with grace, against the lies so popular today.
 
-But we also recognise a defeated enemy, still attacking Your church and Your people, blinding the eyes of so many, and we pray for his complete defeat at every turn.
+**Ashburton**
+We pray for our work here at Ashburton, so that we too may be encouragers in fellowship one with another, and in support of the work of the Kingdom in other churches, other places. We pray for the Kurz family as they prepare to travel to Germany, and as they continue to prepare for the final move to PNG. We pray also for the work of Samaritan’s Purse and Operation Christmas Child, so that families in remote parts of the globe may hear and respond to the Good News of Jesus through the delivery of shoeboxes. We pray that our expressions of love in small ways may be magnified through the work of the Holy Spirit when the children open and enjoy the contents of the boxes.
 
-**... and The Wider Church**
-We pray for Your people in churches so that they may minister to those who seek answers to the strange and perplexing events in this world, so that doubts can be replaced by faith and hope. Strengthen us also, and keep us faithful when we don’t understand Your sovereign purposes.
+We give thanks for the work of the Selection Committee and continue to uphold the Exit Students Committee currently determining how to place the students into parishes. We pray for patience for ourselves as we acknowledge the difficulties of their task and the care and wisdom they apply to the decisions they need to make.
 
-**Supplication: Ashburton**
-We pray for ourselves as we seek a faithful preacher of Your Word, and give You thanks for our Selection Committee currently resting from their work on our behalf. We continue to uphold the Exit Students Committee as they deliberate on placing the students under their charge. Grant them wisdom and insight so they may bless the students and their congregations in their placements.
+We continue in prayer for those in need of Your healing hand – for Russell, Joan, John, Levi and others affected by illness during this wintry season. 
+
+We thank You for Your Word, and for Leighton as he preaches today. We thank You for his preparation, and pray that You would encourage him as he brings it to us today. May he impart Your truth to us in a way that enables us to make it a part of our daily walk with You.
+
+In Jesus Precious Name we pray, Amen.
 
 
-We thank You for Douglas as he brings Your Word to us today, and as he leads in the communion celebration. We thank You for his vigorous and accurate preaching, bringing to life the words on the pages of our Bibles, helping us to live daily as the Holy Spirit leads us into all truth.
+Let us close by recalling the fundamentals of our faith by reciting The Apostle’s Creed:
 
-We pray that our fellowship continues to grow stronger each week, both in Sunday worship and in our community involvements. We pray for those of our number in need of Your healing hand. We remember Joan Milne, we give thanks for Gaye’s successful eye operation, and for John’s continuing treatment. We pray for those of our number who are travelling, hat they would know Your blessing in the places they visit and the family and friends they meet with. We pray that You would keep them, and that they would return safely home at the endof their journeys.
+I believe in God, the Father almighty,
+      creator of heaven and earth.
 
-Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the world-spanning Body of Christ. Help us to be faithful as Your hands and feet, Your eyes and ears to minister Your love and grace to those around us. May we grow to show more and more of the character of our Risen Lord.
+I believe in Jesus Christ, his only Son, our Lord,
+      who was conceived by the Holy Spirit
+      and born of the virgin Mary.
+      He suffered under Pontius Pilate,
+      was crucified, died, and was buried;
+      he descended to hell.
+      The third day he rose again from the dead.
+      He ascended to heaven
+      and is seated at the right hand of God the Father almighty.
+      From there he will come to judge the living and the dead.
 
-In His Majestic Name we pray, Amen.
+I believe in the Holy Spirit,
+      the holy catholic* church,
+      the communion of saints,
+      the forgiveness of sins,
+      the resurrection of the body,
+      and the life everlasting. Amen.
