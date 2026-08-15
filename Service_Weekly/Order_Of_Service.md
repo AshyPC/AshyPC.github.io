@@ -2,45 +2,62 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 9th August 2026 
+### Order of Service Sunday, 16th August 2026 
 
-***Call to Worship** (Psalms 66:1-4) / **Opening prayer** (John A)
+**Call to Worship** (1 Chron 16:8-11) / **Opening prayer** (Alan E)
 
-**Praise**: _Rejoice the Lord is King_
+**Praise**: _Praise to the Lord, the Almighty_
 
-**Bible Reading**: Daniel 3 (Rachel)
+**Bible Reading**: Isaiah 55:1-7  (Pam)
 
-**Announcements** (John A)
+**Announcements** (JA)
 
-- Welcome to Leighton Rowe (and family)
-- ‌
+- Ladies Breakfast - Saturday, 29 August, RSVP to Pam
+- Church Camp - 16-18 October - save the date
 
-**Sunday School** (Luke & Jack)
+**Sunday School** (Jack & Mia)
 
-**Praise**: _Crown Him with Many Crowns_
+**Praise**: _Ancient Words_
 
-**Prayer for the church and the world**  (John A)
+**Mission Spot** (Gaye)
 
-**Bible reading**: Matthew 28:16-20 (Tim)
+**Prayer for the church and the world**  (JA)
 
-**Praise**: _In Christ Alone_
+**Bible reading**: Luke 13:1-9 (MarJo)
 
-**Sermon**: “HOW TO LIVE AS FOLLOWERS OF GOD” (Leighton Rowe)
+**Praise**: _His Mercy is More_
 
-**Praise**: _His Glory and My Good_
+**Sermon**: “REPENT OR PERISH” (John Huynh)
 
-**Benediction** (Leighton Rowe)
+**Praise**: _Christ Our Hope in Life and Death_
+
+**Benediction** (John Huynh)
 
 ‌
 
 **Sermon Outline**
 
-“HOW TO LIVE AS FOLLOWERS OF GOD”   (Daniel 3)
+“REPENT OR PERISH”   (Luke 13:1-9)
 
 Introduction
 
-1. ‌
-2. ‌
-3. ‌
+ 1  The illusion of unlimited time.
+
+ 2  Repent - this is about you (13:1-5)
+
+```
+  The question we ask - why do they suffer?
+  The question Jesus asks - what about you?
+```
+
+ 3  Repent - time will run out (13:6-9)
+
+```
+  Delay is mercy
+  But judgement is real
+```
+
+ 4  The urgency of today
 
 Conclusion
+
