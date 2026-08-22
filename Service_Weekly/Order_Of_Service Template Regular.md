@@ -2,62 +2,57 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 16th August 2026 
+### Order of Service Sunday, 23rd August 2026 
 
-**Call to Worship** (1 Chron 16:8-11) / **Opening prayer** (Alan E)
+**Call to Worship** (  ) / **Opening prayer** ()
 
-**Praise**: _Praise to the Lord, the Almighty_
+**Praise**: _O Worship the King, All Glorious Above_
 
-**Bible Reading**: Isaiah 55:1-7  (Pam)
+**Bible Reading**:  Ephesians 1:3-14 (MarJo)
 
 **Announcements** (JA)
 
-- Ladies Breakfast - Saturday, 29 August, RSVP to Pam
-- Church Camp - 16-18 October - save the date
+- Ladies Breakfast - Saturday, 29 August, RSVP to Pam or Suzanne
+- Evening Prayer Service - next Sunday (30 August) Prayer, Praise & Teaching
+- Church Camp - coming up, details will be out soon
+- Result of ESC decision - no Harrison Sawyer, sorry
+- Selection Committee meeting Sunday 6th Sept
+- Working Bee - 12 September
+- AGM will be on last Sunday of October 25th
 
-**Sunday School** (Jack & Mia)
+**Sunday School** (Luke & Shi Ya)
 
-**Praise**: _Ancient Words_
+**Praise**: _Rock of Ages_
 
 **Mission Spot** (Gaye)
 
-**Prayer for the church and the world**  (JA)
+**Prayer for the church and the world**  (JA)
 
-**Bible reading**: Luke 13:1-9 (MarJo)
+**Bible reading**: Nahum 2:1-13 (Jake Martin)
 
-**Praise**: _His Mercy is More_
+**Praise**: _God has Spoken by His Prophets_
 
-**Sermon**: “REPENT OR PERISH” (John Huynh)
+**Sermon**: “RESTORATION THROUGH JUDGEMENT” (Jake Martin)
 
-**Praise**: _Christ Our Hope in Life and Death_
+**Praise**: _Living Hope_
 
-**Benediction** (John Huynh)
+**Benediction** (Jake Martin)
 
 ‌
 
 **Sermon Outline**
 
-“REPENT OR PERISH”   (Luke 13:1-9)
+“RESTORATION THROUGH JUDGEMENT”   (Nahum 2:1-13)
 
 Introduction
 
- 1  The illusion of unlimited time.
-
- 2  Repent - this is about you (13:1-5)
-
-```
-  The question we ask - why do they suffer?
-  The question Jesus asks - what about you?
-```
-
- 3  Repent - time will run out (13:6-9)
-
-```
-  Delay is mercy
-  But judgement is real
-```
-
- 4  The urgency of today
+1. Destruction comes to God’s enemies
+   1. Nineveh is defeated (v3-6)
+   2. Nineveh is plundered (v7-10)
+   3. Nineveh is unrighteous (v11-13)
+2. Restoration comes to God’s people
+3. Implications
+   1. Rejoice that: Restoration comes to God’s people, even us
+   2. Find comfort that: Destruction comes to God’s enemies
 
 Conclusion
-
