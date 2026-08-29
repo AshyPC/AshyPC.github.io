@@ -4,34 +4,34 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 23rd August 2026
+### 30th August 2026
 
-**Psalms 36:6-7**
-_[6] Your righteousness is like the mountains of God; Your judgments are like a great deep. O Lord, You preserve man and beast._
-_[7] How precious is Your lovingkindness, O God! And the children of men take refuge in the shadow of Your wings._
+**Psalm 70:4-5**
+_[4] May all who seek You rejoice and be glad in You! May those who love Your salvation say evermore, “God is great!”_
+_[5] But I am poor and needy; hasten to me, O God! 	You are my help and my deliverer; O Lord, do not delay!_
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that we can come to You at any time, knowing that You hear us when we call out to You. Your righteousness may be like mountains but You are never far from us.
+O Lord, we come into Your Presence now, acknowledging that we are poor and needy, and loving Your salvation, saying “God is great!” because You have granted us mercy and peace, You have lifted our burden and removed our guilt. You have set aside the penalty for our sin, declaring it fully paid by Jesus, on the Cross. We thank You that we can rejoice in our freedom from sin’s tentacles, even though we realize that we are not perfect, but that You always stand ready to forgive because Jesus now intercedes for us in the heavenly throne room, where You rule over all things in majesty.
 
-You have called us to be perfect as You are Perfect, yet we know our sin, and the effects of the curse upon this world. We therefore are all the more grateful for Your grace and mercy in sending Jesus, the Only One Who could pay the penalty, to save us.
-
-We thank You that we have been forgiven and can willingly obey Your Word, as we work out our salvation with fear and trembling, as we see You work to redeem us, and to restore the Creation to its proper place, to bring You glory. We thank You that we can take refuge in the shadow of Your wings, and we thank You that Your promise is that we will never be cast out.
+We thank You for the Holy Spirit, Who is “God with us” daily. He is ever near and help is always at hand, without delay.
 
 **The Wide World... and the Wider Church**
-We continue to pray for a world out of order, subject to the curse,and we especially pray for those persecuted for their faith in Nigeria, where terrorists have intensified their attacks on churches and particularly the pastors and leaders. We pray for our brothers and sisters in the faith as they face these enemies, that You would strengthen them, encourage them to avoid despair, and to hold their trust in Jesus. We recognise that we are not facing the same terrors but then wonder if our faith would be equal to the same dangers they face.
+We pray for this world where a major flood has swept away many lives in Nepal. We thank You that nations around the world have pledged help with rescue and recovery. We pray that there might be an effective Christian witness alongside the civilian rescue work.
 
-We pray for Your church, both here and elsewhere, as it faces troubles within, from compromising with the pressures to conform to the ways of this world. We thank You for the preaching and teaching we receive week by week. Help us to apply that teaching to the pressures we face, so that we see this world from the perspective of heaven. Enable us we pray to resist the temptation to just go along with what others say, and instead to stand firmly but with compassion as witnesses to the Cross and the Resurrection of our Living Lord Jesus.
+We continue to pray for trouble spots such as Nigeria where violence has eased but tensions still simmer against Your people. We again ask for courage for those in the firing line and peace in their hearts as they sense the closeness of the opposition they face.
+
+We pray also for the Kurz family, currently on deputation travel in Germany, and who are still in need of support before that can move out to the PNG mission field. We thank You that we can support them this month in our missions giving and ask that You would multiply our giving so that Your calling to them is not delayed, but that Your purposes for them can be fulfilled according to Your timing. We pray for strong growth in the many churches where Your Word is faithfully preached and lived, and that more and more people would come to know You as their deliverer, Who does not delay.
 
 **Ashburton**
-We pray for ourselves here at Ashburton, disappointed as we are that we remain vacant. We pray for Harrison Sawyer and his family as they move to the parish to which he has been appointed, and trust that the work and wisdom of the Exit Students Committee will result in blessings for him and that congregation.
+We pray for our work here at Ashburton, as we resume the search for the man of Your choosing. We pray for the Selection Committee which meets next week. Grant them renewed vigour and Your wisdom, so that in the end, Your purposes prevail.
 
-We pray for the Selection Committee which will meet soon, as they seek Your wisdom in the situation we now face, and resume their work of seeking the man You are preparing for the work of the Kingdom here. We pray for ourselves to support them in their work, and to not lose heart as they continue the search.
+We continue in prayer for those in need of Your healing hand – for Douglas and Joan Milne, for Levi to continue responding to his medication, and others affected by illness or injury. We continue to uphold John and Gaye as John resumes his treatment program.
 
-We continue in prayer for those in need of Your healing hand. We thank You for John’s recovery and pray for continued progress with his present medication. We lift up to You Douglas and Joan Milne, and thank You again for the wisdom and strength of faith which they exhibit, and which is such an encouragement to us all.
+We remember those who are away tfrom our fellowship. Grant them safety and blessing as they travel, and a safe return in due course.
 
-We thank You for Your Word, and for Jake Martin as he preaches today. We thank You for his preparation, and for the excellent training he receives at the College. We thank You that we can be participants in the task of preparing him for future ministry, when he completes his studies.
+We thank You for Your Word, and for Adi as he preaches today. We pray that we would be attentive hearers and effective do-ers of Your Word, so that our lives show forth more of the love of Jesus to those we meet daily.
 
 In His Precious Name we pray, Amen.
 
