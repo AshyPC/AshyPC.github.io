@@ -4,34 +4,35 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 30th August 2026
+### 6th September 2026
 
-**Psalm 70:4-5**
-_[4] May all who seek You rejoice and be glad in You! May those who love Your salvation say evermore, “God is great!”_
-_[5] But I am poor and needy; hasten to me, O God! 	You are my help and my deliverer; O Lord, do not delay!_
+**Psalm 66:20**
+_Blessed be God, Who has not turned away my prayer, nor His lovingkindness from me._
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we come into Your Presence now, acknowledging that we are poor and needy, and loving Your salvation, saying “God is great!” because You have granted us mercy and peace, You have lifted our burden and removed our guilt. You have set aside the penalty for our sin, declaring it fully paid by Jesus, on the Cross. We thank You that we can rejoice in our freedom from sin’s tentacles, even though we realize that we are not perfect, but that You always stand ready to forgive because Jesus now intercedes for us in the heavenly throne room, where You rule over all things in majesty.
+O Lord, we thank You that Your throne is a throne of grace and mercy for us, and that You do not turn away our prayers.
 
-We thank You for the Holy Spirit, Who is “God with us” daily. He is ever near and help is always at hand, without delay.
+We thank You that You rule in righteousness, for You are also a God of justice to ensure that sin is punished and right will prevail. We thank You for sending Jesus to save us, for we know that we could never save ourselves.
+
+We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, where justice and mercy came together, and what was thought by satan to be his victory became Jesus’ victory instead.
+
+We thank You that we have been rescued from death, transferred into the kingdom of heaven, and granted eternal life, free from the guilt and the penalty that our sins deserved. We thank You that we are now willing servants of the Lord of Glory, rather than slaves of the evil one.
 
 **The Wide World... and the Wider Church**
-We pray for this world where a major flood has swept away many lives in Nepal. We thank You that nations around the world have pledged help with rescue and recovery. We pray that there might be an effective Christian witness alongside the civilian rescue work.
+We pray for the Church, the worldwide Body of Christ, beset by opposition from the visible enemies outside as well as division within. We pray for Your grace as we stand for the truth as set forth in Your Word, against the false teachings which have been spread in recent years, but which have always been present even from New Testament times.
 
-We continue to pray for trouble spots such as Nigeria where violence has eased but tensions still simmer against Your people. We again ask for courage for those in the firing line and peace in their hearts as they sense the closeness of the opposition they face.
-
-We pray also for the Kurz family, currently on deputation travel in Germany, and who are still in need of support before that can move out to the PNG mission field. We thank You that we can support them this month in our missions giving and ask that You would multiply our giving so that Your calling to them is not delayed, but that Your purposes for them can be fulfilled according to Your timing. We pray for strong growth in the many churches where Your Word is faithfully preached and lived, and that more and more people would come to know You as their deliverer, Who does not delay.
+We pray for the many in this world without anchors because enemies try to undermine even the common sense reality of who we are as Your creatures, in a world which You created to work consistently and predictably. We thank You for the common grace to see Your hand in creation, so that we all might recognise and give You the glory due to Your Name.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we resume the search for the man of Your choosing. We pray for the Selection Committee which meets next week. Grant them renewed vigour and Your wisdom, so that in the end, Your purposes prevail.
+We pray for our work here at Ashburton, as we continue to serve You, love our brothers and sisters and seek to share the good news of Jesus with the people we meet. We thank You for the fellowship of the Holy Spirit, as we minister to one another, and we pray for those who are away traveling, that You would grant them safe travel and rich fellowship wherever they go.
 
-We continue in prayer for those in need of Your healing hand – for Douglas and Joan Milne, for Levi to continue responding to his medication, and others affected by illness or injury. We continue to uphold John and Gaye as John resumes his treatment program.
+We pray for the camp and for Brett Cummins as he prepares to open up Your word to us in a different setting. We pray for the Selection Committee which meets today to resume the task of finding the man of Your choosing to be our servant leader here.
 
-We remember those who are away tfrom our fellowship. Grant them safety and blessing as they travel, and a safe return in due course.
+We continue in prayer for those in need of Your healing hand – for Joan, Diane, Gaye and John, Levi and others affected by illness or injury. We pray for both medical and miraculous healing, according to Your will.
 
-We thank You for Your Word, and for Adi as he preaches today. We pray that we would be attentive hearers and effective do-ers of Your Word, so that our lives show forth more of the love of Jesus to those we meet daily.
+We thank You Douglas as he brings Your Word to us today. We are so blessed to receive the ministry of such wise and mature saints, and we pray for diligence in applying it to our daily sanctification under the guidance of Your Holy Spirit.
 
-In His Precious Name we pray, Amen.
+In Jesus Name we pray, Amen.
 
