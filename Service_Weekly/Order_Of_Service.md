@@ -2,52 +2,39 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 6th September 2026 
+### Order of Service Sunday, 13h September 2026 
 
-**Call to Worship** (Revelation 19:9-10) / **Opening prayer** (Douglas)
+**Call to Worship** (Psalm 9:7-10) / **Opening prayer** (Alan E)
 
-**Praise**: _How Deep the Father’s Love for Us_
+**Praise**: _From All that Dwell Below the Skies (R2)_
 
-**Bible Reading**:  Acts 17:10-21  (Seng)
+**Bible Reading**: Isaiah 55:1-11 (Pam)
 
 **Announcements** (JA)
 
-- New month mission giving: Samaritan's Purse Shoeboxes, also Nepalese flood relief
-- Working Bee - Saturday 12 September
-- Church Camp - Registration forms out now.  Speaker: Brett Cummins, Theme: Trusting in God’s Sovereignty
-- Selection Committee meeting today
-- AGM Last Sunday = 25th October. Audit completed. Department reports now due to Pam and John A
-- MAF Father's Day appeal
+- Thank you to everyone who helped at yesterday’s working bee.
+- Church Camp - Don’t forget to register.  Brett Cummins - **Trusting in God’s Sovereignty**.
+- AGM - 25 October. Please send department reports.
+- Short urgent Board meeting after the service
 
-**Sunday School** (Mia & Luke)
+**Sunday School** (Jack & Luke)
 
-**Praise**: _My Heart is Filled with Thankfulness_
+**Praise**: _The Servant King_
 
-**Prayer for the church and the world**  (JA)
+**Prayer for the church and the world**  (JA)
 
-**Bible reading**: Acts 18:5-17 (Callum)
+**Praise**: _I Need Thee Every Hour (R537)_
 
-**Praise**: _Blessed Jesus at Your Word_  (Offering)
+**Bible reading**: 1 John 2:18-21 (Alan E)
 
-**Sermon**: “MORE FAITH MATTERS” (Douglas)
+**Sermon**: “GENUINE CHRISTIANITY” (Alan E)
 
-**Praise**: _I Heard the Voice of Jesus Say_
+**Praise**: _When Peace Like a River (R586)_
 
-**The Lord’s Supper**
+**Benediction** (1 John 5:19-20)
 
-**Praise:** _This Life I Live is Not My Own_
-
-**Benediction** (Douglas)
 ‌
 
 **Sermon Outline**
 
-“MORE FAITH MATTERS”   (1 Thessalonians 3:6-10)
-
-Introduction
-1. Faith results in Love (v6)
-2. Faith gives Encouragement (v7)
-3. Faith Stands Fast (v8)
-4. Faith generates Joy (v9)
-5. Faith needs to become Complete (v10)
-Conclusion
+“GENUINE CHRISTIANITY”   (1 John 2:18-21)

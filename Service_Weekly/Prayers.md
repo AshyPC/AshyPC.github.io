@@ -4,35 +4,37 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 6th September 2026
+### 13th September 2026
 
-**Psalm 66:20**
-_Blessed be God, Who has not turned away my prayer, nor His lovingkindness from me._
+**Ps 60:11-12**
+_[11] Oh, grant us help against the foe, for vain is the salvation of man!_
+_[12] With God we shall do valiantly; it is He who will tread down our foes._
 
-Let us pray…
+In between two hymns, we come to a time of prayer, to acknowledge God’s greatness and to confess our need of Him. We bring our requests to Him Who “does valiantly” as the Psalmist declares, and Who alone is able to bring lasting change, according to His purposes for the world and for us within it.
 
-**Thanks to God**
-O Lord, we thank You that Your throne is a throne of grace and mercy for us, and that You do not turn away our prayers.
+**Adoration**
+God Almighty, Father, Son and Holy Spirit, Creator of all that is, we Your creatures dare to come before You Who are merciful, faithful and just. From everlasting to everlasting, You alone are God, all-powerful, all-seeing, all-holy and altogether righteous.
 
-We thank You that You rule in righteousness, for You are also a God of justice to ensure that sin is punished and right will prevail. We thank You for sending Jesus to save us, for we know that we could never save ourselves.
+**Confession**
+If we were to rely on Your justice, we would be lost, for we are fallen, so sinful in our self-centredness that we would not seek You out. But because You are all-loving, and graciously merciful, we are not destroyed. We look back upon our week and recognise the times when we have failed to honour You, when we have not loved as Jesus demonstrated, but have put ourselves first, when we have given in to temptation. We freely confess our sins to You now.
 
-We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection, where justice and mercy came together, and what was thought by satan to be his victory became Jesus’ victory instead.
+**Thanksgiving**
+We thank You that You have not abandoned us, but instead You sent Jesus to seek and save the lost. We know that there is no salvation in any man on earth, and we thank You for the special grace of a heavenly salvation. For while we were still sinners, enslaved by a great foe, He came as the Sinless Perfect Son of God and Son of Man to take our place and suffer the penalty which we deserved, dying in our stead so we could go free.
 
-We thank You that we have been rescued from death, transferred into the kingdom of heaven, and granted eternal life, free from the guilt and the penalty that our sins deserved. We thank You that we are now willing servants of the Lord of Glory, rather than slaves of the evil one.
+We thank You that You raised Him up on the third day, defeating that foe, and his weapon of death and sin, and beginning the restoration of what was Your perfect creation. We thank You that there will be an end to sin when Jesus returns and institutes the new heaven and the new earth.
 
-**The Wide World... and the Wider Church**
-We pray for the Church, the worldwide Body of Christ, beset by opposition from the visible enemies outside as well as division within. We pray for Your grace as we stand for the truth as set forth in Your Word, against the false teachings which have been spread in recent years, but which have always been present even from New Testament times.
+**Supplication: The Wider World**
+In the wider world, we continue to pray for the nations where sin still reigns, where Your people are set upon by terrorists and have to flee for their lives, and for our nation where opposition is less obvious but just as powerful.
 
-We pray for the many in this world without anchors because enemies try to undermine even the common sense reality of who we are as Your creatures, in a world which You created to work consistently and predictably. We thank You for the common grace to see Your hand in creation, so that we all might recognise and give You the glory due to Your Name.
+Here in Victoria, we pray for the many who are discouraged by their situation, and ask for Your guidance in speaking words of hope, as we rely on Your Word for our own encouragement.
 
-**Ashburton**
-We pray for our work here at Ashburton, as we continue to serve You, love our brothers and sisters and seek to share the good news of Jesus with the people we meet. We thank You for the fellowship of the Holy Spirit, as we minister to one another, and we pray for those who are away traveling, that You would grant them safe travel and rich fellowship wherever they go.
+**... and the Wider Church**
+We pray also for Your people in churches throughout this land. We thank You for all places where Your Word is faithfully preached. We thank You for our College and for the students who will take up their positions at the end of their studies.
 
-We pray for the camp and for Brett Cummins as he prepares to open up Your word to us in a different setting. We pray for the Selection Committee which meets today to resume the task of finding the man of Your choosing to be our servant leader here.
+**Supplication: Ashburton**
+Here in Ashburton we pray for Alan as he preaches Your Word, and we pray for our own understanding as we listen. Holy Spirit, we pray that You would change us so that we live our lives more and more in conformity to that powerful Word.
 
-We continue in prayer for those in need of Your healing hand – for Joan, Diane, Gaye and John, Levi and others affected by illness or injury. We pray for both medical and miraculous healing, according to Your will.
-
-We thank You Douglas as he brings Your Word to us today. We are so blessed to receive the ministry of such wise and mature saints, and we pray for diligence in applying it to our daily sanctification under the guidance of Your Holy Spirit.
-
+Finally, we pray for ourselves in the service of the Kingdom. We thank You that we are a part of the work of spreading the Good News, and members of the world-spanning Body of Christ. May we grow to show the character of our Risen Lord so well that others will see Him rather than us.
+.
 In Jesus Name we pray, Amen.
 
