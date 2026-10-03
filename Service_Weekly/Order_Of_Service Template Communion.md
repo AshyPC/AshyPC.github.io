@@ -1,6 +1,6 @@
 ﻿---
 layout: oos
-title: Order of Service
+title: Order of Service Communion
 ---
 ### Order of Service Sunday, 3rd May, 2026 
 

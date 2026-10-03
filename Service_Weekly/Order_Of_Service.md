@@ -1,44 +1,53 @@
----
+﻿---
 layout: oos
-title: Order of Service
+title: Order of Service Communion
 ---
-### Order of Service Sunday, 26th September 2026 
+### Order of Service Sunday, 4th October, 2026 
 
-**Call to Worship** (Ephesians 3:20-21) / **Opening prayer** (Brett)
+  
+**Call to Worship** (Revelation 1:17-18) / **Opening prayer** (Douglas)
 
-**Praise**: _Come, People of the Risen King_
+**Praise**: Christ Our Hope in Life and Death
 
-**Bible Reading**: Exodus 33:12 – 34:9  (Russell)
+**Bible Reading**: Romans 12:9-21  (Pam)
 
-**Announcements** (JA)
+**Announcements** (John A)
 
-- Evening prayer & worship service tonight \@ 5pm: Prayer & Praise with Chicken & Chips :-)
-- Last chance to register for camp.  Please register by tomorrow!  Any questions, please see Sophia or Pam.
-- Operation Christmas Child shoebox packing, Saturday 10 October \@ 2pm. Please come along and help.
-- AGM - 25 October
+- OCC Shoebox Packing - next Saturday (10th) 2pm at the church. See Gaye if you have questions.
+- Today is your last chance to register for camp if you haven’t done so already - please see Pam.  Please remember to get your camp payments in.
+- No service at Ashburton on 18th October as we will be on camp.
+- AGM - 25 October.
 
-**Praise**: _Yet Not I But Through Christ in Me_
+**Praise**: Your Will be Done
 
-**Prayer for the church and the world**  (JA)
+**Prayer for the church and the world**  (John A)
 
-**Bible reading**: John 1:1-18 (Rachel)
+**Bible reading**: 1 Thessalonians 5:1-11 (Stephen)
 
-**Praise**: _Speak O Lord_
+**Praise**: Speak, O Lord (Offering)
 
-**Sermon**: “JESUS, THE ONLY SAVIOUR” (Brett)
+**Sermon**: “A MODEL PRAYER” (Douglas)
 
-**Praise**: _Amazing_ _Grace_
+**Praise**: What Love, My God
 
-**Benediction** (Brett)
+**The Lord’s Supper**
+
+**Praise:** Now May He Who from the Dead (R!336)
+
+**Benediction** (Douglas)
+
+‌
 
 **Sermon Outline**
 
-“JESUS, THE ONLY SAVIOUR”   (John 1:6-18)
+“A MODEL PRAYER”   (1 Thessalonians 3:11-13)
 
 Introduction
 
-1. Even the greatest ordinary man cannot save you (vv. 6-8, 15)
-2. Your birth and your will cannot save you (vv. 9-13)
-3. Only Jesus saves, and only by grace (vv. 14-18)
+1. The Ones We Pray To
+2. The Things We Pray About
+3. The Things We Ask For
+4. The Aim of Our Praying
+5. The Context of Our Praying
 
 Conclusion
