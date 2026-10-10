@@ -1,53 +1,40 @@
-﻿---
-layout: oos
-title: Order of Service Communion
 ---
-### Order of Service Sunday, 4th October, 2026 
+layout: oos
+title: Order of Service
+---
+### Order of Service Sunday, 11th October 2026 
 
-  
-**Call to Worship** (Revelation 1:17-18) / **Opening prayer** (Douglas)
+**Call to Worship** (  ) / **Opening prayer** (John A)
 
-**Praise**: Christ Our Hope in Life and Death
+**Praise**: _Holy, Holy, Holy_
 
-**Bible Reading**: Romans 12:9-21  (Pam)
+**Bible Reading**: Philippians 2:1-11  (Callum)
 
-**Announcements** (John A)
+**Announcements** (JA)
 
-- OCC Shoebox Packing - next Saturday (10th) 2pm at the church. See Gaye if you have questions.
-- Today is your last chance to register for camp if you haven’t done so already - please see Pam.  Please remember to get your camp payments in.
-- No service at Ashburton on 18th October as we will be on camp.
-- AGM - 25 October.
+- No service at Ashburton on Sunday, 18th.
+- Please get your camp payments in this week.  If you are not sure about how much you owe, please see Pam.
 
-**Praise**: Your Will be Done
+**Sunday School** (Jack & Shi Ya)
 
-**Prayer for the church and the world**  (John A)
+**Praise**: _How Deep the Father’s Love for Us_
 
-**Bible reading**: 1 Thessalonians 5:1-11 (Stephen)
+Mission Spot: Operation Christmas Child shoeboxes
 
-**Praise**: Speak, O Lord (Offering)
+**Prayer for the church and the world**  (JA)
 
-**Sermon**: “A MODEL PRAYER” (Douglas)
+**Bible reading**: Daniel 4 (MarJo)
 
-**Praise**: What Love, My God
+**Praise**: _Rock of Ages_ (Offering)
 
-**The Lord’s Supper**
+**Sermon**: “GOD: THE RULER WHO HUMBLES THE PROUD AND EXALTS THE HUMBLE”  (Leighton Rowe)
 
-**Praise:** Now May He Who from the Dead (R!336)
+**Praise**: _Amazing Grace_
 
-**Benediction** (Douglas)
+**Benediction** (Leighton)
 
 ‌
 
 **Sermon Outline**
 
-“A MODEL PRAYER”   (1 Thessalonians 3:11-13)
-
-Introduction
-
-1. The Ones We Pray To
-2. The Things We Pray About
-3. The Things We Ask For
-4. The Aim of Our Praying
-5. The Context of Our Praying
-
-Conclusion
+“GOD: THE RULER WHO HUMBLES THE PROUD AND EXALTS THE HUMBLE”   (Daniel 4)

@@ -4,32 +4,29 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 4th October 2026
+### 11th October 2026
 
-**Psalm 116:16-17**
-_[16] O Lord, surely I am Your servant, I am Your servant, the son of Your handmaid, You have loosed my bonds._
-_[17] To You I shall offer a sacrifice of thanksgiving, And call upon the name of the Lord._
+**Psalm 109:30-31**
+_30 With my mouth I will give great thanks to the Lord; I will praise him in the midst of the throng._
+_31 For he stands at the right hand of the needy one, to save him from those who condemn his soul to death._
 
-Let us pray…
+As we focus on the shoebox ministry of Operation Christmas Child, let us pray…
 
 **Thanks to God**
-O Lord, we gather together before You today to honour You as our Saviour and Lord, the only One Who can loose our bonds, and the One Who is worthy to receive our thanksgiving sacrifice of praise.
+O Lord, we give You great, abundant, overflowing thanks to You today, for we have received so much love poured out on us. You demonstrated Your love for us while we were still sinners by sending Jesus to take our place on the Cross, so t hat we did not have to pay the impossible penalty for our willful disobedience. We thank You that with Jesus, You have blessed us abundantly both spiritually and materially, as we live comfortably in relative peace and prosperity.
 
-We know that we cannot be masters of our own lives, for we are sinners who followed in the footsteps of Adam and Eve in seeking to live apart from Your gracious rule. We thank You that in Your grace and mercy You sent Jesus to save us from the guilt, the power and the penalty of our sin.
+We also thank You that we can put together these shoeboxes and fill them with compact tokens of our love for children whom we do not know, but whom You want to know – children who may not have heard the Good News and do not know how You love them. 
 
-We thank You that we have been forgiven, our relationship to You has been restored, and we can now offer a sacrifice of praise.
+We thank You for all the contributions that we have brought to fill the shoeboxes, and for Gaye and all the volunteers who have packed them ready for delivery. We thank You for Samaritan’s Purse and their organisation.
 
-We thank You that we will shortly take part in the Lord’s Supper, commemorating the Cross and Resurrection. We thank You for Jesus’ righteousness, which He freely granted us in exchange for our old unrighteosuness. We thank You that as the Son of Man and the Son of God, He bridged the gap between heaven and Earth, so that we could walk in newness of life. We confess our sinfulness and weakness in the face of temptation, and thank You for sending the Holy Spirit, to be with us and sanctify us daily, so that we become more like Jesus, fit to enter Heaven, and remain in Your holy presence.
+We pray for safe transport of the collected shoeboxes, for the entire process of getting them to the children will receive them. We pray for the missionaries who will tell of Jesus, Who still draws the children to Himself. And we pray for their families, so that their parents also may know You love and care for them, whatever their circumstances. 
 
 **The Wide World... and the Wider Church**
-We thank You for the church, the worldwide Body of Christ, working in each congregation where Your people gather. We thank You that it is the pillar and guardian of the Truth, the declarer of Your Word to those in this world who are still blinded by the father of lies. We pray for them to see the True Light of the World, and that they would be saved, just as we are. We pray for Your persecuted church in places like Afica, Asia where violence is obvious, but also in places llike Europe, America and Australia, where people lose their jobs or are shunned in quiet ways for upholding Your Word.
+We pray for our work here at Ashburton, and we give You thanks again for Your many blessings which allow us to bless others. We thank You for Brett Cummins as he prepares to teach us at the Camp next week, and we thank You for Leighton who brings us Your Word for today.
 
-**Ashburton**
-We pray for Your work here at Ashburton, as we serve in the work of the Kingdom. We pray for the ministries of teaching and discipleship, for our Sunday School leaders who serve to bless the children with the knowledge of Your Word and Your saving grace. 
+We pray for the Selection Committee to be encouraged, as they seek Your will, so that in due time we call a new minister of Your choosing.
 
-We continue in prayer for those in need of Your healing hand, especially remembering Joan, John and Gaye. We remember that we are a fellowship together, and pray for those travelling, that You would watch over them until they return to us.
-
-We thank You for Douglas as he preaches Your Word today. We thank You for his faithful, wise and vigorous proclamation of Your teaching, which enables us to grow towards maturity in our faith and daily walk.
+We look forward to a time of rich fellowship and learning at Camp, so that we may encourage one another to love and good works, and expand our faithful witness to those around us in the communities where we live, work and study. 
 
 In His Precious Name we pray, Amen.
 
