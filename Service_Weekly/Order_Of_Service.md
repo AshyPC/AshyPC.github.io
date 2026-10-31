@@ -1,40 +1,54 @@
----
+﻿---
 layout: oos
-title: Order of Service
+title: Order of Service Communion
 ---
-### Order of Service Sunday, 11th October 2026 
+### Order of Service Sunday, 1st November, 2026 
 
-**Call to Worship** (  ) / **Opening prayer** (John A)
+  
+**Call to Worship** (Philippians 1:9-11) / **Opening prayer** (Douglas)
 
-**Praise**: _Holy, Holy, Holy_
+**Praise**: _A Mighty Fortress is our God_ (R316)
 
-**Bible Reading**: Philippians 2:1-11  (Callum)
+**Bible Reading**: Jeremiah 9:17-26  (Pam)
 
-**Announcements** (JA)
+**Announcements** (JA & Pam)
 
-- No service at Ashburton on Sunday, 18th.
-- Please get your camp payments in this week.  If you are not sure about how much you owe, please see Pam.
+- Working Bee on Saturday, 21st November.  It will be a longer one to get ready for Christmas
+- PAM  -  Gingerbread Houses, Friday, 4 December
+- Reformation Sunday
 
-**Sunday School** (Jack & Shi Ya)
+**Sunday School** (Jack & Mia)
 
-**Praise**: _How Deep the Father’s Love for Us_
+**Praise**: _Holy Spirit, Living Breath of God (Getty)_
 
-Mission Spot: Operation Christmas Child shoeboxes
+**Mission Video:** APWM
 
 **Prayer for the church and the world**  (JA)
 
-**Bible reading**: Daniel 4 (MarJo)
+**Bible reading**: Philippians 3:1-11 (Stephen)
 
-**Praise**: _Rock of Ages_ (Offering)
+**Praise**:  _God Has Spoken By His Prophets_ (R282)
 
-**Sermon**: “GOD: THE RULER WHO HUMBLES THE PROUD AND EXALTS THE HUMBLE”  (Leighton Rowe)
+**Sermon**: “WHO ARE THE PEOPLE OF GOD?” (Douglas)
 
-**Praise**: _Amazing Grace_
+**Praise**: _Here Now, O Lord, We See You Face to Face_ (v. 1-4) (R362)
 
-**Benediction** (Leighton)
+**The Lord’s Supper**
+
+**Praise:** _Here Now, O Lord, We See You Face to Face_ (v. 5-6) (R362)
+
+**Benediction** (Douglas)
 
 ‌
 
 **Sermon Outline**
 
-“GOD: THE RULER WHO HUMBLES THE PROUD AND EXALTS THE HUMBLE”   (Daniel 4)
+“WHO ARE THE PEOPLE OF GOD?”   (Philippians 3:3)
+
+Introduction
+
+1. Worship God by the Spirit
+2. Glory in Christ Jesus
+3. Put No Confidence in the Flesh
+
+Conclusion

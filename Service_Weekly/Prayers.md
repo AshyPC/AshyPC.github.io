@@ -4,29 +4,60 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 11th October 2026
+### 1st November 2026
 
-**Psalm 109:30-31**
-_30 With my mouth I will give great thanks to the Lord; I will praise him in the midst of the throng._
-_31 For he stands at the right hand of the needy one, to save him from those who condemn his soul to death._
+**Psalm 116:16-17**
+_“O Lord, surely I am Your servant, I am Your servant, the son of Your handmaid, You have loosed my bonds_
+_To You I shall offer a sacrifice of thanksgiving, And call upon the name of the Lord.”_
 
-As we focus on the shoebox ministry of Operation Christmas Child, let us pray…
+Let us pray…
 
 **Thanks to God**
-O Lord, we give You great, abundant, overflowing thanks to You today, for we have received so much love poured out on us. You demonstrated Your love for us while we were still sinners by sending Jesus to take our place on the Cross, so t hat we did not have to pay the impossible penalty for our willful disobedience. We thank You that with Jesus, You have blessed us abundantly both spiritually and materially, as we live comfortably in relative peace and prosperity.
+O Lord, we thank You that You have “loosed our bonds” and released us from our enslavement to sin. Now we are free to offer our sacrifice of thanksgiving, through the sacrifice of Jesus on the Cross, which we remember and celebrate today.
 
-We also thank You that we can put together these shoeboxes and fill them with compact tokens of our love for children whom we do not know, but whom You want to know – children who may not have heard the Good News and do not know how You love them. 
+We thank You for giving us the faith to be saved, for we could not bridge the gap which separated us from You by ourselves.
 
-We thank You for all the contributions that we have brought to fill the shoeboxes, and for Gaye and all the volunteers who have packed them ready for delivery. We thank You for Samaritan’s Purse and their organisation.
+We thank You for the Resurrection, and the righteousness we have received in Jesus, the spotless lamb who was slain.
 
-We pray for safe transport of the collected shoeboxes, for the entire process of getting them to the children will receive them. We pray for the missionaries who will tell of Jesus, Who still draws the children to Himself. And we pray for their families, so that their parents also may know You love and care for them, whatever their circumstances. 
+We thank You for the sanctifying work of the Holy Spirit, Who is with us daily to enable us to resist temptation and grow to be more like Jesus, until we are fully mature in our faith, with wisdom to discern how to live in this fallen world.
 
 **The Wide World... and the Wider Church**
-We pray for our work here at Ashburton, and we give You thanks again for Your many blessings which allow us to bless others. We thank You for Brett Cummins as he prepares to teach us at the Camp next week, and we thank You for Leighton who brings us Your Word for today.
+We thank You for the Church, the pillar and guardian of the Truth, for those who have fought the good fight in the past, firstly the apostles, then saints and martyrs down through the ages. We thank You that we can mark today as Reformation Sunday, and recall the restoration of Scripture to its rightful place as a means of grace and our guide for daily living, so that we have received the blessing of Your written Word preserved for us by the work of many Reformers. We pray for this world which needs a similar “reformation” so that Your Word is again held in high honour, and where Truth is recognised and is again upheld instead of lies.
 
-We pray for the Selection Committee to be encouraged, as they seek Your will, so that in due time we call a new minister of Your choosing.
+We pray for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm in the face of opposition. We pray for the Bible League work of bringing Your Word to believers suffering persecution, and thank You that we can support them financially in our October mission giving.
 
-We look forward to a time of rich fellowship and learning at Camp, so that we may encourage one another to love and good works, and expand our faithful witness to those around us in the communities where we live, work and study. 
+**Ashburton**
+We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom.v
+
+We continue to pray for the Selection Committee as they seek Your wisdom in the search for a new minister of Your choosing. We pray for ourselves to support them in their work on our behalf.
+
+We continue in prayer for those in need of Your healing hand – for Levi, for Joan, and for John, and any others affected by illness or injury. We also uphold Sophia and the child she carries, asking that You keep them to term, and that we may all rejoice in a new life safely delivered in due time.
+
+We thank You for Your Word, read and preached today. We thank You for Douglas as he opens it up to us today. We have been so blessed by his faithful and effective leadership among us, and pray that You continue to uphold him and Joan, as we await the deliberations of Presbytery in their review of our circumstances.
 
 In His Precious Name we pray, Amen.
+
+As we will shortly take part in the Lord’s Supper, let is recall the fundamentals of our faith,  delivered once for all to the saints, handed down and preserved through the ages, by reciting The Apostle’s Creed:
+
+I believe in God, the Father almighty,
+	creator of heaven and earth.
+
+I believe in Jesus Christ, his only Son, our Lord,
+	who was conceived by the Holy Spirit
+	and born of the virgin Mary.
+	He suffered under Pontius Pilate,
+	was crucified, died, and was buried;
+	he descended to hell.
+	The third day he rose again from the dead.
+	He ascended to heaven
+	and is seated at the right hand of God the Father almighty.
+	From there he will come to judge the living and the dead.
+
+I believe in the Holy Spirit,
+	the holy catholic* church,
+	the communion of saints,
+	the forgiveness of sins,
+	the resurrection of the body,
+	and the life everlasting. Amen.
+
 
