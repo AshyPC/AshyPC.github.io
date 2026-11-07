@@ -1,54 +1,48 @@
-﻿---
-layout: oos
-title: Order of Service Communion
 ---
-### Order of Service Sunday, 1st November, 2026 
+layout: oos
+title: Order of Service
+---
+### Order of Service Sunday, 8th November 2026 
 
-  
-**Call to Worship** (Philippians 1:9-11) / **Opening prayer** (Douglas)
+**Call to Worship** (Isaiah 26:8-9) / **Opening prayer** (John A)
 
-**Praise**: _A Mighty Fortress is our God_ (R316)
+**Praise**: _All Praise to Him_
 
-**Bible Reading**: Jeremiah 9:17-26  (Pam)
+**Bible Reading**: Deuteronomy 7:6-9 (Tim)
 
-**Announcements** (JA & Pam)
+**Announcements** (JA)
 
-- Working Bee on Saturday, 21st November.  It will be a longer one to get ready for Christmas
-- PAM  -  Gingerbread Houses, Friday, 4 December
-- Reformation Sunday
+- Working Bee - 21 November. Please come for all or just for an hour or two.
+- Pam - Women’s Christmas Gingerbread House event
 
-**Sunday School** (Jack & Mia)
+**Sunday School** (Luke & Shi Ya)
 
-**Praise**: _Holy Spirit, Living Breath of God (Getty)_
+**Praise**: _How Deep the Father’s Love for Us_
 
-**Mission Video:** APWM
+**Prayer for the church and the world**  (John A)
 
-**Prayer for the church and the world**  (JA)
+**Bible reading**: Ephesians 1:3-14 (Seng)
 
-**Bible reading**: Philippians 3:1-11 (Stephen)
+**Praise**: _Speak O Lord_
 
-**Praise**:  _God Has Spoken By His Prophets_ (R282)
+**Sermon**: “BLESS THE GOD WHO HAS BLESSED YOU” (Paul Jung)
 
-**Sermon**: “WHO ARE THE PEOPLE OF GOD?” (Douglas)
+**Praise**: _To God be the Glory_
 
-**Praise**: _Here Now, O Lord, We See You Face to Face_ (v. 1-4) (R362)
-
-**The Lord’s Supper**
-
-**Praise:** _Here Now, O Lord, We See You Face to Face_ (v. 5-6) (R362)
-
-**Benediction** (Douglas)
+**Benediction** (Paul Jung)
 
 ‌
 
 **Sermon Outline**
 
-“WHO ARE THE PEOPLE OF GOD?”   (Philippians 3:3)
+“BLESS THE GOD WHO HAS BLESSED YOU”   (Paul Jung)
 
 Introduction
 
-1. Worship God by the Spirit
-2. Glory in Christ Jesus
-3. Put No Confidence in the Flesh
+    1. See the Father’s gracious plan to save you (vv.3–6)
+    
+    2. See the Son’s glorious work to redeem you (vv.7–12)
+    
+    3. See the Spirit’s sure seal that you belong to him (vv.13–14)
 
 Conclusion

@@ -4,60 +4,32 @@ title: Prayers
 ---
 ## Prayers for our World and the Church 
 
-### 1st November 2026
+### 8th November 2026
 
-**Psalm 116:16-17**
-_“O Lord, surely I am Your servant, I am Your servant, the son of Your handmaid, You have loosed my bonds_
-_To You I shall offer a sacrifice of thanksgiving, And call upon the name of the Lord.”_
+**Psalm 130:1-5**
+_Out of the depths I have cried to You, O Lord. Lord, hear my voice! Let Your ears be attentive to the voice of my supplications. If You, Lord, should mark iniquities, O Lord, who could stand? But there is forgiveness with You, That You may be feared. I wait for the Lord, my soul does wait, and in His word do I hope._
 
 Let us pray…
 
 **Thanks to God**
-O Lord, we thank You that You have “loosed our bonds” and released us from our enslavement to sin. Now we are free to offer our sacrifice of thanksgiving, through the sacrifice of Jesus on the Cross, which we remember and celebrate today.
+O Lord, we thank You that You listen when we cry out to You.
 
-We thank You for giving us the faith to be saved, for we could not bridge the gap which separated us from You by ourselves.
+We know that in ourselves, we could not come into Your Presence to be heard, for we are sinners and in trouble in this world. We thank You that because Jesus went to the Cross for us, You no longer mark our iniquities, but instead have granted us Your forgiveness. We thank You that Jesus is our Advocate and High Priest, pleading on our behalf before the Throne of Grace.
 
-We thank You for the Resurrection, and the righteousness we have received in Jesus, the spotless lamb who was slain.
-
-We thank You for the sanctifying work of the Holy Spirit, Who is with us daily to enable us to resist temptation and grow to be more like Jesus, until we are fully mature in our faith, with wisdom to discern how to live in this fallen world.
+We thank You for sending the Holy Spirit, Third Person of the Trinity, to be with us daily, the One Who is our assurance of the eternal hope we have of living in Your Presence and worshipping You forever.
 
 **The Wide World... and the Wider Church**
-We thank You for the Church, the pillar and guardian of the Truth, for those who have fought the good fight in the past, firstly the apostles, then saints and martyrs down through the ages. We thank You that we can mark today as Reformation Sunday, and recall the restoration of Scripture to its rightful place as a means of grace and our guide for daily living, so that we have received the blessing of Your written Word preserved for us by the work of many Reformers. We pray for this world which needs a similar “reformation” so that Your Word is again held in high honour, and where Truth is recognised and is again upheld instead of lies.
+We pray for this world where so many trust in human wisdom, and place their hope in governments to restore safety and righteousness. In this election season, we pray for safety for candidates and all the election workers, for civil debate over competing policies, and especially for policies that protect life and unite our communities, instead of dividing.
 
-We pray for the many churches where Your Word is faithfully preached and lived, and ask that You would strengthen Your people to stand firm in the face of opposition. We pray for the Bible League work of bringing Your Word to believers suffering persecution, and thank You that we can support them financially in our October mission giving.
+We pray that the elected members will again seek Your Word for guidance and recall the wisdom of Proverbs when they read the inscription in the tiles as they enter the building.
+
+We pray also that Your church would make a stand for Godliness in public life and discourse, so that Your Word is honoured, that You are feared and reverenced, and that we Your people would exercise our civic responsibility wisely when we cast our votes. May we recognise that seeking good and wise government is a part of loving our neighbours within our communities.
 
 **Ashburton**
-We pray for our work here at Ashburton, as we also labour with our various talents and abilities in the work of the Kingdom.v
+We pray for our work here at Ashburton, as we seek to pray for one another, hear Your Word proclaimed today, so that we may all share in the task of building each other up, encouraging one another in love and good deeds, in caring for each other and ministering to each others needs as You lead us by Your Holy Spirit.
 
-We continue to pray for the Selection Committee as they seek Your wisdom in the search for a new minister of Your choosing. We pray for ourselves to support them in their work on our behalf.
+We continue in prayer for those in need of Your healing hand. We thank You for Levi‘s progress, and we pray for those with particular needs.
 
-We continue in prayer for those in need of Your healing hand – for Levi, for Joan, and for John, and any others affected by illness or injury. We also uphold Sophia and the child she carries, asking that You keep them to term, and that we may all rejoice in a new life safely delivered in due time.
+We thank You for Your Word, and for Paul as he preaches today. We pray that we would truly wait upon You as he opens Your Word to us.
 
-We thank You for Your Word, read and preached today. We thank You for Douglas as he opens it up to us today. We have been so blessed by his faithful and effective leadership among us, and pray that You continue to uphold him and Joan, as we await the deliberations of Presbytery in their review of our circumstances.
-
-In His Precious Name we pray, Amen.
-
-As we will shortly take part in the Lord’s Supper, let is recall the fundamentals of our faith,  delivered once for all to the saints, handed down and preserved through the ages, by reciting The Apostle’s Creed:
-
-I believe in God, the Father almighty,
-	creator of heaven and earth.
-
-I believe in Jesus Christ, his only Son, our Lord,
-	who was conceived by the Holy Spirit
-	and born of the virgin Mary.
-	He suffered under Pontius Pilate,
-	was crucified, died, and was buried;
-	he descended to hell.
-	The third day he rose again from the dead.
-	He ascended to heaven
-	and is seated at the right hand of God the Father almighty.
-	From there he will come to judge the living and the dead.
-
-I believe in the Holy Spirit,
-	the holy catholic* church,
-	the communion of saints,
-	the forgiveness of sins,
-	the resurrection of the body,
-	and the life everlasting. Amen.
-
-
+In Jesus Precious Name we pray, Amen.
