@@ -2,47 +2,48 @@
 layout: oos
 title: Order of Service
 ---
-### Order of Service Sunday, 8th November 2026 
+### Order of Service Sunday, 15th November 2026 
 
-**Call to Worship** (Isaiah 26:8-9) / **Opening prayer** (John A)
+**Call to Worship** (1 Peter 2: 9-10) / **Opening prayer** (Brett)
 
-**Praise**: _All Praise to Him_
+**Praise**: _Come, People of the Risen King_
 
-**Bible Reading**: Deuteronomy 7:6-9 (Tim)
+**Bible Reading**: Isaiah 40:1-11  (Russell)
 
 **Announcements** (JA)
 
-- Working Bee - 21 November. Please come for all or just for an hour or two.
-- Pam - Women’s Christmas Gingerbread House event
+- Working Bee - Saturday, 21 November -  _All Welcome!_
+- Gingerbread House Event - Friday, 4 December  -  don’t forget to get your payments in if you haven’t done so.
+- PCV Moderator Visit - 6 December
 
-**Sunday School** (Luke & Shi Ya)
+**Sunday School** (Jack & Luke)
 
-**Praise**: _How Deep the Father’s Love for Us_
+**Praise**: _Christ is Mine Forevermore_
+
+**Mission Spot**
 
 **Prayer for the church and the world**  (John A)
 
-**Bible reading**: Ephesians 1:3-14 (Seng)
+**Bible reading**: John 1:1-18 (MarJo)
 
-**Praise**: _Speak O Lord_
+**Praise**: _Yet Not I But Through Christ in Me_
 
-**Sermon**: “BLESS THE GOD WHO HAS BLESSED YOU” (Paul Jung)
+**Sermon**: “KNOWING JESUS” (Brett)
 
-**Praise**: _To God be the Glory_
+**Praise**: _Before the Throne of God Above_
 
-**Benediction** (Paul Jung)
+**Benediction** (Numbers 6:24-26) (Brett)
 
 ‌
 
 **Sermon Outline**
 
-“BLESS THE GOD WHO HAS BLESSED YOU”   (Paul Jung)
+“KNOWING JESUS”   (John 1:19-34)
 
 Introduction
 
-    1. See the Father’s gracious plan to save you (vv.3–6)
-    
-    2. See the Son’s glorious work to redeem you (vv.7–12)
-    
-    3. See the Spirit’s sure seal that you belong to him (vv.13–14)
+1. Some will not know him
+2. Some will not know him fully
+3. Some will not know him at all
 
 Conclusion
